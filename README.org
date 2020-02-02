@@ -7,3 +7,5 @@
 所有图片采取markdown格式链接，均为网络图片，不保证可用性。
 
 如需要本地图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
+
+ps:代码写得很烂，还请多多包涵！
