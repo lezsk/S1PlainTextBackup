@@ -59,105 +59,110 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
-    page = '851614'
+    pages = ['1787418']
+    for page in pages:
+        RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
+        time.sleep(0.1)
+        # s1 = requests.get(RURL, headers=headers,  cookies = cookies)
+        s1 = requests.get(RURL, headers=headers)
+        # s1.encoding='utf-8'
+        data = s1.content
+        namelist, replylist,totalpage,title= parse_html(data)
+        startpage = 1
+        count = 1
+        while(count <= totalpage):
+            for thread in range(startpage,totalpage+1):
+        # thread = 1
+                RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-'+str(thread)+'-1.html'
+                time.sleep(0.1)
+                s1 = requests.get(RURL, headers=headers)
+                data = s1.content
+                namelist, replylist,totalpage,title= parse_html(data) 
+                nametime = []
+                replys = []
+                times = []
+                level = []
+                output= ''
+                for i in namelist:
+                    i = i = re.sub(r'[\r\n]',' ',str(i))
+                    nametime.append(re.sub(r'<.+?>','',i))
+                names = nametime[::2]
+                timestamp = nametime[1::2]
+                for i in timestamp:
+                    i = re.sub(r'[\r\n]',' ',str(i))
+                    i = re.sub(r'电梯直达','1#',i)
+                    i = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)
+                    times.append(i.group(0))
+                for i in replylist:
+                    i = re.sub(r'\r','\n',str(i))
+                    # i = re.sub(r'\n\n','\n',i)
+                    i = re.sub(r'<blockquote>|</blockquote>','\n```\n',i)
+                    # i = re.sub(r'</blockquote>','\n',i)
+                    i = re.sub(r'<span class=\"icon_ring vm\">','﹍﹍﹍\n\n',str(i))
+                    # i = re.sub(r'068.png','>[香菜捂脸]<',i)
+                    # i = re.sub(r'049.png','>[尖嘴嘲讽]<',i)
+                    # i = re.sub(r'048.png','>[呲牙嘲讽]<',i)
+                    # i = re.sub(r'037.png','>[盲人]<',i)
+                    # i = re.sub(r'067.png','>[香菜脸]<',i)
+                    # i = re.sub(r'001.png','>[吃惊无语]<',i)
+                    # i = re.sub(r'125.png','>[扭曲]<',i)
+                    # i = re.sub(r'072.png|13.gif','>[比心]<',i)
+                    # i = re.sub(r'12.gif','>[吐舌]<',i)
+                    # i = re.sub(r'034.png','>[眼镜喝茶]<',i)
+                    # i = re.sub(r'066.png','>[XD]<',i)
+                    # i = re.sub(r'065.png','>[斜眼大笑]<',i)
+                    # i = re.sub(r'033.png','>[喝茶]<',i)
+                    # i = re.sub(r'075.png','>[温暖可爱]<',i)
+                    # i = re.sub(r'217.gif','>[粪海先辈大叫]<',i)
+                    # i = re.sub(r'34.gif|077.png','>[喷鼻血]<',i)
 
-
-    RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
-    time.sleep(0.1)
-    # s1 = requests.get(RURL, headers=headers,  cookies = cookies)
-    s1 = requests.get(RURL, headers=headers)
-    # s1.encoding='utf-8'
-    data = s1.content
-    namelist, replylist,totalpage,title= parse_html(data)
-    startpage = 1
-    count = 1
-    while(count <= totalpage):
-        for thread in range(startpage,totalpage+1):
-    # thread = 1
-            RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-'+str(thread)+'-1.html'
-            time.sleep(0.1)
-            s1 = requests.get(RURL, headers=headers)
-            data = s1.content
-            namelist, replylist,totalpage,title= parse_html(data) 
-            nametime = []
-            replys = []
-            times = []
-            level = []
-            output= ''
-            for i in namelist:
-                i = i = re.sub(r'[\r\n]',' ',str(i))
-                nametime.append(re.sub(r'<.+?>','',i))
-            names = nametime[::2]
-            timestamp = nametime[1::2]
-            for i in timestamp:
-                i = re.sub(r'[\r\n]',' ',str(i))
-                i = re.sub(r'电梯直达','1#',i)
-                i = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)
-                times.append(i.group(0))
-            for i in replylist:
-                i = re.sub(r'\r','\n',str(i))
-                # i = re.sub(r'\n\n','\n',i)
-                i = re.sub(r'<blockquote>|</blockquote>','\n```\n',i)
-                # i = re.sub(r'</blockquote>','\n',i)
-                i = re.sub(r'<span class=\"icon_ring vm\">','﹍﹍﹍\n\n',str(i))
-                # i = re.sub(r'068.png','>[香菜捂脸]<',i)
-                # i = re.sub(r'049.png','>[尖嘴嘲讽]<',i)
-                # i = re.sub(r'048.png','>[呲牙嘲讽]<',i)
-                # i = re.sub(r'037.png','>[盲人]<',i)
-                # i = re.sub(r'067.png','>[香菜脸]<',i)
-                # i = re.sub(r'001.png','>[吃惊无语]<',i)
-                # i = re.sub(r'125.png','>[扭曲]<',i)
-                # i = re.sub(r'072.png|13.gif','>[比心]<',i)
-                # i = re.sub(r'12.gif','>[吐舌]<',i)
-                # i = re.sub(r'034.png','>[眼镜喝茶]<',i)
-                # i = re.sub(r'066.png','>[XD]<',i)
-                # i = re.sub(r'065.png','>[斜眼大笑]<',i)
-                # i = re.sub(r'033.png','>[喝茶]<',i)
-                # i = re.sub(r'075.png','>[温暖可爱]<',i)
-                # i = re.sub(r'217.gif','>[粪海先辈大叫]<',i)
-                # i = re.sub(r'34.gif|077.png','>[喷鼻血]<',i)
-
-                
-                # i = re.sub(r'(\d+.[jgp][pin][fg])','>[\\1]<',i)
-                i = re.sub(r'<td class="x.1">','|',i)
-                i = re.sub(r'\n</td>','',i)
-                i = re.sub(r'</td>\n','',i)
-                i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','![](',i)
-                i = re.sub(r'"/>',')',i)
-                i = re.sub(r'<.+?>','',i)
-                i = re.sub(r'\n(.*?)\|(.*?)\|(.*?)\n','\n|\\1|\\2|\\3|\n',i)
-                i = re.sub(r'收起\n理由','|昵称|战斗力|理由|\n|----|---|---|',i)
-                i = re.sub(r'\|\n+?\|','|\n|',i)
-            #     i = re.sub(r'\[blockquote\](.+)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n\n',i)
-            #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
-            #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n\n',i)
-            #     # i = re.sub(r'\[blockquote\](.+?)\n(.+?)\[/blockquote\]','>\\1\n>\n>\\2\n\n',i)
-            #     # i = re.sub(r'\[blockquote\](.*?)\n(.*?)\n(.+?)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
-            #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n>\\5\n\n',i)
-            #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n>\\5\n>\\6\n\n',i)
-                replys.append(i)
-            for i in range(len(replylist)):
-                output = output + '\n\n-----\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
-            output = re.sub(r'\r','\n',output)
-            # output = re.sub(r'\n\n\n','\n',output)
-            # output = re.sub(r'\n\n\n','\n',output)
-            titles = re.sub(r'<.+?>','',str(title))
-            titles = re.sub(r'[\]\[]','',titles)
-            titles = re.sub(r'【','[',titles)
-            titles = re.sub(r'】',']',titles)
-            # currenttime = time.strftime('%Y-%m-%d',time.localtime(time.time()))
-            # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
-                # 
-                    # f.write(str(i)+'\n')
-            with open("C:/Users/riko/Desktop/"+str(page)+titles+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
-                f.write(output)
-            if(thread == totalpage):
-                count = totalpage +1
-                break
-            if(get_FileSize("C:/Users/riko/Desktop/"+str(page)+titles+str(startpage)+'-'+str(totalpage)+'页.md') >= 1):
-                os.rename("C:/Users/riko/Desktop/"+str(page)+titles+str(startpage)+'-'+str(totalpage)+'页.md',"C:/Users/riko/Desktop/"+str(page)+titles+str(startpage)+'-'+str(thread)+'页.md')
-                startpage = thread+1
-                break
+                    
+                    # i = re.sub(r'(\d+.[jgp][pin][fg])','>[\\1]<',i)
+                    i = re.sub(r'<td class="x.1">','|',i)
+                    i = re.sub(r'\n</td>','',i)
+                    i = re.sub(r'</td>\n','',i)
+                    i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','![](',i)
+                    i = re.sub(r'"/>',')',i)
+                    i = re.sub(r'<img .*?file="','[img src="',i)
+                    i = re.sub(r'jpg".+\)','jpg" referrerpolicy="no-referrer"]',i)
+                    i = re.sub(r'png".+\)','png" referrerpolicy="no-referrer"]',i)
+                    i = re.sub(r'gif".+\)','gif" referrerpolicy="no-referrer"]',i)
+                    i = re.sub(r'<.+?>','',i)
+                    i = re.sub(r'\n(.*?)\|(.*?)\|(.*?)\n','\n|\\1|\\2|\\3|\n',i)
+                    i = re.sub(r'收起\n理由','|昵称|战斗力|理由|\n|----|---|---|',i)
+                    i = re.sub(r'\|\n+?\|','|\n|',i)
+                    i = re.sub(r'\[img src="','<img src="',i)
+                    i = re.sub(r'"no-referrer"\]','"no-referrer">',i)
+                #     i = re.sub(r'\[blockquote\](.+)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n\n',i)
+                #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
+                #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n\n',i)
+                #     # i = re.sub(r'\[blockquote\](.+?)\n(.+?)\[/blockquote\]','>\\1\n>\n>\\2\n\n',i)
+                #     # i = re.sub(r'\[blockquote\](.*?)\n(.*?)\n(.+?)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
+                #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n>\\5\n\n',i)
+                #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n>\\5\n>\\6\n\n',i)
+                    replys.append(i)
+                for i in range(len(replylist)):
+                    output = output + '\n\n-----\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
+                output = re.sub(r'\r','\n',output)
+                # output = re.sub(r'\n\n\n','\n',output)
+                # output = re.sub(r'\n\n\n','\n',output)
+                titles = re.sub(r'<.+?>','',str(title))
+                titles = re.sub(r'[\]\[]','',titles)
+                titles = re.sub(r'/','-',titles)
+                # titles = re.sub(r'】',']',titles)
+                # currenttime = time.strftime('%Y-%m-%d',time.localtime(time.time()))
+                # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
+                    # 
+                        # f.write(str(i)+'\n')
+                with open("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
+                    f.write(output)
+                if(thread == totalpage):
+                    count = totalpage +1
+                    break
+                if(get_FileSize("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md') >= 1):
+                    os.rename("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md',"C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(thread)+'页.md')
+                    startpage = thread+1
+                    break
 
 
 
