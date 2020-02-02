@@ -1,0 +1,5 @@
+** 简介
+
+本仓库用来存放S1部分高楼的纯文本备份，请善用搜索功能。
+
+如需要图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
