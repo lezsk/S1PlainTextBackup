@@ -21,4 +21,4 @@
 
 如需要本地图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
 
-ps:代码写得很烂，还请多多包涵！
+ps:代码写得很烂，还请多多包涵！如果有需要我保存的专楼，可以给我提issue或者在S1私信我。
