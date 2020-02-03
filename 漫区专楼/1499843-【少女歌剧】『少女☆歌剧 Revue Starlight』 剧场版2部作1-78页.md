@@ -9,7 +9,7 @@
 
  本帖最后由 xingenge 于 2019-11-3 19:47 编辑 
 
-<img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g8l3ab7os1j31hc0u0zr3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/0068TvVBgy1g8l3ab7os1j31hc0u0zr3.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -29,7 +29,7 @@ https://www.bilibili.com/bangumi/media/md102892
 
 官推：https://twitter.com/revuestarlight
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft87264yi8j211q1hcnpe.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft87264yi8j211q1hcnpe.jpg" referrerpolicy="no-referrer">
 
 <strong>【ON AIR】</strong>
 
@@ -120,54 +120,54 @@ RKB　2018年7月18日（水）より毎週水曜 26：30～
 
 ●愛城華恋（あいじょうかれん）：小山百代
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9s6jszj20hs0fh41s.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9s6jszj20hs0fh41s.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●神楽ひかり（かぐらひかり）：三森すずこ
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9si83hj20hs0fmq6a.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9si83hj20hs0fmq6a.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●天堂真矢（てんどうまや）：富田麻帆
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ff4t9t6cpnj20hs0fygp3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ff4t9t6cpnj20hs0fygp3.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●星見純那（ほしみじゅんな）：佐藤日向
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9tjdo7j20hs0ewwih.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9tjdo7j20hs0ewwih.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●露崎まひる（つゆざきまひる）：岩田陽葵
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9ukbekj20hs0ezgry.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9ukbekj20hs0ezgry.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●大場なな（だいばなな）：小泉萌香
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9vdfkoj20hs0gvjwi.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ff4t9vdfkoj20hs0gvjwi.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●西條クロディーヌ（さいじょうくろーでぃぬ）：相羽あいな
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ff4t9waw57j20hs0fstck.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ff4t9waw57j20hs0fstck.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●石動双葉（いするざきふたば）：生田 輝
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ff4t9wtbfxj20hs0eomzq.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ff4t9wtbfxj20hs0eomzq.jpg" referrerpolicy="no-referrer">
 
 　
 
 ●花柳香子（はなやぎかおるこ）：伊藤彩沙
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9xc4c2j20hs0g7jv3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ff4t9xc4c2j20hs0g7jv3.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -286,7 +286,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ffks26egdcj20640cu0t1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ffks26egdcj20640cu0t1.jpg" referrerpolicy="no-referrer">
 
 ◆愛城華恋（あいじょう かれん）　CAST.小山百代
 
@@ -296,7 +296,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「ひかりちゃんと一緒に舞台に立つこと！」。
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks26a8kmj20670db0sz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks26a8kmj20670db0sz.jpg" referrerpolicy="no-referrer">
 
 ◆神楽ひかり（かぐら ひかり）　CAST.三森すずこ
 
@@ -306,7 +306,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「華恋と一緒に舞台に立つこと」。
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ffks270jipj20600djdg6.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ffks270jipj20600djdg6.jpg" referrerpolicy="no-referrer">
 
 ◆天堂真矢（てんどう まや）　CAST.富田麻帆
 
@@ -316,7 +316,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 「夢は見るものではなく、魅せるものです」。
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ffks27gy3ej206k0cw0t0.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ffks27gy3ej206k0cw0t0.jpg" referrerpolicy="no-referrer">
 
 ◆星見純那（ほしみ じゅんな）　CAST.佐藤日向
 
@@ -326,7 +326,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「主役として、舞台の真ん中でスポットライトを浴びたい！」
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks27w0bsj206d0da0sz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks27w0bsj206d0da0sz.jpg" referrerpolicy="no-referrer">
 
 ◆露崎まひる（つゆざき まひる）　CAST.岩田陽葵
 
@@ -336,7 +336,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「華恋ちゃんのパートナー！」
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks28in2fj206k0dgjrp.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ffks28in2fj206k0dgjrp.jpg" referrerpolicy="no-referrer">
 
 ◆大場なな（だいば なな）　CAST.小泉萌香
 
@@ -346,7 +346,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「あの時の舞台が、また出来たらいいな♪」
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ffks2950r2j206e0e3t92.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ffks2950r2j206e0e3t92.jpg" referrerpolicy="no-referrer">
 
 ◆西條クロディーヌ（さいじょう くろでぃーぬ）　CAST.相羽あいな
 
@@ -356,7 +356,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「天堂真矢を超え、私が一番のスタァになる！」。
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ffks29wfttj206i0c3mxf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ffks29wfttj206i0c3mxf.jpg" referrerpolicy="no-referrer">
 
 ◆石動双葉（いするぎ ふたば）　CAST.生田輝
 
@@ -366,7 +366,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 夢は「香子がご機嫌なら、あたしはそれでいいんだよ」
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ffks2abeg7j205i0cwdg2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ffks2abeg7j205i0cwdg2.jpg" referrerpolicy="no-referrer">
 
 ◆花柳香子（はなやぎ かおるこ）　CAST.伊藤彩沙
 
@@ -389,7 +389,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fiwdzd7ehpj212m16x1kz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fiwdzd7ehpj212m16x1kz.jpg" referrerpolicy="no-referrer">
 
 ■「少女☆歌劇 レヴュースタァライト」1stシングルCD「プロローグ -Star Divine-」
 
@@ -425,7 +425,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 06.願いは光になって［Instrumental］
 
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fiwdzioewaj212j16wu0x.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fiwdzioewaj212j16wu0x.jpg" referrerpolicy="no-referrer">
 
 ■「少女☆歌劇 レヴュースタァライト」限定シングル「プリンシパル -Fancy You-」
 
@@ -539,7 +539,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 
 
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fjc5nhs8toj22i21kwnpf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fjc5nhs8toj22i21kwnpf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -574,7 +574,7 @@ http://v.youku.com/v_show/id_XMj ... j.8428770.3416059.1
 sj
 
 链接: https://pan.baidu.com/s/1bqiUa0R 密码: 7vh7
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1focg4xu00ej22i21kwe83.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1focg4xu00ej22i21kwe83.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -593,7 +593,7 @@ sj
 sj
 
 链接: https://pan.baidu.com/s/1sndYgPn 密码: 7npr
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1foesn8mcrwj21kw10ie83.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1foesn8mcrwj21kw10ie83.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -737,7 +737,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接: https://pan.baidu.com/s/1pG6jsldZVgh8vCghE7s64w 密码: gfu9
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fpfxgu1iqlj21kw10fhdv.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fpfxgu1iqlj21kw10fhdv.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -770,7 +770,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接：https://pan.baidu.com/s/1dShD1QbzrrFapAQ2jMNpmA 密码：kfq4
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fqz7ue1gr3j21kw103kjn.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fqz7ue1gr3j21kw103kjn.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -785,9 +785,9 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fs31c01rs6j20lc0u6e81.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fs31c3v6d1j20xc0ire4f.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs31c2qg5zj20xc0ir1cu.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fs31c01rs6j20lc0u6e81.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fs31c3v6d1j20xc0ire4f.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs31c2qg5zj20xc0ir1cu.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -821,7 +821,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接：https://pan.baidu.com/s/16ou5nr2Vcc4GetNwKNzNbw 密码：6cal
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs5r5r8nq5j21kw0zwe83.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fs5r5r8nq5j21kw0zwe83.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -854,7 +854,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接：https://pan.baidu.com/s/1T851dzY_4RR2NhJTYGbk3Q 密码：671l
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fscs6mthwgj23y02j5npf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fscs6mthwgj23y02j5npf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -869,9 +869,9 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsna6mqwrmj20t30gcdnk.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsna6mr31qj20t90gb45w.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsna6mt5hwj20tc0g7dnl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsna6mqwrmj20t30gcdnk.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsna6mr31qj20t90gb45w.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsna6mt5hwj20tc0g7dnl.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -889,7 +889,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
  本帖最后由 xingenge 于 2018-6-30 16:07 编辑 
 
 链接：https://pan.baidu.com/s/1ZqsLv0vcE7q5X3FEwF_mWA 密码：0ccw
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fst8ipc7fvj22mg3t2b29.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fst8ipc7fvj22mg3t2b29.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -908,7 +908,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと9日！本日の担当、設定制作の森山菜月さんより、かわいい華恋とひかりとまひるのイラストをいただきました。明日もお楽しみに～　#スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fsx1v0zdtyj20tk0p0q6r.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fsx1v0zdtyj20tk0p0q6r.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと9日】
@@ -921,7 +921,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 心を震わせる歌声で、躰が動き出す踊りで、魂を揺さぶる演技で観る者を魅了する、舞台に咲き誇る華。
 
 スタァに魅入られた『舞台少女』たちは、夢の舞台に立つための演劇の学び舎『聖翔音楽学園』に集う。
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fsx1v0nifgj20qo0k00v1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fsx1v0nifgj20qo0k00v1.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -940,7 +940,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと8日！本日のカウントダウンイラスト担当は原画の和田慎平さんです。社内で別作品を作業中ですが、私服の双葉を描いてくれました。フルカラーです！明日もお楽しみに～　#スタァライト
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsxzdbeor5j20jn0rstpl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsxzdbeor5j20jn0rstpl.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと8日】
@@ -956,7 +956,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 時は流れ、約束を胸に日々レッスンに励む華恋。
 
 そこに転校してきたのは幼い日に別れたひかりだった…
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fsxzdh8yumj20qo0k01e3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fsxzdh8yumj20qo0k01e3.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -994,11 +994,11 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと一週間を記念して本日は二本立てです！一枚目は新人動画の前田千景さんより、仲良しな華恋とひかりです。　#スタァライト
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsz53v3dh0j20jn0rp0wm.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsz53v3dh0j20jn0rp0wm.jpg" referrerpolicy="no-referrer">
 
 
 二枚目は動画の齋藤穂波さんより、レヴュー衣装の香子をいただきました。明日もお楽しみに！　#スタァライト
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsz53vq2s2j20no0rsdir.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fsz53vq2s2j20no0rsdir.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと7日】
@@ -1010,7 +1010,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 「お持ちなさい　あなたの望んだその星を」
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsz53uzxp0j20qo0k0mzc.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fsz53uzxp0j20qo0k0mzc.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1051,14 +1051,14 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 それは、『トップスタァ』の座をかけたオーディションへの誘い。
 
 同じ舞台に立つ仲間たちは、星を奪い合うライバルとなった…
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft0a775mlnj20qo0k076q.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft0a775mlnj20qo0k076q.jpg" referrerpolicy="no-referrer">
 
 
 
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと6日！カウントダウンイラスト担当二回目となる原画の小里明花さんより、純那とななのイラストをいただきました。明日もお楽しみに～　#スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft0a778wo8j20rs0q7tck.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft0a778wo8j20rs0q7tck.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1080,7 +1080,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 舞台少女たちの関係が、感情が、主役と敵役が、
 
 緞帳が上がるたびに「再生産」されてゆく。
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyr7yy0j20qo0k0wgr.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyr7yy0j20qo0k0wgr.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと5日】
@@ -1093,17 +1093,17 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 譲れない執着が、
 
 舞台の上で衝突する…！
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft2oyr62wyj20qo0k040z.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft2oyr62wyj20qo0k040z.jpg" referrerpolicy="no-referrer">
 
 
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと4日！本日も制作スタッフより、華恋とひかりをいただきました。明日もお楽しみに！　#スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyrais5j20sg0h5adn.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyrais5j20sg0h5adn.jpg" referrerpolicy="no-referrer">
 
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと5日！カウントダウンイラスト担当二回目となる原画の小池裕樹さんより、楽しい華恋とひかりとまひるをいただきました。明日もお楽しみに～　#スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyr8wt9j20ph0xcjvu.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft2oyr8wt9j20ph0xcjvu.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1153,11 +1153,11 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接：https://pan.baidu.com/s/1wnllDDrWDoK_pQa3yYYGqQ 密码：y55v
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft4mxri1yaj23zd2iahdv.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft4mxri1yaj23zd2iahdv.jpg" referrerpolicy="no-referrer">
 
 
 链接：https://pan.baidu.com/s/12p4-Qm5GPv_ahZfGxR-w7Q 密码：fflj
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft4mygaqr5j22f635j4qp.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft4mygaqr5j22f635j4qp.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1175,7 +1175,7 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 链接：https://pan.baidu.com/s/1jk625LY9dBOmcG98sX0ciw 密码：az68
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft55kcubxaj23zh2i8b2c.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft55kcubxaj23zh2i8b2c.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと3日】
@@ -1188,24 +1188,24 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 あの「約束」への執着
 
 あの「少女」への執着
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6u7uij20qo0k00uv.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6u7uij20qo0k00uv.jpg" referrerpolicy="no-referrer">
 
 
 【TVアニメ開演まであと2日】
 
 
 いつか、あの娘と戦うことになっても――
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft56r6vbt9j20qo0k0di5.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft56r6vbt9j20qo0k0di5.jpg" referrerpolicy="no-referrer">
 
 
 キネマシトラス公式@KinemacINFO
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと3日！本日のカウントダウンイラスト担当はメインアニメーターの清水海都さんです。ハードボイルドな華恋とひかりの武器をいただきました。明日もお楽しみに～　#スタァライト
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6tzpzj20xc0i7ad6.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6tzpzj20xc0i7ad6.jpg" referrerpolicy="no-referrer">
 
 
 アニメ・少女歌劇レヴュースタァライトの放送まであと2日！本日のカウントダウンイラスト担当は副監督の小出卓史さんです。仕事の量がやまもりの中、華恋とひかりを描いてくださいました。明日もお楽しみに～　
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft56r6vas7j20xc0ng79e.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft56r6vas7j20xc0ng79e.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1241,13 +1241,13 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 
 
 喜劇と悲劇が交錯する『レヴュースタァライト』、ここに開演！
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft6biut739j20qo0k076i.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft6biut739j20qo0k076i.jpg" referrerpolicy="no-referrer">
 
 
 キネマシトラス公式@KinemacINFO
 
 とうとう明日は、アニメ・少女歌劇レヴュースタァライトの放送日です！本日のカウントダウンイラスト担当は古川知宏監督です。仕事が嵐の中、華恋のイラストを描いていただきました。明日もお楽しみに！　#スタァライト
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft6biushv3j20rs0jdmzm.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft6biushv3j20rs0jdmzm.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1338,23 +1338,23 @@ https://www.bilibili.com/video/av14605130/</blockquote>
 齊田博之@SG550_SIG
 
 放送日ですな…
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft7lakuw54j20xc0ontcp.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft7lakuw54j20xc0ontcp.jpg" referrerpolicy="no-referrer">
 
 
 
 キネマシトラス公式@KinemacINFO
 
 ついに本日アニメ・少女歌劇レヴュースタァライトの放送スタートです！最後となるカウントダウンイラストは、第二段キービジュアルの原画です。今晩放送の第一話を何卒よろしくお願いいたします！　#スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft7lalqeenj20sc0xcagx.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft7lalqeenj20sc0xcagx.jpg" referrerpolicy="no-referrer">
 
 
 『少女☆歌劇 レヴュースタァライト』第1話ご視聴ありがとうございました！
 
 スタッフ一丸となって制作進行中です！次回もご期待ください！！
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft7lakxcj1j20xc0nk0x1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft7lal064pj20xc0nk0yc.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft7lakx6k3j20xc0nkwhw.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft7laky02bj20xc0nkwhu.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft7lakxcj1j20xc0nk0x1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft7lal064pj20xc0nk0yc.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft7lakx6k3j20xc0nkwhw.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft7laky02bj20xc0nkwhu.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1637,11 +1637,11 @@ TBS檔，下午才上架，B站有</blockquote>
  本帖最后由 有钱多买小人 于 2018-7-13 10:38 编辑 
 
 白丝hshs
-<img src="http://wx3.sinaimg.cn/mw690/0060lm7Tly1ft814fz1mfj30xc0irdgh.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/mw690/0060lm7Tly1ft814g24s3j30xc0irwgr.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft815up63mj30xc0irwg2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft814g379dj30xc0irdhw.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft814hdp5sj30xc0irwhn.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/0060lm7Tly1ft814fz1mfj30xc0irdgh.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/0060lm7Tly1ft814g24s3j30xc0irwgr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft815up63mj30xc0irwg2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft814g379dj30xc0irdhw.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ft814hdp5sj30xc0irwhn.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1691,7 +1691,7 @@ pv的打戏原以为是歌剧，居然是真打起来<img src="https://static.sa
 
 全12话 3卷 每卷附未放送EP
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft84k1ug9dj20ua1s9wna.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft84k1ug9dj20ua1s9wna.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -1902,7 +1902,7 @@ pv的打戏原以为是歌剧，居然是真打起来<img src="https://static.sa
 
 
 
-经过了几个世纪的等待，B站又延迟播放，刚刚看完熟肉要发病的时候突然登不S1上就很扎心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不得不说，战吧诚不我欺，各种设定正对G点，除了稍微棒读（还有长颈鹿），其余统统吹爆，特别是B part演出，几原的弟子这水平可以啊，7月又要度日如年了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+经过了几个世纪的等待，B站又延迟播放，刚刚看完熟肉要发病的时候突然登不S1上就很扎心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -2270,7 +2270,7 @@ QQ截图20180713163137.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/13/164359ey6qfoqrrwiyffjn.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180713163137.jpg" w="373" width="373" zoomfile="https://img.saraba1st.com/forum/201807/13/164359ey6qfoqrrwiyffjn.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/164359ey6qfoqrrwiyffjn.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -2299,7 +2299,7 @@ QQ截图20180713163204.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/13/164409nsa6f2a4azhdt24l.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180713163204.jpg" w="119" width="119" zoomfile="https://img.saraba1st.com/forum/201807/13/164409nsa6f2a4azhdt24l.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/164409nsa6f2a4azhdt24l.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -2619,7 +2619,7 @@ QQ截图20180713163204.jpg
 
 几原式就少不了关键字 再生产是什么意思不知道会不会频繁出现。
 
-<img src="https://img.saraba1st.com/forum/201807/13/173548rodtpk5d9tb36le3.jpeg" id="aimg_472195" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/13/173548rodtpk5d9tb36le3.jpeg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/173548rodtpk5d9tb36le3.jpeg" id="aimg_472195" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
 <strong>1AAF3FF2-3EA7-4402-B125-1F6C805CE956.jpeg</strong> (45.68 KB, 下载次数: 2)
@@ -2971,7 +2971,7 @@ QQ截图20180713163204.jpg
 
  本帖最后由 rslika 于 2018-7-13 18:32 编辑 
 
-<img src="https://wx1.sinaimg.cn/mw690/6b1828b2gy1ft8ej7i7maj206k01n3y9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw690/6b1828b2gy1ft8ej7i7maj206k01n3y9.jpg" referrerpolicy="no-referrer">
 
 1 pv中九九组（少女歌剧偶像组合的名字）颜色条速度不同 分别对应为（参考官推应援色）：
 
@@ -3011,7 +3011,7 @@ QQ截图20180713163204.jpg
 
  秒收flag<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
-<img src="https://img.saraba1st.com/forum/201807/13/181847v45r55fplrhamm4f.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/13/181847v45r55fplrhamm4f.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/181847v45r55fplrhamm4f.jpg" referrerpolicy="no-referrer">
 
 
 <strong>TIM图片20180713181533.jpg</strong> (397.55 KB, 下载次数: 1)
@@ -3025,7 +3025,7 @@ QQ截图20180713163204.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/13/181722lytu6mzvxcewre1c.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/13/181722lytu6mzvxcewre1c.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/181722lytu6mzvxcewre1c.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM图片20180713181539.png</strong> (1.51 MB, 下载次数: 0)
@@ -3199,7 +3199,7 @@ QQ截图20180713163204.jpg
 
 刚刚才看，女主在登场到剧终的表现力爆炸，个人心中目前为止的七月最佳<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
-“99期生，爱城华恋”这句话好带感，喜欢上这声音了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，歌也好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+“99期生，爱城华恋”这句话好带感，喜欢上这声音了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
 
@@ -4457,7 +4457,7 @@ staff里面确定没有几原邦彦？那个超硬核变身！！
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/13/223418skyw8fttn33033zk.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="580" zoomfile="https://img.saraba1st.com/forum/201807/13/223418skyw8fttn33033zk.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/223418skyw8fttn33033zk.jpg" referrerpolicy="no-referrer">
 
 
 <strong>62896eec54e736d1ea427be097504fc2d4626909.jpg</strong> (9.78 KB, 下载次数: 1)
@@ -4627,7 +4627,7 @@ staff里面确定没有几原邦彦？那个超硬核变身！！
 
 
 
-官方油管号有1-3话剧中歌试听，都很不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+官方油管号有1-3话剧中歌试听，都很不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 希望之后两话唱歌没长颈鹿在说话
 
@@ -4739,7 +4739,7 @@ staff里面确定没有几原邦彦？那个超硬核变身！！
 居然wwwww
 
 
-<img src="https://img.saraba1st.com/forum/201807/13/232955ucccqvkq9dnt3qn6.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/13/232955ucccqvkq9dnt3qn6.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/13/232955ucccqvkq9dnt3qn6.jpg" referrerpolicy="no-referrer">
 
 
 <strong>Dh_sk8vU8AIW4AC.jpg</strong> (106.17 KB, 下载次数: 2)
@@ -5005,7 +5005,7 @@ cv-1 剧情＋3 这番追了
 
 
 还是像我这样抱着看百合贵乱败犬诞生的 ...</blockquote>
-有几原味就够啦<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">也就是想看看演出 没对什么题材深度抱很大希望 只希望后面作画不要太崩  百合贵乱也是极好的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+有几原味就够啦<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
 
@@ -5597,7 +5597,7 @@ B站有字幕的通常字幕組就比較慢慢來。</blockquote>
 
 
 不知东京塔和这个舞台center position zero有没有关联？都是站在T型图案中心俯视台下。
-<img src="http://wx4.sinaimg.cn/large/006tJ7Zcly1ft8r1r635yj30ma11mgsj.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/006tJ7Zcly1ft8r1r635yj30ma11mgsj.jpg" referrerpolicy="no-referrer">
 
 
 片尾取材协力里出现第一热处理工业株式会社也是有点意思hhhhh
@@ -5806,7 +5806,7 @@ B站有字幕的通常字幕組就比較慢慢來。</blockquote>
 
 
 
-<img src="http://img.ngacn.cc/attachments/mon_201807/13/-9lddQ5-btc3KfT1kSfr-53.png.thumb.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://img.ngacn.cc/attachments/mon_201807/13/-9lddQ5-btc3KfT1kSfr-53.png.thumb.jpg" referrerpolicy="no-referrer">
 
 
 那什么...要入场了
@@ -7155,7 +7155,7 @@ btw，点开之前我还在猜能让死宅都能接受的歌剧第一部会选�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/15/001930txsn6onplnoisycy.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/15/001930txsn6onplnoisycy.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/15/001930txsn6onplnoisycy.jpg" referrerpolicy="no-referrer">
 
 
 <strong>1531584639440.jpg</strong> (337.53 KB, 下载次数: 1)
@@ -8817,7 +8817,7 @@ ed有徽章（纽扣？）碎片重组的镜头，会不会有败者复活战？
 
 
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6tzpzj20xc0i7ad6.jpg" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft56r6tzpzj20xc0i7ad6.jpg" referrerpolicy="no-referrer">
 
 
 三森的武器不像匕首，刃身很厚，反而像是锥刺。
@@ -9764,7 +9764,7 @@ a，b part总有种表里的感觉
 
 A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处镜头的运用也蛮有想法的
 
-<img src="https://img.saraba1st.com/forum/201807/16/023916arn4gndo68eg6hd8.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/16/023916arn4gndo68eg6hd8.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/023916arn4gndo68eg6hd8.png" referrerpolicy="no-referrer">
 
 
 <strong>zp.png</strong> (1.13 MB, 下载次数: 0)
@@ -9778,7 +9778,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/023927nj2rjkpfwp2p1rnr.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/16/023927nj2rjkpfwp2p1rnr.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/023927nj2rjkpfwp2p1rnr.png" referrerpolicy="no-referrer">
 
 
 <strong>light.png</strong> (1.01 MB, 下载次数: 0)
@@ -9792,7 +9792,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/023938t9030q694x3e0xe9.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/16/023938t9030q694x3e0xe9.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/023938t9030q694x3e0xe9.png" referrerpolicy="no-referrer">
 
 
 <strong>4-2.png</strong> (1.61 MB, 下载次数: 0)
@@ -9806,7 +9806,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/023944qccc2rz2rqy42yv0.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/16/023944qccc2rz2rqy42yv0.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/023944qccc2rz2rqy42yv0.png" referrerpolicy="no-referrer">
 
 
 <strong>food.png</strong> (1.47 MB, 下载次数: 0)
@@ -9929,7 +9929,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161301prrylye27t8x877t.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="1.jpg" w="518" width="518" zoomfile="https://img.saraba1st.com/forum/201807/16/161301prrylye27t8x877t.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161301prrylye27t8x877t.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -9958,7 +9958,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161305cuv4rzq33rzxefff.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2.jpg" w="502" width="502" zoomfile="https://img.saraba1st.com/forum/201807/16/161305cuv4rzq33rzxefff.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161305cuv4rzq33rzxefff.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -9987,7 +9987,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161309qsw4x0o0iraemejm.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="3.jpg" w="512" width="512" zoomfile="https://img.saraba1st.com/forum/201807/16/161309qsw4x0o0iraemejm.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161309qsw4x0o0iraemejm.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10016,7 +10016,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161312eb8buz885i15zc54.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="4.jpg" w="474" width="474" zoomfile="https://img.saraba1st.com/forum/201807/16/161312eb8buz885i15zc54.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161312eb8buz885i15zc54.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10045,7 +10045,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161317zahh4tmgthao114z.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="5.jpg" w="430" width="430" zoomfile="https://img.saraba1st.com/forum/201807/16/161317zahh4tmgthao114z.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161317zahh4tmgthao114z.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10074,7 +10074,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161321j6o8k68ychxfxk5f.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="6.jpg" w="522" width="522" zoomfile="https://img.saraba1st.com/forum/201807/16/161321j6o8k68ychxfxk5f.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161321j6o8k68ychxfxk5f.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10103,7 +10103,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161325qkm28d5bpz1yb95j.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="7.jpg" w="466" width="466" zoomfile="https://img.saraba1st.com/forum/201807/16/161325qkm28d5bpz1yb95j.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161325qkm28d5bpz1yb95j.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10158,7 +10158,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161825df5f5526kkpk6209.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="1.jpg" w="550" width="550" zoomfile="https://img.saraba1st.com/forum/201807/16/161825df5f5526kkpk6209.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161825df5f5526kkpk6209.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10187,7 +10187,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161830h50ra69v48o445av.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2.jpg" w="555" width="555" zoomfile="https://img.saraba1st.com/forum/201807/16/161830h50ra69v48o445av.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161830h50ra69v48o445av.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10216,7 +10216,7 @@ A part不说伏笔，仅仅是小光出场之前的不到十分钟，有几处�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/161835o9w6k60zwuqqyy9w.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="3.jpg" w="558" width="558" zoomfile="https://img.saraba1st.com/forum/201807/16/161835o9w6k60zwuqqyy9w.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/161835o9w6k60zwuqqyy9w.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10268,7 +10268,7 @@ QQ截图20180716162029.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/16/162128yjdjmdqt90kzs2d9.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180716162029.jpg" w="249" width="249" zoomfile="https://img.saraba1st.com/forum/201807/16/162128yjdjmdqt90kzs2d9.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/16/162128yjdjmdqt90kzs2d9.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -10880,7 +10880,7 @@ Q11.给审查员（读者）们最後的话
 
 
 露崎 ...</blockquote>
-这女人太渣了啊<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">要被柴刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+这女人太渣了啊<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
 另外看好露崎女士的个人回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
@@ -11157,7 +11157,7 @@ QQ截图20180717001300.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/17/001631uukzfbcffc5z8ubf.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180717001300.jpg" w="408" width="408" zoomfile="https://img.saraba1st.com/forum/201807/17/001631uukzfbcffc5z8ubf.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/001631uukzfbcffc5z8ubf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -11186,7 +11186,7 @@ QQ截图20180717001338.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/17/001639bxcb0ke0mc6h0x4f.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180717001338.jpg" w="166" width="166" zoomfile="https://img.saraba1st.com/forum/201807/17/001639bxcb0ke0mc6h0x4f.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/001639bxcb0ke0mc6h0x4f.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -11215,7 +11215,7 @@ QQ截图20180717001345.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/17/001644fx9q08z10s9195lf.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180717001345.jpg" w="211" width="211" zoomfile="https://img.saraba1st.com/forum/201807/17/001644fx9q08z10s9195lf.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/001644fx9q08z10s9195lf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -11495,7 +11495,7 @@ Q11.審査員（読者）へ最後のアピールを！
 
 生日是5月4日（绿之日），不愧是自带发绿的女人呢
 
-<img src="https://img.saraba1st.com/forum/201807/17/025042cp77co97l0tvez7q.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/17/025042cp77co97l0tvez7q.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/025042cp77co97l0tvez7q.png" referrerpolicy="no-referrer">
 
 
 <strong>Screen Shot 2018-07-17 at 3.44.28.png</strong> (1.89 MB, 下载次数: 0)
@@ -11511,7 +11511,7 @@ Q11.審査員（読者）へ最後のアピールを！
 
 这片开播前就吸引了全世界的扭曲怪，“让我看看你的嫉妒”还真是深入人心<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
-<img src="https://img.saraba1st.com/forum/201807/17/025045gnwoovn9vown15n1.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="756" zoomfile="https://img.saraba1st.com/forum/201807/17/025045gnwoovn9vown15n1.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/025045gnwoovn9vown15n1.png" referrerpolicy="no-referrer">
 
 
 <strong>Screen Shot 2018-07-17 at 3.41.57.png</strong> (234.75 KB, 下载次数: 0)
@@ -11526,7 +11526,7 @@ Q11.審査員（読者）へ最後のアピールを！
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/17/025044pud7j17u8v58sjvb.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="752" zoomfile="https://img.saraba1st.com/forum/201807/17/025044pud7j17u8v58sjvb.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/17/025044pud7j17u8v58sjvb.png" referrerpolicy="no-referrer">
 
 
 <strong>Screen Shot 2018-07-17 at 3.42.57.png</strong> (248.51 KB, 下载次数: 0)
@@ -11754,10 +11754,10 @@ Q11.審査員（読者）へ最後のアピールを！
 
 ひかりを守るため謎のオーディションに飛び入り参加した華恋。だが、何かを知る様子のひかりは華恋を抜けさせようとするが……。一方、自分の敗北を認めることが出来ない純那。明らかになる彼女の執着と情熱。スタァを目指し、星見純那は再び弓を掴む。
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcoy3crjij20lc0c07bp.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftcoy3aw16j20lc0c0wlj.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftcoy388wmj20lc0c0tes.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcoy3c87ej20lc0c0ait.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcoy3crjij20lc0c07bp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftcoy3aw16j20lc0c0wlj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftcoy388wmj20lc0c0tes.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcoy3c87ej20lc0c0ait.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -11796,9 +11796,9 @@ Q11.審査員（読者）へ最後のアピールを！
  本帖最后由 cmnewfan 于 2018-7-18 09:54 编辑 
 
 重新做了这两张图。
-<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw50bgyg20u00gve85.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw50bgyg20u00gve85.gif" referrerpolicy="no-referrer">
 
-<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw4jjaig20u00gvkjo.gif" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw4jjaig20u00gvkjo.gif" referrerpolicy="no-referrer">
 
 
 
@@ -11858,11 +11858,11 @@ Q11.審査員（読者）へ最後のアピールを！
 
 
 舞台开场。
-<img src="http://wx3.sinaimg.cn/large/82f2a336gy1ft9wy237z0g20hs0a0e89.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1ft9wy237z0g20hs0a0e89.gif" referrerpolicy="no-referrer">
 
 
 变身bank
-<img src="http://wx2.sinaimg.cn/large/82f2a336gy1ftaowcf23rg20hs0a07ww.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1ftaowcf23rg20hs0a07ww.gif" referrerpolicy="no-referrer">
 
 
 星くず溢れるステージに
@@ -11876,7 +11876,7 @@ Q11.審査員（読者）へ最後のアピールを！
 99期生、愛城華恋
 
 みんなをスターライトしちゃいます ​​​​ 
-<img src="http://wx2.sinaimg.cn/large/82f2a336gy1ftaqbjhfkpg20hs0a0he5.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1ftaqbjhfkpg20hs0a0he5.gif" referrerpolicy="no-referrer">
 
 
 
@@ -11955,7 +11955,7 @@ Q11.審査員（読者）へ最後のアピールを！
 齊田博之@SG550_SIG
 
 チョコバナナ
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftcwyt4oyvj20m40kxaon.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftcwyt4oyvj20m40kxaon.jpg" referrerpolicy="no-referrer">
 
 
 しろくま@shiroklive
@@ -11965,7 +11965,7 @@ Q11.審査員（読者）へ最後のアピールを！
 たのしみです。
 
 #スタァライト
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcwz4gvqhj20xc0nldyc.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftcwz4gvqhj20xc0nldyc.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -12126,7 +12126,7 @@ Q11.審査員（読者）へ最後のアピールを！
 
  本帖最后由 wuaistage1 于 2018-7-17 21:19 编辑 
 
-这脑洞。。。这些人都是鬼才吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这脑洞。。。这些人都是鬼才吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 https://tieba.baidu.com/p/5799247631
 
@@ -12483,8 +12483,8 @@ bangdream运营的就挺不错的</blockquote>
 
 
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftdwd9wwl4j20m20xcaba.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftdwd9yqfmj20g20oa403.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftdwd9wwl4j20m20xcaba.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftdwd9yqfmj20g20oa403.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -12499,7 +12499,7 @@ bangdream运营的就挺不错的</blockquote>
 
 
 
-<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw50bgyg20u00gve85.gif" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/43685198gy1ftdrw50bgyg20u00gve85.gif" referrerpolicy="no-referrer">
 
 其实我觉得这张图里面华恋闭着眼，有种这是哪我是谁的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
@@ -12649,7 +12649,7 @@ p.s 为什么 爽 片 都是屏蔽词...
 
 
 
-<img src="http://wx1.sinaimg.cn/mw690/0060lm7Tly1fte6p1xs70j30hs0vkwq1.jpg" referrerpolicy="no-referrer">" width="640" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/mw690/0060lm7Tly1fte6p1xs70j30hs0vkwq1.jpg" referrerpolicy="no-referrer">
 
 刚好刷到官推到三万了，这个礼拜大概涨了6k
 
@@ -12753,7 +12753,7 @@ https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1
 
  本帖最后由 xtwx1716 于 2018-7-18 21:10 编辑 
 
-<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ftebjsdstxj30k00zk7ee.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/0060lm7Tly1ftebjsdstxj30k00zk7ee.jpg" referrerpolicy="no-referrer">
 
 这个是什么游戏？推上好多人在刷
 
@@ -12790,7 +12790,7 @@ https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1
 
 
 
-班长还要被打败一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">，光怎么第二话就娇了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+班长还要被打败一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
 
@@ -12879,7 +12879,7 @@ https://v.youku.com/v_show/id_XM ... j.8428770.3416059.1
 
 漫画：〔舞台〕少女歌剧RevueStarlight
 http://www.dm5.com/m571532/
-<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1ftevz61fnjj20sl15twug.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1ftevz61fnjj20sl15twug.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -13242,7 +13242,7 @@ https://tieba.baidu.com/p/5800072060
 
 这次又开始抢是为了维持效果，华恋下场秒杀也是因为本来就有那实力？
 
-<img src="http://wx3.sinaimg.cn/large/734a4869gy1ftf9bcl36wj21ey16g1kz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/734a4869gy1ftf9bcl36wj21ey16g1kz.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -13352,7 +13352,7 @@ https://tieba.baidu.com/p/5800072060
 
 
 https://ws-tcg.com/products/revuestarlight/
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftfdasr0pyj20xc0ir799.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftfdasr0pyj20xc0ir799.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -13485,11 +13485,11 @@ https://ws-tcg.com/products/revuestarlight/
 
 
 8/9（木）発売の最新号「リスアニ！Vol.34」の表紙描きおろしイラストを公開しました！今号の表紙には、『少女☆歌劇 レヴュースタァライト』より愛城華恋、神楽ひかり、露崎まひるの3人が登場♪掲載ラインナップなどの詳細は下記URLより☆くま
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftffbrkyfzj20jj0rs4qp.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftffbrkyfzj20jj0rs4qp.jpg" referrerpolicy="no-referrer">
 
 
 フロゲー
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftffdb7xisj20xc0p0gq5.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftffdb7xisj20xc0p0gq5.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -13745,7 +13745,7 @@ https://ws-tcg.com/products/revuestarlight/
 イカダスタァライト@ikadasu
 
 レヴュースタァライトを応援しています、という絵です。
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftfjy5i0vqj20t90kpn8i.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftfjy5i0vqj20t90kpn8i.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -14526,7 +14526,7 @@ b站的熟肉怎么这么慢</blockquote>
 
 
 
-<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftg93f5gt1j20zk0k040j.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftg93f5gt1j20zk0k040j.jpg" referrerpolicy="no-referrer">
 
 这个镜头是不是暗示眼镜娘被长颈鹿潜规则......
 
@@ -14564,7 +14564,7 @@ b站的熟肉怎么这么慢</blockquote>
  本帖最后由 注册你妹 于 2018-7-20 15:36 编辑 
 
 
-<img src="https://img.saraba1st.com/forum/201807/20/145819olsk109pfxzi5pzi.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="253" zoomfile="https://img.saraba1st.com/forum/201807/20/145819olsk109pfxzi5pzi.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/20/145819olsk109pfxzi5pzi.png" referrerpolicy="no-referrer">
 
 
 <strong>1.png</strong> (94.8 KB, 下载次数: 0)
@@ -14577,7 +14577,7 @@ b站的熟肉怎么这么慢</blockquote>
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/20/145820avjx50vs110isi3t.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="516" zoomfile="https://img.saraba1st.com/forum/201807/20/145820avjx50vs110isi3t.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/20/145820avjx50vs110isi3t.png" referrerpolicy="no-referrer">
 
 
 <strong>2.png</strong> (190.21 KB, 下载次数: 0)
@@ -14590,7 +14590,7 @@ b站的熟肉怎么这么慢</blockquote>
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/20/145821qd3stvicxv2ticr8.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="255" zoomfile="https://img.saraba1st.com/forum/201807/20/145821qd3stvicxv2ticr8.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/20/145821qd3stvicxv2ticr8.png" referrerpolicy="no-referrer">
 
 
 <strong>3.png</strong> (58.67 KB, 下载次数: 0)
@@ -14720,11 +14720,11 @@ https://twitter.com/hujisaw/status/1020003044472188929 雙人車牌
 ————————————————
 
 我上个图吧，抛砖引玉等个大佬对比一下两次变身还有啥不同点。
-<img src="https://i.loli.net/2018/07/20/5b518e98a6aed.jpg" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/07/20/5b518e98a6aed.jpg" referrerpolicy="no-referrer">
 
  这是第一话的
 
-<img src="https://i.loli.net/2018/07/20/5b518e98a6460.jpg" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/07/20/5b518e98a6460.jpg" referrerpolicy="no-referrer">
 
  这是第二话的
 
@@ -14931,8 +14931,8 @@ https://twitter.com/hujisaw/status/1020003044472188929 雙人車牌
 
 
 战斗部分也不太明白，纯那在那里说了一整场战斗 ...</blockquote>
-呵呵，this is 天堂真矢，凌晨还上日推了呢，虽然我不知道这里边什么梗。THIS IS SPARTAN？？<img src="http://wx3.sinaimg.cn/mw690/0060lm7Tly1ftgdz168rsj30jz0ajjth.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/mw690/0060lm7Tly1ftgdwhq9mjj30f305l74f.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+呵呵，this is 天堂真矢，凌晨还上日推了呢，虽然我不知道这里边什么梗。THIS IS SPARTAN？？<img src="http://wx3.sinaimg.cn/mw690/0060lm7Tly1ftgdz168rsj30jz0ajjth.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/mw690/0060lm7Tly1ftgdwhq9mjj30f305l74f.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -15123,7 +15123,7 @@ cv确实很大问题，b part华恋被纯那摁着打了半天，我就憋着一
  本帖最后由 xwr 于 2018-7-20 16:25 编辑 
 
 开打前纯那躺在长颈鹿怀里，联系之前说要申诉，光怎么也不愿意让华恋参加，并对长颈鹿不爽的态度，你们说这到底是不是暗示潜规则。
-<img src="http://wx2.sinaimg.cn/mw690/dcec95dfly1ftgea7thtbj20vu0hxgrf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/dcec95dfly1ftgea7thtbj20vu0hxgrf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -15232,7 +15232,7 @@ cv确实很大问题，b part华恋被纯那摁着打了半天，我就憋着一
 有可能是舞台剧表演真矢表现得确实非常拼命，嘴张得老大和斯巴达很像吧。
 
 
-<img src="https://img.saraba1st.com/forum/201807/20/164031rgeb3zigbti31tub.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="553" zoomfile="https://img.saraba1st.com/forum/201807/20/164031rgeb3zigbti31tub.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/20/164031rgeb3zigbti31tub.png" referrerpolicy="no-referrer">
 
 
 <strong>傲游截图20180720164022.png</strong> (452.51 KB, 下载次数: 0)
@@ -15557,7 +15557,7 @@ CV问题确实影响观感，一般都是越配越好的，结果这第二话棒
 
 Animaru C94 
 https://animaru.jp/shop/prg/comi ... mpaign=tw0720C94pre
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftgk5ec3faj20rw119484.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftgk5ec3faj20rw119484.jpg" referrerpolicy="no-referrer">
 
 
 明天Anitama负责，BW小剧场会有少女歌剧的活动，有两名声优登场，并一起观看动画。不知楼里有谁会去？
@@ -15579,7 +15579,7 @@ https://animaru.jp/shop/prg/comi ... mpaign=tw0720C94pre
 
 明明很好看，不能理解你们
 
-纯纯的战斗方式好真实啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，设置诱饵，引诱，暗算。虽然躲在假人堆里，却向往着星星<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">，努力还失败，可怜又可爱。
+纯纯的战斗方式好真实啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，努力还失败，可怜又可爱。
 
 
 
@@ -16200,7 +16200,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">第二话这个跳水也太厉害了点！果然还是第一集打磨的时间特别长的关系吗？第二集完成度和第一集差出十万八千里了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
 
@@ -16676,7 +16676,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/030651ykrq09x9izn2nncq.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="1.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201807/21/030651ykrq09x9izn2nncq.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/030651ykrq09x9izn2nncq.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -16705,7 +16705,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/030654vgqvs333b5zb39g3.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201807/21/030654vgqvs333b5zb39g3.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/030654vgqvs333b5zb39g3.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -16734,7 +16734,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/030657cvu3vugyulduscva.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="3.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201807/21/030657cvu3vugyulduscva.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/030657cvu3vugyulduscva.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -16763,7 +16763,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/030701xzua8b0f7uo5dokd.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="4.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201807/21/030701xzua8b0f7uo5dokd.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/030701xzua8b0f7uo5dokd.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -16792,7 +16792,7 @@ Apart明显就没钱的样子 作画不稳 背景简陋   Bpart没了第一集
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/030704s9rgj48gm76oma6m.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="5.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201807/21/030704s9rgj48gm76oma6m.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/030704s9rgj48gm76oma6m.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -17655,7 +17655,7 @@ vs“不会只一次就结束只要我们不放弃”
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/21/235229dxbr5i24ybj054z0.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="434" zoomfile="https://img.saraba1st.com/forum/201807/21/235229dxbr5i24ybj054z0.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/21/235229dxbr5i24ybj054z0.png" referrerpolicy="no-referrer">
 
 
 <strong>)@{YJBHJ4VE`4C@Q0SI8W)T.png</strong> (207.31 KB, 下载次数: 1)
@@ -17669,7 +17669,7 @@ vs“不会只一次就结束只要我们不放弃”
 
 
 
-她真美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">要是有去掉staff名单的源就更好了
+她真美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">要是有去掉staff名单的源就更好了
 
 
 
@@ -17757,7 +17757,7 @@ vs“不会只一次就结束只要我们不放弃”
 
 
 
-<img src="http://wx2.sinaimg.cn/large/dcec95dfly1ftid2kuvnkj21e00cdtes.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/dcec95dfly1ftid2kuvnkj21e00cdtes.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -17792,7 +17792,7 @@ vs“不会只一次就结束只要我们不放弃”
 <blockquote>YaoMei 发表于 2018-7-22 09:58
 
 这片是不是几乎没组做？海外看要lag两天好痛苦。</blockquote>
-英文字幕除了HorribleSubs的狗屎字幕，你还可以选择StarlightSubs和ACSS。中文字幕现在只有动漫国茉语星梦。<img src="http://wx4.sinaimg.cn/large/dcec95dfly1ftiltvnez9j21kw0o0n75.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+英文字幕除了HorribleSubs的狗屎字幕，你还可以选择StarlightSubs和ACSS。中文字幕现在只有动漫国茉语星梦。<img src="http://wx4.sinaimg.cn/large/dcec95dfly1ftiltvnez9j21kw0o0n75.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -17850,16 +17850,16 @@ position zero 那里有必要重复吗……
  本帖最后由 xwr 于 2018-7-22 16:05 编辑 
 
 比较在意的一点，StarLight这个戏应该是8人，而且去年也演过一次了，华恋等人也登过场了，午休时华恋说台词都背住了，还希望能再次拿到有名字的角色，从去年的照片服饰来看（克洛花冠，真矢发饰，6个服装完全一样的女神）完全不是现在B part的骠骑兵风格，而且华恋直到乱入之前对“选拔“一点都不知情，说明她去年演StarLight至少不是被”选拔“进去的。OP一开场我们看到8个”骠骑兵“站在舞台上，都是左肩红色斗篷短夹克（光是右肩蓝色斗篷短夹克），而长颈鹿的牌子上又有9个位置，截至选拔第二天打了三场，但最后只翻了一个牌子，天堂真矢。我觉得B part的魔幻选拔与由谁来做StarLight的主演根本无关，它也不是某种隐喻或者表意的主演选拔，StarLight这个学园祭演出根本和”舞台少女“通过选拔争夺“TopStar/TopStar桂冠”一点儿关系都没有，长颈鹿形容“TopStar”为“散发无限光芒，超越时间永远闪耀的『永远的主角』”（听起来好像Simoun的“永远的少女”一样......)，但这个跟StarLight这个学园祭舞台演出有什么关系么，她们下一年度还要继续再演StarLight的啊......
-<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftinb34bg6j20vw0hvn6h.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/mw690/dcec95dfly1ftinb4zd4wj20vu0hwgt9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinb6ppthj20vu0hwqav.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinbderzzj20vj0hlae6.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1ftinbeqyn7j20vf0hhwj9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftinbg75rjj20vu0hy41w.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftinb34bg6j20vw0hvn6h.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/mw690/dcec95dfly1ftinb4zd4wj20vu0hwgt9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinb6ppthj20vu0hwqav.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinbderzzj20vj0hlae6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1ftinbeqyn7j20vf0hhwj9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/mw690/dcec95dfly1ftinbg75rjj20vu0hy41w.jpg" referrerpolicy="no-referrer">
 
 
 PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么都有就是没有用来决定胜败的骠骑兵斗篷短夹克...
-<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinbc1mxrj20vw0hxn40.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/dcec95dfly1ftinbc1mxrj20vw0hxn40.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -18363,7 +18363,7 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 
 
 
-这第一集太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">女主拔剑的演出帅爆。致敬少革，致敬美少年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+这第一集太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 
 
@@ -18430,29 +18430,29 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 ねこだまし@kuubyo
 
 星のダイアローグ、ようやくフルで聴いたんですが…ラスサビの歌詞…1話の煌めき浴びた方みんな聴いて…
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftks7smk5ej20xb0ozdmz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftks7smk5ej20xb0ozdmz.jpg" referrerpolicy="no-referrer">
 
 
 『少女☆歌劇 レヴュースタァライト』第2話 「運命の舞台」
 
 弓矢。一撃一撃は1番軽いかもしれないけれど…1番遠くから“でも”戦える、届く武器なんだよな…
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftks7svgp4j20oz0xbn3m.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftks7svgp4j20oz0xbn3m.jpg" referrerpolicy="no-referrer">
 
 
 それぞれ武器が違うの、大好きなんだけど…描く方は大変そうだ…ひかりちゃん…むずかしい……
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftks7suw9qj20oz0xb0yy.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftks7suw9qj20oz0xb0yy.jpg" referrerpolicy="no-referrer">
 
 
 ーー夢は見るものではなく、魅せるもの…
 
 みせる、の漢字はこっちですかね…真矢さま？3話も楽しみ…真矢クロ2人のレヴューもみたい…
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftks7so43uj20xc0irte0.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftks7so43uj20xc0irte0.jpg" referrerpolicy="no-referrer">
 
 
 諦めないーー私だって舞台少女よ…
 
 私は、私の星を手に入れる…！
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftks7spqaxj20sf0lb7ah.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftks7spqaxj20sf0lb7ah.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -18494,10 +18494,10 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 
 第100回聖翔祭に向けて動きだした２年Ａ組。キリンのオーディションにより舞台少女たちの関係が変化してゆく中、華恋は変わらず無邪気にスタァを目指す。その前に立ちはだかったのはトップスタァを宿命づけられた主席・天堂真矢だった。
 
-<img src="https://i.imgur.com/9zbJ1T8.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.imgur.com/mrscu8d.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.imgur.com/XkeoRne.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.imgur.com/6kOtRU4.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/9zbJ1T8.png" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/mrscu8d.png" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/XkeoRne.png" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/6kOtRU4.png" referrerpolicy="no-referrer">
 
 
 
@@ -18695,7 +18695,7 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 
 
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftkz7w4mglj20o07pr1kx.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftkz7w4mglj20o07pr1kx.jpg" referrerpolicy="no-referrer">
 
 
 才发现店特早就公开了
@@ -18737,7 +18737,7 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 谷歌幾張圖發一下
 
 
-<img src="https://img.saraba1st.com/forum/201807/24/152739hmim0zsull38yuti.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="799" zoomfile="https://img.saraba1st.com/forum/201807/24/152739hmim0zsull38yuti.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/24/152739hmim0zsull38yuti.jpg" referrerpolicy="no-referrer">
 
 
 <strong>9.jpg</strong> (96.71 KB, 下载次数: 1)
@@ -18752,7 +18752,7 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/24/152738ric2wauqewzb7225.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="640" zoomfile="https://img.saraba1st.com/forum/201807/24/152738ric2wauqewzb7225.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/24/152738ric2wauqewzb7225.jpg" referrerpolicy="no-referrer">
 
 
 <strong>8.jpg</strong> (79.99 KB, 下载次数: 1)
@@ -18767,7 +18767,7 @@ PS：装备制造很酷吧，好像是不是少了什么？仔细一看，什么
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/24/152738uz35xvv00hxvhy00.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="640" zoomfile="https://img.saraba1st.com/forum/201807/24/152738uz35xvv00hxvhy00.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/24/152738uz35xvv00hxvhy00.jpg" referrerpolicy="no-referrer">
 
 
 <strong>7.jpg</strong> (210.67 KB, 下载次数: 0)
@@ -19391,7 +19391,7 @@ https://twitter.com/nekopapapa/status/1021699518557872128?s=21</blockquote>
 
 
 
-<img src="http://wx3.sinaimg.cn/large/bcfcde0agy1ftnaklo4vtj20ci0jp106.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/bcfcde0agy1ftnaklo4vtj20ci0jp106.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -19479,7 +19479,7 @@ https://www.bilibili.com/video/av27773000
 
 用百合熊OP剪了一个介于AMV和OP之间的东西。
 
-就当作给喜欢百合熊的人看的吧。<img src="https://static.saraba1st.com/image/smiley/carton2017/119.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/120.png" referrerpolicy="no-referrer">
+就当作给喜欢百合熊的人看的吧。<img src="https://static.saraba1st.com/image/smiley/carton2017/119.png" referrerpolicy="no-referrer">
 
 
 
@@ -20054,7 +20054,7 @@ https://live.bilibili.com/2259413
 <blockquote>暗黑能乐 发表于 2018-7-27 01:13
 
 那纯那是不是像EDG一样，输给外卡要被笑一辈子了</blockquote>
-别这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">…应该反过来想毕竟是输给未来的冠军这波不亏…什么你说原来是积分制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+别这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -20128,7 +20128,7 @@ https://live.bilibili.com/2259413
 
 レヴュー曲収録の劇中歌アルバムVol.1「ラ レヴュー ド マチネ」は8/22(水)発売‼本日ジャケ写も公開となりました🌟さらに劇中歌アルバムVol.1購入時の法人別特典絵柄も公開❣是非チェックして下さい💫  #スタァライト
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftnthuwn0rj20ty0xcu0x.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftnthuwn0rj20ty0xcu0x.jpg" referrerpolicy="no-referrer">
 
 
 「少女☆歌劇 レヴュースタァライト」劇中歌アルバムVol.1 「ラ レヴュー ド マチネ」
@@ -20221,7 +20221,7 @@ Neowing
 
 ※商品仕様、特典内容、デザインは予告なく変更となる場合がございます。
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftntklud2gj20zq0wythf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftntklud2gj20zq0wythf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -20406,7 +20406,7 @@ QQ截图20180727151215.png
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/27/151457ql0hnbl1ebbkycke.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180727151215.png" w="913" width="800" zoomfile="https://img.saraba1st.com/forum/201807/27/151457ql0hnbl1ebbkycke.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/27/151457ql0hnbl1ebbkycke.png" referrerpolicy="no-referrer">
 
 
 
@@ -20562,7 +20562,7 @@ This is 天堂真矢！
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/27/153123lbbefbep4feiz34m.gif" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="歌剧3.gif" w="221" width="221" zoomfile="https://img.saraba1st.com/forum/201807/27/153123lbbefbep4feiz34m.gif" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/27/153123lbbefbep4feiz34m.gif" referrerpolicy="no-referrer">
 
 
 
@@ -20675,8 +20675,8 @@ Maya sama帅爆！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 This is 天堂真矢
-<img src="http://wx2.sinaimg.cn/large/8c175430gy1ftogppy867g20fk08re81.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/8c175430gy1ftogqabeh5g20fk08rx6t.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/8c175430gy1ftogppy867g20fk08re81.gif" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/8c175430gy1ftogqabeh5g20fk08rx6t.gif" referrerpolicy="no-referrer">
 
 
 
@@ -20843,7 +20843,7 @@ ED果然謎のアニメ団
 
 
 
-距离万策尽又近了一集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+距离万策尽又近了一集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 
@@ -21038,7 +21038,7 @@ ED果然謎のアニメ団
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/27/175653lxdje2xmzmyj1j2j.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="69598982d158ccbf5880fbe615d8bc3eb03541b1.jpg" w="345" width="345" zoomfile="https://img.saraba1st.com/forum/201807/27/175653lxdje2xmzmyj1j2j.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/27/175653lxdje2xmzmyj1j2j.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -21075,7 +21075,7 @@ ED果然謎のアニメ団
 
 
 
-<img src="https://i2.hoopchina.com.cn/blogfile/201807/27/BbsImg_276595210666169_1532685712_s_4058458_o_w_523_h_289_52694.gif" referrerpolicy="no-referrer">" width="523" referrerpolicy="no-referrer">
+<img src="https://i2.hoopchina.com.cn/blogfile/201807/27/BbsImg_276595210666169_1532685712_s_4058458_o_w_523_h_289_52694.gif" referrerpolicy="no-referrer">
 
 
 性暗示还行<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
@@ -21270,31 +21270,31 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 寮での生活、とっても楽しそうですね☺️💕
 
 #スタァライト #たにぃすたぁらいと
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fton44xmrqj20gi0xcdio.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fton44xmrqj20gi0xcdio.jpg" referrerpolicy="no-referrer">
 
 
 イカダスタァライト@ikadasu
 
 レヴュースタァライトを応援しています、という絵です。小出卓史から目を離すな
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton44ym19j20oe0h9acd.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton44ym19j20oe0h9acd.jpg" referrerpolicy="no-referrer">
 
 
 めばち@mebachi
 
 「少女☆歌劇レヴュースタァライト」のEDイラストを描かせていただいています、；よろしくお願いします；；
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fton451kelj20go0goq73.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fton451kelj20go0goq73.jpg" referrerpolicy="no-referrer">
 
 
 五十嵐“関東田舎言葉”三七四 コミケ日曜な19a@kaiikarashi
 
 れゔゅー3話スーパーちょびっとお手伝いでやってました。ケツまで持てんで小出さんすいません…（宣伝も遅い）
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fton44xk8zj20xc0p00tz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fton44xk8zj20xc0p00tz.jpg" referrerpolicy="no-referrer">
 
 
 たに@nishitter7
 
 待機だよん #スタァライト
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fton81y87rj20ni0xcwiy.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fton81y87rj20ni0xcwiy.jpg" referrerpolicy="no-referrer">
 
 
 まきの@makino_728
@@ -21304,13 +21304,13 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 副監督の小出卓史さん絵コンテ回です。
 
 宜しくお願いします。 #スタァライト
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fton823fa8j20xb0njqbe.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fton823fa8j20xb0njqbe.jpg" referrerpolicy="no-referrer">
 
 
 轟斗ソラ 💫オーバーチュア1巻発売中@goto_sora
 
 アシスタントの友人がクロちゃん担なんだけど今月号クロちゃん⁉️⁉️は絶対お手伝いする！！って言ってて戻ってきた原稿がこれです💯
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton81szxhj20hb06wmy9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton81szxhj20hb06wmy9.jpg" referrerpolicy="no-referrer">
 
 
 巻々廻@maki2mawaru
@@ -21320,10 +21320,10 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 そして今晩は3話！楽しみですね！
 
  #天堂真矢生誕祭2018　#スタァライト
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton825ogqj20rs0m1k4h.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton825ogqj20rs0m1k4h.jpg" referrerpolicy="no-referrer">
 
 🐼🐼
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton8yuzchj20xc0qitm3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fton8yuzchj20xc0qitm3.jpg" referrerpolicy="no-referrer">
 
 
 綾杉 つばき/舞台版スタァライトSMGO1巻発売中@tubaki86
@@ -21331,16 +21331,16 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 ３話もうすぐー。楽しみ！
 
 #スタァライト　#スタァライトコミックス
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftona0ccj8j20rs0entak.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftona0ccj8j20rs0entak.jpg" referrerpolicy="no-referrer">
 
 https://www.pixiv.net/member_ill ... &amp;illust_id=69875854
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftona1ddp3j21e00cdngu.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftona1ddp3j21e00cdngu.jpg" referrerpolicy="no-referrer">
 
 
 Zero King@xdllvv
 
 本日25:30からレヴュースタァライト3話ですー！作監補と二原しましたー！原画作監160カット以上見たので放送楽しみです！皆様よろしくお願いします！#スタァライト #RevueStarlight
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftona0jlicj20o30xbn4z.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftona0jlicj20o30xbn4z.jpg" referrerpolicy="no-referrer">
 
 
 <strong>moaang</strong>
@@ -21528,7 +21528,7 @@ http://wx3.sinaimg.cn/large/740ca5e5gy1ftonafnnrng20go09ekjy.gif
 你是看不起我露女士吗！
 
 
-其实我感觉每个人可能都有个B班的影武者<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，主角们在台上比式的时候，影武者就在为他们设计舞台。这三集看下来，华恋的影武者估计也是个摸鱼大师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+其实我感觉每个人可能都有个B班的影武者<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 
@@ -21811,7 +21811,7 @@ http://wx3.sinaimg.cn/large/740ca5e5gy1ftonafnnrng20go09ekjy.gif
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这剧中曲太带感了，这嗓音好棒
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这剧中曲太带感了，这嗓音好棒
 
 
 
@@ -22313,7 +22313,7 @@ revue的舞台星光剧场(..)是没有 ...</blockquote><blockquote>二集第三
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/27/233624js3iujrejjbr4bzs.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/27/233624js3iujrejjbr4bzs.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/27/233624js3iujrejjbr4bzs.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM截图20180727232617.png</strong> (1.57 MB, 下载次数: 0)
@@ -22328,7 +22328,7 @@ revue的舞台星光剧场(..)是没有 ...</blockquote><blockquote>二集第三
 
 这次炉温不仅升到1200，剑上的黑色印渍又多了？
 
-<img src="https://img.saraba1st.com/forum/201807/27/233719zr3rtx1566dnt6dr.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/27/233719zr3rtx1566dnt6dr.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/27/233719zr3rtx1566dnt6dr.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM图片20180727233410.png</strong> (397.14 KB, 下载次数: 0)
@@ -22341,7 +22341,7 @@ revue的舞台星光剧场(..)是没有 ...</blockquote><blockquote>二集第三
 
 
 
-<img src="https://imgchr.com/i/PU8RYT" id="aimg_CI4Ll" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)" referrerpolicy="no-referrer">
+<img src="https://imgchr.com/i/PU8RYT" id="aimg_gi4L4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 Revue时候那个西文字体也讲究，应该是Anastasia Font？好莱坞老电影的感觉出来了
 
@@ -22650,7 +22650,7 @@ b站评论区搬来的翻译
 
 
 虽然10月份有个阿钻同款发型的有力竞争候补</blockquote>
-十个副会长加起来都没这么惨好吗，这剧可是官方和观众一起扭曲 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">年度挺王，当定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+十个副会长加起来都没这么惨好吗，这剧可是官方和观众一起扭曲 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
 
@@ -22831,9 +22831,9 @@ banana已经被铺垫两集了，目前看来就是很开朗的好孩子。现�
 
 
 
-<img src="https://i.loli.net/2018/07/28/5b5b5d602de6b.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/07/28/5b5b5d602de6b.jpg" referrerpolicy="no-referrer">
 上课那块闹钟女士那坏掉的表情太魔性了，忍不住多看了几次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/07/28/5b5b5d6f7efc9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/07/28/5b5b5d6f7efc9.jpg" referrerpolicy="no-referrer">
 另外黑板上这个授课内容说不定和剧情有什么联系，备考
 
 —— 来自 HUAWEI BKL-AL20, Android 8.0.0上的 S1Next-鹅版 v2.0.2-play
@@ -22936,7 +22936,7 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 
  本帖最后由 moondigi 于 2018-7-28 03:08 编辑 
 
-话说这话天堂打起来也太狠了不怕出人命吗？第一话的时候纯那射光都不会对要害射只是为了脱衣，天堂这直接往华恋头上砍啊是角度问题吗，真将扣子砍下来的话华恋这脖子也得被砍了吧<img src="http://wx3.sinaimg.cn/large/734a4869gy1ftp0hunmmvg20hs0a0b2c.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+话说这话天堂打起来也太狠了不怕出人命吗？第一话的时候纯那射光都不会对要害射只是为了脱衣，天堂这直接往华恋头上砍啊是角度问题吗，真将扣子砍下来的话华恋这脖子也得被砍了吧<img src="http://wx3.sinaimg.cn/large/734a4869gy1ftp0hunmmvg20hs0a0b2c.gif" referrerpolicy="no-referrer">
 
 
 
@@ -23076,7 +23076,7 @@ maya唱歌可太好听了吧，跟前两话相比简直就是nextlevel的气势
 
 
 
-<img src="https://wx2.sinaimg.cn/large/0062qSoKgy1ftong0wdkfj30om0lk42j.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx2.sinaimg.cn/large/0062qSoKgy1ftong0wdkfj30om0lk42j.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -23257,7 +23257,7 @@ This is 天鹅真矢
 【 #スタァライト 物販催事開催決定🌟】
 
 9/7(金)〜17(月)の期間中、渋谷マルイ8Fにて｢スタァライトストア in 渋谷マルイ｣が開催決定❣️描き下ろしイラストを使用したグッズも多数販売予定です
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftpeelhn5qj20nk0xcu0x.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftpeelhn5qj20nk0xcu0x.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -23368,10 +23368,10 @@ maya sama no mercy！<img src="https://static.saraba1st.com/image/smiley/face201
 화솔@pinuett
 
 🤕
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftpgfcfywxj20w80ms76y.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpgfceppmj20w80mswgt.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpgfcggb6j20xc0k4got.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpgfch2v3j20w80msgpi.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftpgfcfywxj20w80ms76y.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpgfceppmj20w80mswgt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpgfcggb6j20xc0k4got.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpgfch2v3j20w80msgpi.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -23395,10 +23395,10 @@ maya sama no mercy！<img src="https://static.saraba1st.com/image/smiley/face201
 
 This is 天堂真矢 #スタァライト
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpglnfzcfj20xc0najy2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpglnerulj20xc0na0yb.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftpglncqmdj20xc0nan13.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpglnhb6zj20xc0natdo.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftpglnfzcfj20xc0najy2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpglnerulj20xc0na0yb.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftpglncqmdj20xc0nan13.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpglnhb6zj20xc0natdo.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -23429,7 +23429,7 @@ This is 天堂真矢 #スタァライト
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">怎么办，ED中毒了，现在有完整版吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">怎么办，ED中毒了，现在有完整版吗
 
 
 
@@ -23585,7 +23585,7 @@ This is 天堂真矢 #スタァライト
  本帖最后由 zx2kks 于 2018-7-28 17:07 编辑 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/154720lffhdboqbahazahj.gif" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="560" zoomfile="https://img.saraba1st.com/forum/201807/28/154720lffhdboqbahazahj.gif" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/154720lffhdboqbahazahj.gif" referrerpolicy="no-referrer">
 
 
 <strong>ezgif-3-206190f782.gif</strong> (1.2 MB, 下载次数: 3)
@@ -23699,7 +23699,7 @@ maya爽到，听了好几遍this is 天堂maya
 
 
 
-迷宫组太对味了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+迷宫组太对味了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
 
@@ -23893,7 +23893,7 @@ maya爽到，听了好几遍this is 天堂maya
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/202411tt1ttngu1f1nc2fg.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201807/28/202411tt1ttngu1f1nc2fg.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/202411tt1ttngu1f1nc2fg.png" referrerpolicy="no-referrer">
 
 
 <strong>1532765369428.png</strong> (773.26 KB, 下载次数: 0)
@@ -24134,7 +24134,7 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/231511biggzhh5a8hch5d8.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="1.jpg" w="261" width="261" zoomfile="https://img.saraba1st.com/forum/201807/28/231511biggzhh5a8hch5d8.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/231511biggzhh5a8hch5d8.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24163,7 +24163,7 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/231516s0zrqmx0nownv03w.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2.jpg" w="197" width="197" zoomfile="https://img.saraba1st.com/forum/201807/28/231516s0zrqmx0nownv03w.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/231516s0zrqmx0nownv03w.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24192,7 +24192,7 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/231519wghx96xvwa22wa39.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="3.jpg" w="183" width="183" zoomfile="https://img.saraba1st.com/forum/201807/28/231519wghx96xvwa22wa39.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/231519wghx96xvwa22wa39.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24221,7 +24221,7 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/231522yop3ngnkpq3bhzbd.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="4.jpg" w="155" width="155" zoomfile="https://img.saraba1st.com/forum/201807/28/231522yop3ngnkpq3bhzbd.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/231522yop3ngnkpq3bhzbd.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24250,7 +24250,7 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/28/231526vdgq394j3tgr8d4u.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="5.jpg" w="184" width="184" zoomfile="https://img.saraba1st.com/forum/201807/28/231526vdgq394j3tgr8d4u.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/28/231526vdgq394j3tgr8d4u.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24288,15 +24288,15 @@ banana性格很好，很喜欢这种温和开朗、善解人意的孩子，双�
 
 
 This is 天堂真矢已成梗
-<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvrakcbpj20v70hh1ek.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx3.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9lsgsj20v80hi4dd.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx2.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9hu3mj20v80hhgxn.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvradv2gj20v80hjkb4.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx3.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9svdtj20v70hjwv8.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx1.sinaimg.cn/mw1024/8165d3c2gy1ftpvrbdcttj20v90hh7s2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx1.sinaimg.cn/mw1024/8165d3c2gy1ftpvra5vwdj20v80hh7lv.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx2.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9u3dnj20va0hh4j2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9lmx0j20vc0hjqg9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvrakcbpj20v70hh1ek.jpg" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9lsgsj20v80hi4dd.jpg" referrerpolicy="no-referrer">
+<img src="https://wx2.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9hu3mj20v80hhgxn.jpg" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvradv2gj20v80hjkb4.jpg" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9svdtj20v70hjwv8.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw1024/8165d3c2gy1ftpvrbdcttj20v90hh7s2.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw1024/8165d3c2gy1ftpvra5vwdj20v80hh7lv.jpg" referrerpolicy="no-referrer">
+<img src="https://wx2.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9u3dnj20va0hh4j2.jpg" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/mw1024/8165d3c2gy1ftpvr9lmx0j20vc0hjqg9.jpg" referrerpolicy="no-referrer">
 
 
 还有Is that 天堂真矢 没截
@@ -24576,8 +24576,8 @@ https://bbs.saraba1st.com/2b/for ... ead&amp;tid=1707711
 
 
 
-<img src="http://wx4.sinaimg.cn/large/82f2a336gy1ftqtp3q787j20zk0k00vr.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/82f2a336gy1ftqtp2u2tnj20zk0k0whl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/82f2a336gy1ftqtp3q787j20zk0k00vr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1ftqtp2u2tnj20zk0k0whl.jpg" referrerpolicy="no-referrer">
 
 
 不是靠堆砌元素和老桥段，而是靠演出体现出首席女王的高高在上气势，先吹一波<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -24633,9 +24633,9 @@ This is 天堂真矢已成梗</blockquote>
 
 
 This is 天堂真矢 特設コーナー
-<img src="http://wx2.sinaimg.cn/large/8165d3c2gy1ftqqc07unaj21kw23ukjl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/8165d3c2gy1ftqqc0tx13j21kw23vx6p.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/8165d3c2gy1ftqqc079muj21kw23vhdt.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/8165d3c2gy1ftqqc07unaj21kw23ukjl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/8165d3c2gy1ftqqc0tx13j21kw23vx6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/8165d3c2gy1ftqqc079muj21kw23vhdt.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -24721,7 +24721,7 @@ This is 天堂妈呀！<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 
-<img src="https://i.imgur.com/4ukTrE3.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/4ukTrE3.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -25094,7 +25094,7 @@ LS某个自命不凡指点江山的，这部不是偶像片好吗。
 
 
 
-<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fts89p98puj216y0kre81.jpg" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fts89p98puj216y0kre81.jpg" referrerpolicy="no-referrer">
 
 
 可惜不是百褶裙。 ​​​​
@@ -25419,7 +25419,7 @@ live已经开过了，就今年。另外我什么时候说过偶像就不能是�
 
 https://revuestarlight.com/news/416/
 
-<img src="https://img.saraba1st.com/forum/201807/31/021812hoffzs6o6o2gvjff.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="500" zoomfile="https://img.saraba1st.com/forum/201807/31/021812hoffzs6o6o2gvjff.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/31/021812hoffzs6o6o2gvjff.jpg" referrerpolicy="no-referrer">
 
 
 <strong>a4487eb1**206772885bb6f6206830c.jpg</strong> (65.4 KB, 下载次数: 0)
@@ -25536,7 +25536,7 @@ https://revuestarlight.com/ticket/
  本帖最后由 Theory_茶叶 于 2018-7-31 09:56 编辑 
 
 
-<img src="https://img.saraba1st.com/forum/201807/31/093745amt6zob9sqoq9qbv.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="500" zoomfile="https://img.saraba1st.com/forum/201807/31/093745amt6zob9sqoq9qbv.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/31/093745amt6zob9sqoq9qbv.jpg" referrerpolicy="no-referrer">
 
 
 <strong>QQ图片20180731093704.jpg</strong> (41.12 KB, 下载次数: 0)
@@ -25549,7 +25549,7 @@ https://revuestarlight.com/ticket/
 
 
 
-<img src="https://img.saraba1st.com/forum/201807/31/093754w5r3wz2gsv7500se.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="520" zoomfile="https://img.saraba1st.com/forum/201807/31/093754w5r3wz2gsv7500se.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201807/31/093754w5r3wz2gsv7500se.jpg" referrerpolicy="no-referrer">
 
 
 <strong>QQ图片20180731093715.jpg</strong> (45.53 KB, 下载次数: 0)
@@ -25685,7 +25685,7 @@ http://wx3.sinaimg.cn/large/740ca5e5gy1ftsu7ws2wjg20f00gyx75.gif
 
 
 
-<img src="https://wx3.sinaimg.cn/mw690/740ca5e5gy1ftsu7ws2wjg20f00gyx75.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/mw690/740ca5e5gy1ftsu7ws2wjg20f00gyx75.gif" referrerpolicy="no-referrer">
 
 
 
@@ -25742,7 +25742,7 @@ http://wx3.sinaimg.cn/large/740ca5e5gy1ftsu7ws2wjg20f00gyx75. ...</blockquote>
  本帖最后由 xwr 于 2018-7-31 11:56 编辑 
 
 为什么天堂真矢的舞台上有天鹅？因为她的剑叫Odette the Mavericks，“特立独行的奥杰塔”，对，就是天鹅湖的白天鹅奥杰塔.......克洛的剑étincelle de fierté是"骄傲的火花"
-<img src="http://wx4.sinaimg.cn/large/dcec95dfly1ftsw3xyr9qj20xc0p0dk1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/dcec95dfly1ftsw3xyr9qj20xc0p0dk1.jpg" referrerpolicy="no-referrer">
 
 4chan上发的全员武器名称。
 
@@ -26075,10 +26075,10 @@ Full List of Revue Starlight weapon names
 
 華恋の軽率さに憤慨したひかりが星光館を飛び出してしまった。ひかりを探して東京の街をさまよう華恋。スタァを目指す真矢の壮烈なる覚悟と、自分自身の甘さ。自分は何故スタァを目指そうとしたのか。原点に立ち戻った華恋はひかりとの約束の場所に向かう。
 
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftt8sos3lzj20lc0c047s.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftt8soxdalj20lc0c04e6.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftt8sovhgsj20lc0c012w.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftt8sotgwmj20lc0c0qct.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftt8sos3lzj20lc0c047s.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftt8soxdalj20lc0c04e6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftt8sovhgsj20lc0c012w.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftt8sotgwmj20lc0c0qct.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26337,8 +26337,8 @@ oh, fly me to the star</blockquote>
 【渋谷でも #スタァライト🌟】
 
 本日より渋谷MODIの大型ビジョンにスタァライトが登場❣信号待ちの際にはぜひご覧ください👀待機の際は熱中症に十分ご注意を💦
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftu07bhdgxj20xc0p0wl1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftu07bs8vrj20xc0p0agr.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftu07bhdgxj20xc0p0wl1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftu07bs8vrj20xc0p0agr.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26547,9 +26547,9 @@ https://www.youtube.com/watch?v=2Z-nxmwFYwI ...</blockquote>
 
 小时候在剧场双手相握，于第一话回忆反过来了。第一话是Karen把手翻过来迎上去握住hikari, 第四话预告是hikari手反过来握住karen所以说，作画资源紧张的情况下为啥要做两个版本？
 
-<img src="https://i.loli.net/2018/08/01/5b61976b3a8cd.png" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/01/5b61976b3a8cd.png" referrerpolicy="no-referrer">
 
-<img src="https://i.loli.net/2018/08/01/5b61976b3c724.png" referrerpolicy="no-referrer">" style="cursor:pointer" width="800" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/01/5b61976b3c724.png" referrerpolicy="no-referrer">
 
 
 
@@ -26589,7 +26589,7 @@ https://www.youtube.com/watch?v=2Z-nxmwFYwI ...</blockquote>
 本日8/1は西條クロディーヌのバースデー🎂
 
 クロちゃんおめでとうございます💫Oui❣
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftufbim3ssj20dw07tq7d.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftufbim3ssj20dw07tq7d.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26663,7 +26663,7 @@ https://www.youtube.com/watch?v=2Z-nxmwFYwI ...</blockquote>
 
 今のところクロちゃんにスタァライトされてます
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftukp6u3r7j20c00m8n2y.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftukp6u3r7j20c00m8n2y.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26748,7 +26748,7 @@ https://www.youtube.com/watch?v=2Z-nxmwFYwI ...</blockquote>
 
 みんな大好きばななママはどう戦うのでしょう…まだレヴュー服での表情みれてないよね…？
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftv4n9qmiej20sg0sghdt.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftv4n9qmiej20sg0sghdt.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26952,7 +26952,7 @@ QQ截图20180802203127.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/02/203329lfm0nzfodwcg1ooo.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180802203127.jpg" w="528" width="528" zoomfile="https://img.saraba1st.com/forum/201808/02/203329lfm0nzfodwcg1ooo.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/02/203329lfm0nzfodwcg1ooo.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -27610,7 +27610,7 @@ ED合唱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png"
 
 
 レヴュー曲収録アルバム「ラ レヴュー ド マチネ」は8/22(水)、 「ラ レヴュー ド ソワレ」は10/3(水)発売❣️また対象店舗で10/17（水）発売のサウンドトラックと3作連動購入された方に1stスタァライブ”Starry Sky” ライブ映像BDをプレゼント💫ライブ映像BDも鋭意制作中✨
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftvusn4tigj20go0m8jt1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftvusn4tigj20go0m8jt1.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -27738,7 +27738,7 @@ QQ截图20180803013717.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/013942ywz1l36p53gizgje.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180803013717.jpg" w="548" width="548" zoomfile="https://img.saraba1st.com/forum/201808/03/013942ywz1l36p53gizgje.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/013942ywz1l36p53gizgje.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -27880,7 +27880,7 @@ QQ截图20180803013717.jpg
 
 
 
-我感觉战吧老哥都承受不住官方的扭曲之力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。用情太过了了啊，绿女士<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+我感觉战吧老哥都承受不住官方的扭曲之力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -27942,7 +27942,7 @@ QQ截图20180803013717.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/104539f61h0g011s01yn16.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="6af9df8065380cd787d9ce28ad44ad345b8281b3.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201808/03/104539f61h0g011s01yn16.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/104539f61h0g011s01yn16.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -27971,7 +27971,7 @@ QQ截图20180803013717.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/104606oe7dvjzcc3cojvxu.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="0eb89294a4c27d1eac57540117d5ad6edcc4380d.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201808/03/104606oe7dvjzcc3cojvxu.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/104606oe7dvjzcc3cojvxu.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -28000,7 +28000,7 @@ a65e981001e939010773e4fb77ec54e737d1960d.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/105441i2fmm1fus7p12dc7.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="a65e981001e939010773e4fb77ec54e737d1960d.jpg" w="580" width="580" zoomfile="https://img.saraba1st.com/forum/201808/03/105441i2fmm1fus7p12dc7.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/105441i2fmm1fus7p12dc7.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -28481,7 +28481,7 @@ B站：万策尽きた
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/164913ddaa0ppua6d6qd1d.gif" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="761" zoomfile="https://img.saraba1st.com/forum/201808/03/164913ddaa0ppua6d6qd1d.gif" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/164913ddaa0ppua6d6qd1d.gif" referrerpolicy="no-referrer">
 
 
 <strong>GIF.gif</strong> (1.55 MB, 下载次数: 5)
@@ -28511,7 +28511,7 @@ B站：万策尽きた
 
 
 
-迷宫组真的好甜啊……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+迷宫组真的好甜啊……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
 
@@ -28674,7 +28674,7 @@ pablo的美术赞。BGM赞。
 整整一集我都是这个表情看完的，逸国弹幕太缺德了，而且也不刷屏，近几年体验最好的弹幕片了。
 
 话说 ...</blockquote>
-因为这片逸站弹幕 s1这楼 战吧都是一批人<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">  现在播放量也就六十多万 还不如收费的邪神酱四分之一<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
+因为这片逸站弹幕 s1这楼 战吧都是一批人<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
 
@@ -28941,7 +28941,7 @@ B站现在是搞笑片的天下。不过没有太多人捣乱，弹幕质量反�
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/03/202452mkavkxaiych1hvcp.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="198" zoomfile="https://img.saraba1st.com/forum/201808/03/202452mkavkxaiych1hvcp.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/03/202452mkavkxaiych1hvcp.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM截图20180803202439.png</strong> (160.36 KB, 下载次数: 5)
@@ -29334,7 +29334,7 @@ bananice<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" re
 看着华恋对闹钟确实太过分了啊，各种刻意无视，不知道是有什么用意还是制作组故意缺德。
 
 老实说华恋跟光这 ...</blockquote>
-给后面嫉妒的revue憋大呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而估计露崎女士上了场也打不过主角二人组，这么想想更惨了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+给后面嫉妒的revue憋大呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI BKL-AL20, Android 8.0.0上的 S1Next-鹅版 v2.0.2-play
 
@@ -29453,7 +29453,7 @@ bananice<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" re
 
 <blockquote>棒读 发表于 2018-8-3 21:48
 关键是这片从第一集开始就不断地虐露女士，这个梗玩到啥时候才是个头，而且明明露女士什么错都没有，不如 ...</blockquote>
-就看制作方是想缺德到底还是留点面子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你说的也对，虐成这样如果就单单安排一场revue太不划算了，如果到时候露崎女士有可能会做出点足以影响游戏规则的大事来就合理多了，但谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+就看制作方是想缺德到底还是留点面子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI BKL-AL20, Android 8.0.0上的 S1Next-鹅版 v2.0.2-play
 
@@ -30003,7 +30003,7 @@ banana这种本来就喜欢照顾人的性格和华恋要好就算了，班长�
 
 
 
-本来是一集挺浪漫的吃糖回但是因为华恋对闹钟女士的过于冷处理喜欢不起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，求求制作组了给闹钟一个痛快吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+本来是一集挺浪漫的吃糖回但是因为华恋对闹钟女士的过于冷处理喜欢不起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 
@@ -30064,7 +30064,7 @@ Q.E.D
 
 
 
-看过这么多百合败犬，被完全无视连话都不搭的还是第一次见，如果不是樋口达人脚本水平的话，那就真是官方有病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是希望适合而止，别扭过了把两个角色都毁了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看过这么多百合败犬，被完全无视连话都不搭的还是第一次见，如果不是樋口达人脚本水平的话，那就真是官方有病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -30079,7 +30079,7 @@ Q.E.D
 
 
 
-<img src="https://i.loli.net/2018/08/04/5b648d5a2c3cb.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/04/5b648d5a2c3cb.jpg" referrerpolicy="no-referrer">
 
 
 在4chan看到,未经证实,下一集终于是露崎真昼主场,
@@ -30478,7 +30478,7 @@ Q.E.D
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/123616o5vu2vn2yy9vtxxu.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="[FlySubs]Shoujo Kageki Revue Starlight - 04.mp4_20180804_143018.988.png" w="1280" width="800" zoomfile="https://img.saraba1st.com/forum/201808/04/123616o5vu2vn2yy9vtxxu.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/123616o5vu2vn2yy9vtxxu.png" referrerpolicy="no-referrer">
 
 
 
@@ -30661,7 +30661,7 @@ QQ截图20180804160938.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/161143g7667qmmqvh0qt66.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180804160938.jpg" w="558" width="558" zoomfile="https://img.saraba1st.com/forum/201808/04/161143g7667qmmqvh0qt66.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/161143g7667qmmqvh0qt66.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -30690,7 +30690,7 @@ QQ截图20180804160925.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/161151w8nrdelhq8dhknd8.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180804160925.jpg" w="283" width="283" zoomfile="https://img.saraba1st.com/forum/201808/04/161151w8nrdelhq8dhknd8.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/161151w8nrdelhq8dhknd8.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -30719,7 +30719,7 @@ QQ截图20180804160900.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/161156u4zqs4dti91sd52z.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180804160900.jpg" w="274" width="274" zoomfile="https://img.saraba1st.com/forum/201808/04/161156u4zqs4dti91sd52z.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/161156u4zqs4dti91sd52z.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -30748,7 +30748,7 @@ QQ截图20180804161530.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/161557hviiml7gu2v0ojbm.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180804161530.jpg" w="698" width="698" zoomfile="https://img.saraba1st.com/forum/201808/04/161557hviiml7gu2v0ojbm.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/161557hviiml7gu2v0ojbm.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -30843,7 +30843,7 @@ QQ截图20180804161530.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/174657wpiifddidizjdkij.jpeg" id="aimg_478380" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" width="750" zoomfile="https://img.saraba1st.com/forum/201808/04/174657wpiifddidizjdkij.jpeg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/174657wpiifddidizjdkij.jpeg" id="aimg_478380" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
 <strong>07B86916-43AC-4EAE-A5F3-BB3EB9D1EAF1.jpeg</strong> (35.21 KB, 下载次数: 2)
@@ -30856,7 +30856,7 @@ QQ截图20180804161530.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/04/174732czmk19pkkp155h58.jpeg" id="aimg_478382" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" width="750" zoomfile="https://img.saraba1st.com/forum/201808/04/174732czmk19pkkp155h58.jpeg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/04/174732czmk19pkkp155h58.jpeg" id="aimg_478382" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
 <strong>036AB19B-EFD5-4924-B2C4-15737655862A.jpeg</strong> (131.89 KB, 下载次数: 0)
@@ -30883,7 +30883,7 @@ QQ截图20180804161530.jpg
 
 
 
-<img src="https://wx1.sinaimg.cn/large/006QagYely1ftxxogs9efj3068068jrb.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/large/006QagYely1ftxxogs9efj3068068jrb.jpg" referrerpolicy="no-referrer">
 
 
 Line上有这个表情了，十分好用
@@ -30902,7 +30902,7 @@ Line上有这个表情了，十分好用
 
 
 
-想看天堂MAYA雷普克洛<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+想看天堂MAYA雷普克洛<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
 
 
@@ -30961,7 +30961,7 @@ Line上有这个表情了，十分好用
 
 赢了 赢了 
 
-<img src="https://wx4.sinaimg.cn/mw1024/41628a93gy1fty0s1t4coj20r80jbqnw.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/mw1024/41628a93gy1fty0s1t4coj20r80jbqnw.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -31028,7 +31028,7 @@ Line上有这个表情了，十分好用
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">急需要想南极第5话闺蜜分手神回才能拯救露女士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -31732,7 +31732,7 @@ LOSER CP绝赞</blockquote>
 
 
 
-<img src="http://wx1.sinaimg.cn/large/8c175430gy1ftwmcmd1owg205h05twv5.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/8c175430gy1ftwmcmd1owg205h05twv5.gif" referrerpolicy="no-referrer">
 
 就怕露崎打完嫉妒战后没戏份，看着露崎被欺负很爽很兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
@@ -31955,7 +31955,7 @@ fly me to the star真好听啊真好听，每天不听几遍难受
 
 
 
-<img src="https://wx1.sinaimg.cn/mw690/8519be40gy1ftzajnvbynj21h40opah2.jpg" referrerpolicy="no-referrer">" width="690" referrerpolicy="no-referrer">宿舍现实位置是个完全不一样的建筑
+<img src="https://wx1.sinaimg.cn/mw690/8519be40gy1ftzajnvbynj21h40opah2.jpg" referrerpolicy="no-referrer">宿舍现实位置是个完全不一样的建筑
 
 
 
@@ -32068,7 +32068,7 @@ fly me to the star真好听啊真好听，每天不听几遍难受
 
 
 
-舞台剧看了60多分钟，实在看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所有角色的情绪和态度怎么都转折这么大，看着都不尬吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且露崎这段太作呕了吧
+舞台剧看了60多分钟，实在看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且露崎这段太作呕了吧
 
 
 
@@ -32249,7 +32249,7 @@ fly me to the star真好听啊真好听，每天不听几遍难受
 
 大場ななちゃん。
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu0ypo7xgcj20u00u0n0i.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu0ypo7xgcj20u00u0n0i.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -32325,10 +32325,10 @@ bananice！
 #大場なな
 
 #ばなナイス
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fu185uioklj20sg0lcdid.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu185uj038j20la0sgq4h.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu185uk1jsj20sg0le0v2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu185uko8bj20ku0rswhl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fu185uioklj20sg0lcdid.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu185uj038j20la0sgq4h.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu185uk1jsj20sg0le0v2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu185uko8bj20ku0rswhl.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -32466,10 +32466,10 @@ bananice！
 
 ひかりとの約束を再確認し、生まれ変わったようにレッスンに励む華恋。クラスメイトはその変容に驚くがルームメイトの露崎まひるはそれを受け入れられない。変わりゆく華恋は私の大好きな華恋ちゃんじゃない。暴走するまひるの感情がレヴューの幕を開く。
 
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3jbidj20lc0c0wlh.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu1je3xpvdj20lc0c0amz.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3lumoj20lc0c0ail.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3ikypj20lc0c0qad.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3jbidj20lc0c0wlh.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu1je3xpvdj20lc0c0amz.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3lumoj20lc0c0ail.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu1je3ikypj20lc0c0qad.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -32635,7 +32635,7 @@ QQ截图20180808000743.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/08/001113kbt01btvse7s7040.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180808000743.jpg" w="552" width="552" zoomfile="https://img.saraba1st.com/forum/201808/08/001113kbt01btvse7s7040.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/08/001113kbt01btvse7s7040.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -32756,7 +32756,7 @@ QQ截图20180808000743.jpg
 
 
 
-<img src="https://i.loli.net/2018/08/08/5b6a7309d00a9.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/08/5b6a7309d00a9.jpg" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 S1Next-鹅版 v2.0.2
 
@@ -33019,7 +33019,7 @@ QQ截图20180808194923.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/08/195135tvxsf4fw8u88rws8.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180808194923.jpg" w="670" width="670" zoomfile="https://img.saraba1st.com/forum/201808/08/195135tvxsf4fw8u88rws8.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/08/195135tvxsf4fw8u88rws8.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33089,7 +33089,7 @@ QQ截图20180808194923.jpg
 
 不会没有的，官方戏都这么足，这话肯定不是妒嫉战了
 
-妒嫉战是对光的时候，肯定是后面还要爆发一波，要对官方有信心！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+妒嫉战是对光的时候，肯定是后面还要爆发一波，要对官方有信心！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
 
@@ -33156,7 +33156,7 @@ QQ截图20180808194923.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/08/222731os4dsrd05omtde20.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="720" zoomfile="https://img.saraba1st.com/forum/201808/08/222731os4dsrd05omtde20.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/08/222731os4dsrd05omtde20.jpg" referrerpolicy="no-referrer">
 
 
 <strong>QQ图片20180801205232.jpg</strong> (34.57 KB, 下载次数: 0)
@@ -33209,7 +33209,7 @@ QQ截图20180808194923.jpg
 
 华恋酱哟，审判的日子到了 ...</blockquote>
 
-<img src="https://img.saraba1st.com/forum/201808/08/223803bpbpfryxxzyfqwri.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="768" zoomfile="https://img.saraba1st.com/forum/201808/08/223803bpbpfryxxzyfqwri.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/08/223803bpbpfryxxzyfqwri.jpg" referrerpolicy="no-referrer">
 
 
 <strong>740ca5e5gy1fu1je3lumoj20lc0c0ail.jpg</strong> (159.61 KB, 下载次数: 0)
@@ -33395,7 +33395,7 @@ QQ截图20180808194923.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/09/210639j7cyi3s7sikn29f9.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2db1bac379310a551759b739bb4543a983261001.jpg" w="1242" width="800" zoomfile="https://img.saraba1st.com/forum/201808/09/210639j7cyi3s7sikn29f9.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/09/210639j7cyi3s7sikn29f9.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33454,7 +33454,7 @@ QQ截图20180809201019.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/09/201319bngorerztnnte00n.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180809201019.jpg" w="473" width="473" zoomfile="https://img.saraba1st.com/forum/201808/09/201319bngorerztnnte00n.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/09/201319bngorerztnnte00n.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33483,7 +33483,7 @@ QQ截图20180809201344.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/09/201432sro7mb76rhmp46bd.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180809201344.jpg" w="551" width="551" zoomfile="https://img.saraba1st.com/forum/201808/09/201432sro7mb76rhmp46bd.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/09/201432sro7mb76rhmp46bd.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33512,7 +33512,7 @@ QQ截图20180809201354.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/09/201440rs7afrou5i8aloan.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180809201354.jpg" w="556" width="556" zoomfile="https://img.saraba1st.com/forum/201808/09/201440rs7afrou5i8aloan.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/09/201440rs7afrou5i8aloan.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33541,7 +33541,7 @@ QQ截图20180809201407.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/09/201447lfxslells9se0x9s.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180809201407.jpg" w="550" width="550" zoomfile="https://img.saraba1st.com/forum/201808/09/201447lfxslells9se0x9s.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/09/201447lfxslells9se0x9s.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -33698,7 +33698,7 @@ QQ截图20180809201407.jpg
 
 
 
-乡下学霸进城<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">，以为吊了金龟婿没想到不敌海归幼驯染<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+乡下学霸进城<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
 
@@ -34280,7 +34280,7 @@ This is居然还真是官方梗
 说实话露女士想赢早就能赢了了吧，主要是心赢不回来
 
 在我看来等于主动放弃 ...</blockquote>
-和纯那一样了，演出偏差了只能下台了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。看来主题发起者如果不能像MAYA那样贯彻的话反而会一泻千里啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+和纯那一样了，演出偏差了只能下台了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 
@@ -34312,7 +34312,7 @@ This is居然还真是官方梗
 
 
 
-前半段太谐要笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，然而最后嘴炮零分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+前半段太谐要笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
 
@@ -34503,12 +34503,12 @@ b part势必需要让华恋开嘴炮，一是要解决露女士的心结必定�
 
 
 
-<img src="https://i.loli.net/2018/08/10/5b6cd541193e4.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/08/10/5b6cd54108bd0.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/08/10/5b6cd540f374a.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/08/10/5b6cd54102d9c.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/08/10/5b6cd5410436e.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.loli.net/2018/08/10/5b6cd54106d94.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd541193e4.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd54108bd0.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd540f374a.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd54102d9c.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd5410436e.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/10/5b6cd54106d94.jpg" referrerpolicy="no-referrer">
 
 
 分析一下今集的Revue部分
@@ -34708,7 +34708,7 @@ b part势必需要让华恋开嘴炮，一是要解决露女士的心结必定�
 
 <blockquote>xiaocheng 发表于 2018-8-10 09:41
 记住，如果你的情感占上风，千万不要让华恋说出nono打哟，否则立马一泻千里( ...</blockquote>
-真矢就让她说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉契合主题的人被动摇了就下滑得厉害，像真矢贯彻到底的就全程吊打<img src="https://static.saraba1st.com/image/smiley/carton2017/198.png" referrerpolicy="no-referrer">
+真矢就让她说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 
@@ -34781,8 +34781,8 @@ non-non
 
 
 恶臭！！！！！
-<img src="http://wx3.sinaimg.cn/large/6d2959e2gy1fu4mdw3478j21560mdwg8.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://cdn2.ettoday.net/images/1559/d1559102.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/6d2959e2gy1fu4mdw3478j21560mdwg8.jpg" referrerpolicy="no-referrer">
+<img src="https://cdn2.ettoday.net/images/1559/d1559102.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -35001,7 +35001,7 @@ QQ截图20180810152656.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/10/153137uauy5atha2itoa5t.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180810152656.jpg" w="839" width="800" zoomfile="https://img.saraba1st.com/forum/201808/10/153137uauy5atha2itoa5t.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/10/153137uauy5atha2itoa5t.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -35030,7 +35030,7 @@ QQ截图20180810150025.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/10/153145lv508zo8v7kuq78g.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180810150025.jpg" w="730" width="730" zoomfile="https://img.saraba1st.com/forum/201808/10/153145lv508zo8v7kuq78g.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/10/153145lv508zo8v7kuq78g.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -35059,7 +35059,7 @@ QQ截图20180810153007.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/10/153153ployhwlyhwawyf9r.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180810153007.jpg" w="383" width="383" zoomfile="https://img.saraba1st.com/forum/201808/10/153153ployhwlyhwawyf9r.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/10/153153ployhwlyhwawyf9r.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -35088,7 +35088,7 @@ QQ截图20180810153020.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/10/153157ms2sblfmgzf23727.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180810153020.jpg" w="376" width="376" zoomfile="https://img.saraba1st.com/forum/201808/10/153157ms2sblfmgzf23727.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/10/153157ms2sblfmgzf23727.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -35134,7 +35134,7 @@ non non哒哟<img src="https://static.saraba1st.com/image/smiley/face2017/048.pn
 
 然后主要剧情可以以收回其他人物身上的情绪和背景为主基调，比如还没怎么展开的banana和花叶组。
 
-而且华恋不欺负露女士了，也可以让别人来欺负露女士嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不一定非得是扭曲剧情才行，就正常生活里的打打闹闹就足以支撑这个轻百合的框架了，第三集的时候就处理得很好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+而且华恋不欺负露女士了，也可以让别人来欺负露女士嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 其实重点还是，看官方能不能从这个人设上挖掘其他的萌点，大部分动画的人设都比较脸谱化，角色的卖点和看点都“从一而终”，所以这种身上的伏线早早收掉的角色在后期很容易边缘化
@@ -36455,7 +36455,7 @@ MD，明明漫画里真昼那么好看，动画你把她毁成啥样了
 <blockquote>圆神最高 发表于 2018-8-10 20:30
 
 动画也没办法啊，毕竟舞台剧里露女士就是"饲主“的设定，最后肯定是要让位给光的。唯一不能理解的就是舞台 ...</blockquote>
-讲真舞台剧嫉妒revue那块把我看的都要吐了，比这集动画恶心得多，而且把露崎演的就像是个弱智，好在时间短<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">动画这块无论如何，无论如何也没向舞台剧那样突然大喊我接受你小光<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">而且现在砍掉剩下三个人一人一集个人回也还剩四集，感觉这个线索一时半会也不一定就这么断了
+讲真舞台剧嫉妒revue那块把我看的都要吐了，比这集动画恶心得多，而且把露崎演的就像是个弱智，好在时间短<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">而且现在砍掉剩下三个人一人一集个人回也还剩四集，感觉这个线索一时半会也不一定就这么断了
 
 
 
@@ -37488,7 +37488,7 @@ d05677d9f2d3572c64f111128613632763d0c371.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/11/002130rxfjj727w2texksk.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="d05677d9f2d3572c64f111128613632763d0c371.jpg" w="1674" width="800" zoomfile="https://img.saraba1st.com/forum/201808/11/002130rxfjj727w2texksk.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/11/002130rxfjj727w2texksk.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -37760,7 +37760,7 @@ QQ截图20180810212644.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/11/014340yklg3g3g3fuyknbf.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180810212644.jpg" w="563" width="563" zoomfile="https://img.saraba1st.com/forum/201808/11/014340yklg3g3g3fuyknbf.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/11/014340yklg3g3g3fuyknbf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -37984,7 +37984,7 @@ b站直接搜少女歌剧 铃声
 
 
 
-<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1fu5hd7vsdwj21jk18ggun.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1fu5hd7vsdwj21jk18ggun.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -38034,7 +38034,7 @@ b站直接搜少女歌剧 铃声
 
 
 
-<img src="https://i.imgur.com/7MtbViT.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/7MtbViT.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -38114,7 +38114,7 @@ ED太好听了
 
 
 链接：https://pan.baidu.com/s/17jZxxz1dpk6LA11n7fUN1g 密码：av19
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu5l0s0na7j22hp35skjl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu5l0s0na7j22hp35skjl.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -38286,7 +38286,7 @@ ED太好听了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个缺德佬，站出来
 
 
-<img src="https://img.saraba1st.com/forum/201808/11/163349sw9w1d3tpb65d1b6.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201808/11/163349sw9w1d3tpb65d1b6.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/11/163349sw9w1d3tpb65d1b6.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM图片20180811163122.png</strong> (1.23 MB, 下载次数: 2)
@@ -38615,7 +38615,7 @@ ccn本质充满了冒险精神，她渴望瑰丽五彩的世界，就算没有pp
 
 
 链接：https://pan.baidu.com/s/18TXHY0so3Gs-EeW77r_cog 密码：d8nr
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu62if55zij23zk2i67wk.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu62if55zij23zk2i67wk.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -38918,7 +38918,7 @@ http://bangumi.tv/blog/281407
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/243.png" referrerpolicy="no-referrer">制作组缺德啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">制作组缺德啊
 宁做鸡头不做凤尾，露女士要调整好心态
 
 
@@ -39512,7 +39512,7 @@ https://weibo.com/tv/v/GupEs9Fhd?fid=1034:4272484464455288
 #スタァライト 
 
 #RevueStarlight
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k2fhsj20xc0n3wlg.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k2fhsj20xc0n3wlg.jpg" referrerpolicy="no-referrer">
 
 
 苦い風が吹いたのは 心揺らいだせいね
@@ -39522,7 +39522,7 @@ https://weibo.com/tv/v/GupEs9Fhd?fid=1034:4272484464455288
 #スタァライト 
 
 #RevueStarlight
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu7t9k3pu2j20xb0oz10a.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu7t9k3pu2j20xb0oz10a.jpg" referrerpolicy="no-referrer">
 
 
 夜が明けて まひるになるよ
@@ -39532,7 +39532,7 @@ https://weibo.com/tv/v/GupEs9Fhd?fid=1034:4272484464455288
 #RevueStarlight 
 
 4話からの、5話、さいこーでしたね…
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k1vjtj20xc0uq0zf.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k1vjtj20xc0uq0zf.jpg" referrerpolicy="no-referrer">
 
 
 『This is お芋』合戦…🥔
@@ -39540,7 +39540,7 @@ https://weibo.com/tv/v/GupEs9Fhd?fid=1034:4272484464455288
 なんでも負けたくないクロちゃん…途中から美味しさに、張り合い忘れて2人とも大量に食べる(妄想
 
 #スタァライト
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k651wj20xc0obq99.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu7t9k651wj20xc0obq99.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -39579,7 +39579,7 @@ https://twitter.com/unchng_sTin/status/1028162248076713984 ...</blockquote>
 
 
 收的第一批CD到货了，就等22号剧中歌发售了，animate的特典都是露崎女士相关，扭曲怪大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/mw690/ddb79d5bgy1fu7wi5tbfdj231e2a4x6q.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/ddb79d5bgy1fu7wi5tbfdj231e2a4x6q.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -40080,8 +40080,8 @@ ed只出了二人版只好靠别人截取的loop解毒了
 
 结果第四集变成蠢萌了</blockquote>
 其实还是很像的，晓美焰再帅本质上也是<img src="https://static.saraba1st.com/image/smiley/carton2017/094.gif" referrerpolicy="no-referrer">
-原作是loop多了加痴情才变成<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">初期<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">不强才显得<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">很时髦
-渣恋第一次再生产就能打<img src="https://static.saraba1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">，光自然就是这个样子<img src="https://static.saraba1st.com/image/smiley/carton2017/094.gif" referrerpolicy="no-referrer">
+原作是loop多了加痴情才变成<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">很时髦
+渣恋第一次再生产就能打<img src="https://static.saraba1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
 最近甚至是这个样子<img src="https://static.saraba1st.com/image/smiley/carton2017/093.gif" referrerpolicy="no-referrer">，病得比走廊女神只重不轻
 
 —— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 S1Next-鹅版 v2.0.2
@@ -40215,7 +40215,7 @@ QQ截图20180814210802.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/14/210822o44ggzmwd5dmw71w.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180814210802.jpg" w="700" width="700" zoomfile="https://img.saraba1st.com/forum/201808/14/210822o44ggzmwd5dmw71w.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/14/210822o44ggzmwd5dmw71w.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -40323,7 +40323,7 @@ QQ截图20180814210802.jpg
 
 <blockquote>YujsD 发表于 2018-8-14 21:48
 按剧中歌华恋不曾缺席的角度来讲很有可能是华恋…我只是心存侥幸</blockquote>
-最想看的迷宫战竟然只有两个镜头，欲哭无泪啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不过克洛至少把maya的场地给拆了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+最想看的迷宫战竟然只有两个镜头，欲哭无泪啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
 
@@ -40429,10 +40429,10 @@ nono哒呦警告<img src="https://static.saraba1st.com/image/smiley/face2017/001
 
 
 幼い日より二人で歩んできた石動双葉と花柳香子。だが聖翔音楽学園に入学し、オーディションに参加したことで二人の意識にも変化が。クロディーヌと練習に励む双葉が自分から離れてゆくように感じた香子は、持ち前の身勝手からとんでもない行動に出る。
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv1737j20lc0c0dqj.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv2nchj20lc0c0k1h.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv1ntnj20lc0c047j.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fu9pruyy0tj20lc0c0dpl.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv1737j20lc0c0dqj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv2nchj20lc0c0k1h.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu9prv1ntnj20lc0c047j.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fu9pruyy0tj20lc0c0dpl.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -40769,7 +40769,7 @@ https://weibo.com/tv/v/GuNg89EYN?fid=103 ...</blockquote>
 
 
 
-果不其然，弹幕里已经开始 “有没有看了范式过来的举手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">”<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+果不其然，弹幕里已经开始 “有没有看了范式过来的举手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 
@@ -40788,7 +40788,7 @@ https://weibo.com/tv/v/GuNg89EYN?fid=103 ...</blockquote>
 少女☆歌劇 レヴュースタァライト 第六話「ふたりの花道」予告
 
 https://weibo.com/tv/v/GuNg89EYN?fid=103 ...</blockquote>
-双叶竟然坐在克洛的床前<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">扭起来<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+双叶竟然坐在克洛的床前<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
 
@@ -40836,7 +40836,7 @@ https://weibo.com/tv/v/GuNg89EYN?fid=103 ...</blockquote>
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">看你们一直在吹，我以为又是一部制作精良的偶像番，结果妈的后边是什么展开啊！！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">看你们一直在吹，我以为又是一部制作精良的偶像番，结果妈的后边是什么展开啊！！！
 
 
 
@@ -40903,7 +40903,7 @@ https://weibo.com/tv/v/GuNg89EYN?fid=103 ...</blockquote>
 偶像大师→少女革命→万策尽→→吃睡恶意露崎→打爆女主狗头
 
                                     ...</blockquote>
-打爆渣恋狗头<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+打爆渣恋狗头<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
 
@@ -40960,7 +40960,7 @@ QQ截图20180816123119.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/16/123235emqhqfg39tqymhrt.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180816123119.jpg" w="547" width="547" zoomfile="https://img.saraba1st.com/forum/201808/16/123235emqhqfg39tqymhrt.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/16/123235emqhqfg39tqymhrt.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -40989,7 +40989,7 @@ QQ截图20180816123119.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/16/123240r9v9v4odwit06lzj.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2db1bac379310a553a879dc0ba4543a9832610ee.jpg" w="494" width="494" zoomfile="https://img.saraba1st.com/forum/201808/16/123240r9v9v4odwit06lzj.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/16/123240r9v9v4odwit06lzj.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41065,9 +41065,9 @@ QQ截图20180816123119.jpg
 
  本帖最后由 c933103 于 2018-8-16 18:00 编辑 
 
-<img src="https://i.imgur.com/phXU61p.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.imgur.com/UwOCYnO.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://i.imgur.com/icobZu2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/phXU61p.jpg" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/UwOCYnO.jpg" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/icobZu2.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41162,7 +41162,7 @@ QQ截图20180816123119.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/16/191000seyyzkez88zo8reb.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2db1bac379310a551759b739bb4543a983261001.jpg" w="1242" width="800" zoomfile="https://img.saraba1st.com/forum/201808/16/191000seyyzkez88zo8reb.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/16/191000seyyzkez88zo8reb.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41283,7 +41283,7 @@ QQ截图20180816123119.jpg
 
 
 
-老板和说好的不一样啊！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这个发展想不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+老板和说好的不一样啊！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
 
@@ -41314,7 +41314,7 @@ maya sama凝固的笑容<img src="https://static.saraba1st.com/image/smiley/face
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -41410,7 +41410,7 @@ QQ截图20180522175257.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/010410ewvafefr2vwfm6ox.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180522175257.jpg" w="391" width="391" zoomfile="https://img.saraba1st.com/forum/201808/17/010410ewvafefr2vwfm6ox.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/010410ewvafefr2vwfm6ox.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41531,7 +41531,7 @@ QQ截图20180522175257.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/010807btw6xqm6w6t44hxb.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/010807btw6xqm6w6t44hxb.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/010807btw6xqm6w6t44hxb.jpg" referrerpolicy="no-referrer">
 
 
 <strong>QQ图片20180801205232.jpg</strong> (42.19 KB, 下载次数: 3)
@@ -41587,7 +41587,7 @@ QQ截图20180522175257.jpg
 
 
 
-那么蕉哥哥对手是哪个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，如果是华恋又要吊打然后嘴炮解决了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+那么蕉哥哥对手是哪个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 想看蕉哥哥打爆华恋教做人啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
@@ -41618,7 +41618,7 @@ Guitar:山本 陽介
 
 ストリングス:真部 裕ストリングス
 
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fuc1fsyyhij20dw0afwo5.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fuc1fsyyhij20dw0afwo5.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41708,10 +41708,10 @@ Blu-ray BOX 1
 『少女☆歌劇レヴュースタァライト』第六話。ご視聴ありがとうございました！
 
 まだの方もぜひ、2人の約束を見届けてください
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fuc1nr3g2ij20xc0n7n0b.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fuc1o14z1cj20xc0n7djj.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fuc1nrkgbvj20xc0n7424.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fuc1nr5wcmj20xc0n7wge.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fuc1nr3g2ij20xc0n7n0b.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fuc1o14z1cj20xc0n7djj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fuc1nrkgbvj20xc0n7424.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fuc1nr5wcmj20xc0n7wge.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41966,7 +41966,7 @@ Blu-ray BOX 1
 たに@nishitter7
 
 背景しっくりこなくて濱さんに何色がいいですかね…ってデータ送ったらまさかのロゴついてかえってくるという 感謝 ５話ありがとうございました！！看板アートなどいろいろさせていただき楽しかったです
-<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fucikj1dw9j20og0oggz0.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fucikj1dw9j20og0oggz0.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -41985,7 +41985,7 @@ Blu-ray BOX 1
 たに@nishitter7
 
 背景しっくりこなくて濱さんに何色がいいですかね…ってデータ送ったらまさかのロゴついて ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -42324,7 +42324,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/154745bcjnc8ic8ohr71ic.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="捕获4.PNG" w="931" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/154745bcjnc8ic8ohr71ic.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/154745bcjnc8ic8ohr71ic.png" referrerpolicy="no-referrer">
 
 
 
@@ -42353,7 +42353,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/154800bvqygbcpyqvzktyk.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="捕获.PNG" w="939" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/154800bvqygbcpyqvzktyk.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/154800bvqygbcpyqvzktyk.png" referrerpolicy="no-referrer">
 
 
 
@@ -42382,7 +42382,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/154804cldih4hqndysi4in.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="捕获3.PNG" w="935" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/154804cldih4hqndysi4in.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/154804cldih4hqndysi4in.png" referrerpolicy="no-referrer">
 
 
 
@@ -42411,7 +42411,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/154809cv5l6sn0ts5m4el7.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="捕获2.PNG" w="935" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/154809cv5l6sn0ts5m4el7.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/154809cv5l6sn0ts5m4el7.png" referrerpolicy="no-referrer">
 
 
 
@@ -42491,7 +42491,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 很有道理，长颈鹿revue的规则可能和B班选拔starlight演员的规则是一样的，每轮综合考察刷新人选，不看上次成绩。有趣的是名单里有个叫中村井的，是谁？
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/155444cnd98kekbkrbnnf8.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/155444cnd98kekbkrbnnf8.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/155444cnd98kekbkrbnnf8.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM截图20180817155356.png</strong> (417.37 KB, 下载次数: 0)
@@ -42518,7 +42518,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-<img src="https://i.loli.net/2018/08/17/5b767f4716d6f.png" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2018/08/17/5b767f4716d6f.png" referrerpolicy="no-referrer">
 
 
 在K島见到,不知道是什么梗?
@@ -42541,7 +42541,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 连打斗都要出兼用卡了，万策尽啊万策尽</blockquote>
 镜头稍微一远就崩，把banana都搞崩了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
-<img src="https://img.saraba1st.com/forum/201808/17/155601zbxaoxrplr81cp58.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/201808/17/155601zbxaoxrplr81cp58.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/155601zbxaoxrplr81cp58.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM截图20180817152235.png</strong> (838 KB, 下载次数: 2)
@@ -42557,7 +42557,7 @@ banana真是美腿啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 包括this is 天堂真矢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
-<img src="https://img.saraba1st.com/forum/201808/17/155604qna0pythuy9hbt5z.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="783" zoomfile="https://img.saraba1st.com/forum/201808/17/155604qna0pythuy9hbt5z.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/155604qna0pythuy9hbt5z.png" referrerpolicy="no-referrer">
 
 
 <strong>TIM截图20180817153417.png</strong> (520.51 KB, 下载次数: 0)
@@ -43293,7 +43293,7 @@ banana的关键点恐怕就在于她参与了starlight剧本编写，结合B班�
 
 
 
-哈哈哈心疼天堂sama，一颗糖就打发了，下次选拔见香子怕是往死里虐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+哈哈哈心疼天堂sama，一颗糖就打发了，下次选拔见香子怕是往死里虐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
 
@@ -43701,7 +43701,7 @@ maya<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 maya
 
 下次当台雷普香子吧</blockquote>
-雷普怪<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">加我一个<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+雷普怪<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
 
 
@@ -44038,7 +44038,7 @@ ED真是好听啊
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235212s41t01id0z5700ik.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="1.jpg" w="575" width="575" zoomfile="https://img.saraba1st.com/forum/201808/17/235212s41t01id0z5700ik.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235212s41t01id0z5700ik.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44067,7 +44067,7 @@ ED真是好听啊
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235214aw6kge1a1skgskf6.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="2.jpg" w="581" width="581" zoomfile="https://img.saraba1st.com/forum/201808/17/235214aw6kge1a1skgskf6.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235214aw6kge1a1skgskf6.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44096,7 +44096,7 @@ ED真是好听啊
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235217jn570qop224fb6bo.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="3.jpg" w="647" width="647" zoomfile="https://img.saraba1st.com/forum/201808/17/235217jn570qop224fb6bo.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235217jn570qop224fb6bo.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44125,7 +44125,7 @@ ED真是好听啊
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235220dmm4jd0zhfpmdpzf.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="4.jpg" w="608" width="608" zoomfile="https://img.saraba1st.com/forum/201808/17/235220dmm4jd0zhfpmdpzf.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235220dmm4jd0zhfpmdpzf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44154,7 +44154,7 @@ ED真是好听啊
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235223kv135s33122pscje.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="5.jpg" w="386" width="386" zoomfile="https://img.saraba1st.com/forum/201808/17/235223kv135s33122pscje.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235223kv135s33122pscje.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44202,7 +44202,7 @@ QQ截图20180817235148.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/201808/17/235407ns0eaeefha22heaf.jpg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" title="QQ截图20180817235148.jpg" w="523" width="523" zoomfile="https://img.saraba1st.com/forum/201808/17/235407ns0eaeefha22heaf.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/201808/17/235407ns0eaeefha22heaf.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -44493,7 +44493,7 @@ https://zhuanlan.zhihu.com/p/40859227
 
 
 
-佐伯果然就是来打个工啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">不过还正好是第六集百合回<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+佐伯果然就是来打个工啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 另外这集怎么能看出万策尽的，反而应该夸夸才对吧，搁到bd里感觉都不会修多少。每集出来的人不少，还都得来点打斗，到第六集了绘柄还能保持成这样已经不错了，远景放大截图喊崩的真是对TV动画要求太高
 
 
@@ -44720,7 +44720,7 @@ https://zhuanlan.zhihu.com/p/40859227
 
 
 
-<img src="http://img.saraba1st.com/forum/201808/18/125602azzy332qh29vyr92.gif" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://img.saraba1st.com/forum/201808/18/125602azzy332qh29vyr92.gif" referrerpolicy="no-referrer">
 
 
 
@@ -45078,7 +45078,7 @@ https://jr-shinkansen.net/nyujoken.html <blockquote>入場券の価格は、JR�
 
 
 
-<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuefzj2hu2j20p00xcb29.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuefzj2hu2j20p00xcb29.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -45528,12 +45528,12 @@ n
  本帖最后由 Toby_dak 于 2018-8-19 18:29 编辑 
 
 第4话
-<img src="http://wx1.sinaimg.cn/large/82f2a336gy1fuf4z6k1faj20zk0k0dj2.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1fuf4z6k1faj20zk0k0dj2.jpg" referrerpolicy="no-referrer">
 
 
 这话
-<img src="https://wx4.sinaimg.cn/large/82f2a336gy1fuf4gw9s7cj20zk0k0ae5.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
-<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fuf4gwwdnvj20zk0k0tc1.jpg" referrerpolicy="no-referrer">" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/large/82f2a336gy1fuf4gw9s7cj20zk0k0ae5.jpg" referrerpolicy="no-referrer">
+<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fuf4gwwdnvj20zk0k0tc1.jpg" referrerpolicy="no-referrer">
 
 
 演出检查要背锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -45724,7 +45724,7 @@ staff水平不足、观众三观不同导致接受的信息跟要表达的有偏
 
       列車前響鈴後直接開打，棒読演出……
 
-      臆想：花葉巧合上車，車動，<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">。倏忽一暗，過山車飛入地下劇場，鈴聲響，（再生產）。參考penguindrum。
+      臆想：花葉巧合上車，車動，<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">。倏忽一暗，過山車飛入地下劇場，鈴聲響，（再生產）。參考penguindrum。
 
       如何教新幹線從平成轉場江戶我想不好，列車無對標，這比千年女優難些……
 
@@ -45833,6 +45833,2081 @@ staff水平不足、观众三观不同导致接受的信息跟要表达的有偏
 <blockquote>Toby_dak 发表于 2018-8-19 20:58
 对比一下最后一张图旁边e212房的间隔位置，按你的说法里面能放得下西条和天堂的两个单人卧室？ ...</blockquote>
 西条和天堂不是住一起的，想想门牌。
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2251#       发表于 2018-8-19 21:24
+
+
+
+ 本帖最后由 这就是奇迹 于 2018-8-19 22:59 编辑 
+
+房屋布局推理更新在2256L
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2252#       发表于 2018-8-19 21:29
+
+
+
+<blockquote>这就是奇迹 发表于 2018-8-19 21:24
+修正了一张，不过这结构也未免太诡异，212空间过大，比俩王牌学生还大，或者可能里面也有隔断
+
+ ...</blockquote>
+说了这俩不是住一起的……而且即使是其她几组的双人间，里面也不止卧室一间。
+
+
+
+
+
+
+
+-----
+
+####  skives  
+##### 2253#       发表于 2018-8-19 21:59
+
+
+
+
+漫画新一集很不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yjysrkl  
+##### 2254#       发表于 2018-8-19 22:27
+
+
+
+<blockquote>skives 发表于 2018-8-19 21:59
+漫画新一集很不错</blockquote>
+请问哪里能看漫画最新话？
+
+
+
+
+
+
+
+-----
+
+####  skives  
+##### 2255#       发表于 2018-8-19 22:37
+
+
+
+<blockquote>yjysrkl 发表于 2018-8-19 22:27
+请问哪里能看漫画最新话？</blockquote>
+b站 圣翔音乐学院放送科
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2256#       发表于 2018-8-19 22:51
+
+
+
+ 本帖最后由 这就是奇迹 于 2018-8-19 22:58 编辑 
+
+又把所有已有的看了一遍，搞清楚所有布局了。用事实说话
+
+首先看双人间的一般布局
+
+<img src="https://img.saraba1st.com/forum/201808/19/222400tuw9pu98zpu3u4cb.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819213511.png</strong> (1.43 MB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:24 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/222706vgksbq1axz62kqae.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214249.png</strong> (762.1 KB, 下载次数: 4)
+
+下载附件
+
+2018-8-19 22:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/222412evnbipdbbh2bhipe.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819213751.png</strong> (678.72 KB, 下载次数: 3)
+
+下载附件
+
+2018-8-19 22:24 上传
+
+
+
+
+
+
+可见双人间空间相当宽广，进门先有一个狭长内廊，内廊侧向开门进入主卧，这个应该是普通双人间的标准布局
+
+<img src="https://img.saraba1st.com/forum/201808/19/222623vt1t9k1zfoofeex1.png" referrerpolicy="no-referrer">
+
+
+<strong>普通双人间.png</strong> (16.69 KB, 下载次数: 1)
+
+下载附件
+
+2018-8-19 22:26 上传
+
+
+
+
+
+
+再看99组所在该楼层的总体布局
+
+<img src="https://img.saraba1st.com/forum/201808/19/222705fvvogu8qmmx8mg8w.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214417.png</strong> (850.4 KB, 下载次数: 1)
+
+下载附件
+
+2018-8-19 22:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/222900h74a29m7oqcmcgxq.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819222842.png</strong> (467.19 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:29 上传
+
+
+
+
+
+
+可见banana/班长和露崎/渣恋处于走廊同侧，该走廊两侧各有三个房间
+
+<img src="https://img.saraba1st.com/forum/201808/19/223034qsmnj6li61n4n9f9.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214447.png</strong> (874.55 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:30 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/223030xkv2uyc7aszcc070.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214521.png</strong> (748.84 KB, 下载次数: 1)
+
+下载附件
+
+2018-8-19 22:30 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/223029iw9v9tk5lifx94nf.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214559.png</strong> (797.73 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:30 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/223257t16fz6yw1w0bylo1.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819214629.png</strong> (1004.02 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:32 上传
+
+
+
+
+
+
+老师点名向另一侧走廊走去，在敲另一侧最为靠外的双叶/香子房门时被迷宫组吸引，可知同侧走廊尽头的是二人房间的大致位置
+
+<img src="https://img.saraba1st.com/forum/201808/19/224203qveir4e09lz0pib3.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180817153417.png</strong> (520.51 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:42 上传
+
+
+
+
+
+
+同时从第六集送行香子画面可以看出同层两侧走廊之间应系被楼梯隔开
+
+再回过头看第一集
+
+<img src="https://img.saraba1st.com/forum/201808/19/223419hqok8xwy9zbqbx17.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819221347.png</strong> (864.71 KB, 下载次数: 1)
+
+下载附件
+
+2018-8-19 22:34 上传
+
+
+
+
+
+
+在小光从渣恋卧室跑出去单住的时候，可以发现是进了另一侧走廊左侧三个房间里的中间那个
+
+<img src="https://img.saraba1st.com/forum/201808/19/223523ertzdwa7wdrajurj.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819223508.png</strong> (1001.54 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:35 上传
+
+
+
+
+
+
+同一集渣恋去小光单住的房间找人的时候从窗户看到光跑到宿舍门口的街道上，去学校参加revue，可知这间宿舍面向宿舍门口的街道
+
+<img src="https://img.saraba1st.com/forum/201808/19/223424px4ed49fx5mfz5fi.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819221248.png</strong> (890.41 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:34 上传
+
+
+
+
+
+
+那么第四集天堂maya站在窗口向门口街上刚回来的狗女女喊欢迎，说明天堂的房间也面向街道，故与光暂住的房间在同侧，而同侧三间已经确定两间，只有走廊尽头一间可以安排之
+<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fuf4gwwdnvj20zk0k0tc1.jpg" referrerpolicy="no-referrer">
+
+同时从这个镜头可以看出212卧室和双叶/香子房间房门的相对位置，并且确认克洛的房间在该走廊尽头，天堂的对面
+
+这样的话整个楼层的布局就清晰了
+
+<img src="https://img.saraba1st.com/forum/201808/19/224444xafxixkeakk9kkni.png" referrerpolicy="no-referrer">
+
+
+<strong>楼层布局.png</strong> (111.56 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:44 上传
+
+
+
+
+
+
+接下来解决克洛房间布局的家电/内廊问题
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1fuf4z6k1faj20zk0k0dj2.jpg" referrerpolicy="no-referrer">
+
+从克洛房间门口只能看到一堵相当近的墙，可知该宿舍布局大概与普通双人间不同
+<img src="https://wx4.sinaimg.cn/large/82f2a336gy1fuf4gw9s7cj20zk0k0ae5.jpg" referrerpolicy="no-referrer">
+
+从内部可见内廊中有电器，则内廊一定是横向。这样安排的用意可能是防止原本的二人间在住一个人时进深过大，使空间不好利用
+<img src="https://wx3.sinaimg.cn/large/82f2a336gy1fuf4gwwdnvj20zk0k0tc1.jpg" referrerpolicy="no-referrer">
+
+结合此图标出香子和围观人群位置，问题得解
+
+<img src="https://img.saraba1st.com/forum/201808/19/225055ma1q68yljr081e08.png" referrerpolicy="no-referrer">
+
+
+<strong>克洛单人间及邻屋.png</strong> (23.45 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 22:50 上传
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 断头台| + 1|思路广|
+| zx2kks| + 1|逻辑与推理的实验剧场!|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 2257#       发表于 2018-8-19 22:56
+
+
+
+
+你们这么纠结房子阿，少学。
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2258#       发表于 2018-8-19 23:00
+
+
+
+<blockquote>这就是奇迹 发表于 2018-8-19 22:51
+又把所有已有的看了一遍，搞清楚所有布局了。用事实说话
+
+首先看双人间的一般布局
+
+</blockquote>
+补充一张图，可以看出除了卧室还有别的房间。
+
+
+
+
+
+
+Screenshot_20180819-225819.jpg
+(557.01 KB, 下载次数: 28)
+
+
+
+
+下载附件
+
+
+2018-8-19 23:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/230018vbitbwrnqrwqltll.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2259#       发表于 2018-8-19 23:00
+
+
+
+<blockquote>xiaocheng 发表于 2018-8-19 21:29
+
+说了这俩不是住一起的……而且即使是其她几组的双人间，里面也不止卧室一间。 ...</blockquote>
+请看2256L
+
+
+
+
+
+
+
+-----
+
+####  yjysrkl  
+##### 2260#       发表于 2018-8-19 23:01
+
+
+
+<blockquote>skives 发表于 2018-8-19 22:37
+b站 圣翔音乐学院放送科</blockquote>
+谢谢！
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2261#       发表于 2018-8-19 23:01
+
+
+
+ 本帖最后由 这就是奇迹 于 2018-8-19 23:04 编辑 
+<blockquote>xiaocheng 发表于 2018-8-19 23:00
+
+补充一张图，可以看出除了卧室还有别的房间。</blockquote>
+这是双人间内廊，左侧的门为卧室，除此外没有其他门了。内廊两侧有推拉橱柜，你所说的“其他门”应该是橱柜门
+
+
+<img src="https://img.saraba1st.com/forum/201808/19/230413f33k0a6d5nur86rq.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20180819213603.png</strong> (495.55 KB, 下载次数: 2)
+
+下载附件
+
+2018-8-19 23:04 上传
+
+
+
+
+
+
+补一个很直接的证据。哪怕不是橱柜，大概也只是厕所，不然不可能右侧卧室不设房门
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2262#       发表于 2018-8-19 23:07
+
+
+
+<blockquote>这就是奇迹 发表于 2018-8-19 23:01
+这是双人间内廊，左侧的门为卧室，除此外没有其他门了。内廊两侧有推拉橱柜，你所说的“其他门”应该是橱 ...</blockquote>
+我这张图里香蕉面对的是房门，图右侧应该是每个房间都有的那个橱柜一类的东西，但是背后那个门是单独房间，说是厕所没啥问题。
+
+
+
+
+
+
+
+-----
+
+####  alialex  
+##### 2263#       发表于 2018-8-19 23:11
+
+
+
+
+这个比起说是宿舍，已经是挺大的公寓了吧
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 2264#       发表于 2018-8-20 00:26
+
+
+
+
+为什么想到金田一的密室推理，就差把尸体和黑人画上去了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+----发送自 Sony G8342,Android 8.0.0
+
+
+
+
+
+
+
+-----
+
+####  zhaoyanggolden  
+##### 2265#       发表于 2018-8-20 00:30
+
+
+
+
+这宿舍条件真是好啊，学生应该都是有钱人吧
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 2266#       发表于 2018-8-20 00:38
+
+
+
+
+我佛了，真实男粉
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 2267#       发表于 2018-8-20 03:04
+
+
+
+
+话说动画为啥不还原舞台剧啊，绝望战，嫉妒战这些。以及动画的歌剧感好弱，与其说是边唱歌边打架，倒不如说是打架的时候配了个她们唱的歌
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2268#       发表于 2018-8-20 09:15
+
+
+
+<blockquote>天邪鬼 发表于 2018-8-20 03:04
+话说动画为啥不还原舞台剧啊，绝望战，嫉妒战这些。以及动画的歌剧感好弱，与其说是边唱歌边打架，倒不如说 ...</blockquote>
+舞台剧才多少剧情，况且重演一遍舞台剧不无聊吗？动画版角色设定改了那么多还按舞台剧来那才叫一个强行。另外舞台剧才几首歌，打架的时候走驼老师充当了多久的人肉音箱忘了吗？大部分人连个对唱曲都没有，就合唱的时候唱两嗓子。
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2269#       发表于 2018-8-20 11:11
+
+
+
+<blockquote>天邪鬼 发表于 2018-8-20 03:04
+
+话说动画为啥不还原舞台剧啊，绝望战，嫉妒战这些。以及动画的歌剧感好弱，与其说是边唱歌边打架，倒不如说 ...</blockquote>
+舞台剧和动画的主题根本就是不同的，舞台剧就没把渣恋和光的约定放在核心位置，光一来就受人排挤，黑幕力量嚣张，九人人人各怀鬼胎，打起来一点不含糊，最后渣恋一通嘴炮把众人打醒重新团结起来对抗黑幕，实现星光闪闪。相比之下动画显然是把二人约定作为主线，revue战斗方式也和舞台剧差得多了。唱歌这点我也不满，看字幕尤其累
+
+
+
+
+
+
+
+-----
+
+####  llysander  
+##### 2270#       发表于 2018-8-20 12:16
+
+
+
+<blockquote>这就是奇迹 发表于 2018-8-20 11:11
+
+舞台剧和动画的主题根本就是不同的，舞台剧就没把渣恋和光的约定放在核心位置，光一来就受人排挤，黑幕力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">多刷的罪恶根源
+
+
+看前面中村阿姨的说法是有意把歌词写成台词的一部分, 也就是说同时有两套台词在配合画面进行
+
+
+正确流程, 反复听歌直到记下歌词, 脑内放着歌词看带字幕画面... 
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2271#       发表于 2018-8-20 14:55
+
+
+
+
+【中字·圣翔音乐学院放送科】真矢 x 克洛迪娜 Midnight Revue 第1夜
+https://www.bilibili.com/video/av29661925?from=search&amp;seid=9739000664966112310
+
+
+这对超级活宝真的逗了30分钟，还从头到尾都在迫害露崎女士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+QQ截图20180820143145.jpg
+(69.8 KB, 下载次数: 7)
+
+
+
+
+下载附件
+
+
+2018-8-20 14:53 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/20/145335l04egmzd6bmpg4pd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ截图20180820143200.jpg
+(70.45 KB, 下载次数: 6)
+
+
+
+
+下载附件
+
+
+2018-8-20 14:53 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/20/145340cz5idpdeop1id1ez.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ截图20180820143245.jpg
+(72.05 KB, 下载次数: 6)
+
+
+
+
+下载附件
+
+
+2018-8-20 14:53 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/20/145344hphpezp31sp21ps9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ネロ  
+##### 2272#       发表于 2018-8-20 18:21
+
+
+
+
+maya sama的谐星化看来是受里面的人影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llysander  
+##### 2273#       发表于 2018-8-20 21:29
+
+
+
+<blockquote>wuaistage1 发表于 2018-8-20 14:55
+
+【中字·圣翔音乐学院放送科】真矢 x 克洛迪娜 Midnight Revue 第1夜
+
+https://www.bilibili.com/video/av29 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">大大方方喝啊
+
+
+确实这俩跟maya克洛完全相反，克洛肯定不敢的
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 2274#       发表于 2018-8-20 23:45
+
+
+
+<blockquote>引用第2270楼wuaistage1于2018-08-20 15:55发表的  :
+
+【中字·圣翔音乐学院放送科】真矢 x 克洛迪娜 Midnight Revue 第1夜https://......</blockquote>
+这两逗逼我昨天靠的时候从来头笑到结尾，中间这俩还把商品布景板能砸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过按照她们说法，这是深夜的直播。如果不一直搞笑而是平常那种talk show的话，估计很多人会撑不到动画开播吧。
+
+
+----发送自 Sony G8342,Android 8.0.0
+
+
+
+
+
+
+
+-----
+
+####  roamer  
+##### 2275#       发表于 2018-8-21 00:33
+
+
+
+ 本帖最后由 roamer 于 2018-8-21 00:35 编辑 
+
+https://twitter.com/shanpoo_3/status/1031149214233812992
+
+有人还原了第五集的土豆大餐和banana巴菲<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LadyLex  
+##### 2276#       发表于 2018-8-21 01:04
+
+
+
+<blockquote>roamer 发表于 2018-08-21 00:33:58</blockquote>哇这也太强了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2277#       发表于 2018-8-21 01:12
+
+
+
+
+贴吧的人真是截图鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+QQ截图20180821011100.jpg
+(40.37 KB, 下载次数: 8)
+
+
+
+
+下载附件
+
+
+2018-8-21 01:11 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/21/011141epya5jzz9mv94iv5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  最终兵器狂战  
+##### 2278#       发表于 2018-8-21 01:15
+
+
+
+<blockquote>wuaistage1 发表于 2018-8-20 14:55
+
+【中字·圣翔音乐学院放送科】真矢 x 克洛迪娜 Midnight Revue 第1夜
+
+https://www.bilibili.com/video/av29 ...</blockquote>
+感觉maya里面的人的本音真的好有趣……<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+这俩人实在太嗨了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2279#       发表于 2018-8-21 01:24
+
+
+
+ 本帖最后由 wuaistage1 于 2018-8-21 01:27 编辑 
+<blockquote>最终兵器狂战 发表于 2018-8-21 01:15
+
+感觉maya里面的人的本音真的好有趣……
+
+
+这俩人实在太嗨了…… ...</blockquote>
+嗨过头了，现场一直隔空骚扰露崎女士就不说了，竟然还打电话过去<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+看完才知道岩田阳葵竟然真喜欢打棒球，露崎女士这角色简直量身定做。考哥.jpg
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 2280#       发表于 2018-8-21 01:49
+
+
+
+ 本帖最后由 unnilennium 于 2018-8-21 01:50 编辑 
+<blockquote>wuaistage1 发表于 2018-8-21 01:24
+
+嗨过头了，现场一直隔空骚扰露崎女士就不说了，竟然还打电话过去 想了想平时看见的那些现场照片， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了打电话给はるき，这节目后面还有佐藤·莎士比亚·日向的来信，推特上也说了是佐藤日向本人，欢乐的九九组
+
+
+
+
+
+
+
+-----
+
+####  zp66975285  
+##### 2281#       发表于 2018-8-21 09:47
+
+
+
+
+话说她们那个地下舞台，现在看是长颈鹿真存在，那么舞台本身是有减伤免疫死亡之类的设定么，露女士那一锤子看看砸地板的效果，真砸身上了渣恋就当场GG了，结果也只是被当棒球打飞而已。还有第三集首席那一剑直接对着脖子砍，渣恋反应慢点估计脑袋就飞了。
+
+虽然知道这种设定不能深究，但是仔细想想这样好像挺好玩的，恩怨情仇全在舞台上来一场武打，反正打不死照着死里打，出气打完了也舒心了。
+
+
+
+
+
+
+
+-----
+
+####  IWS2000  
+##### 2282#       发表于 2018-8-21 11:45
+
+
+
+
+第二话克洛是怎么把maya的楼梯拆了的，难道是因为力气都用在拆台上所以才输的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  明明无亦无  
+##### 2283#       发表于 2018-8-21 11:48
+
+
+
+<blockquote>IWS2000 发表于 2018-8-21 11:45
+第二话克洛是怎么把maya的楼梯拆了的，难道是因为力气都用在拆台上所以才输的吗 ...</blockquote>
+表演切合主题舞台会偏向那个人吧，这两个实力相近
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2284#       发表于 2018-8-21 14:21
+
+
+
+
+cd已出，b站可听。第七话ed纯音乐，莫非是蕉哥唱的太烂了(
+
+
+
+
+
+
+
+-----
+
+####  YujsD  
+##### 2285#       发表于 2018-8-21 14:40
+
+
+
+
+第七话好像也没剧中歌…ED估计配合纯音乐放剧情？……
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 2286#       发表于 2018-8-21 14:50
+
+
+
+
+av29916069
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">剧中曲CD，舒服了
+
+
+
+
+
+
+
+-----
+
+####  we89623  
+##### 2287#       发表于 2018-8-21 14:51
+
+
+
+
+魔球真好听<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 2288#       发表于 2018-8-21 14:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一首中间恋哥哥唐突插入之后体验急降
+
+
+
+
+
+
+
+-----
+
+####  ky刃  
+##### 2289#       发表于 2018-8-21 14:55
+
+
+
+
+蕉哥哥要消失了吗，ed不唱
+
+
+
+
+
+
+
+-----
+
+####  llysander  
+##### 2290#       发表于 2018-8-21 15:27
+
+
+
+<blockquote>邬德强 发表于 2018-8-21 14:53
+
+第一首中间恋哥哥唐突插入之后体验急降</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">看来要用蠢得要死的恋哥哥音唱到结束了 
+
+是因为唱歌音太攻风格不服吗
+
+
+
+
+
+
+
+-----
+
+####  这就是奇迹  
+##### 2291#       发表于 2018-8-21 15:32
+
+
+
+
+banana不会被肉体消灭了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skives  
+##### 2292#       发表于 2018-8-21 15:39
+
+
+
+
+麻美色的蕉哥哥<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jgdust  
+##### 2293#       发表于 2018-8-21 15:39
+
+
+
+
+banana回，连歌都没有啊？怕不是要搞事。
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 2294#       发表于 2018-8-21 15:59
+
+
+
+<blockquote>llysander 发表于 2018-8-21 15:27
+
+看来要用蠢得要死的恋哥哥音唱到结束了 
+
+是因为唱歌音太攻风格不服吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我的感觉就是班长唱得好好的，突然音乐一关恋哥哥猛男天降大喊“没天赋就不要唱，还学人唱歌”把麦克风一抢
+
+
+
+
+
+
+
+-----
+
+####  greelmr1981  
+##### 2295#       发表于 2018-8-21 17:07
+
+
+
+
+可惜里面曲中歌并不是完整的一首歌……
+
+
+
+
+
+
+
+-----
+
+####  carnelius  
+##### 2296#       发表于 2018-8-21 17:14
+
+
+
+
+曲子把念白都去了感觉不好
+
+
+
+
+
+
+
+-----
+
+####  waox  
+##### 2297#       发表于 2018-8-21 17:24
+
+
+
+
+6集剧情好看啊，真的会有人一直追着作画去计较吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2298#       发表于 2018-8-21 17:31
+
+
+
+
+下集ed没人唱，感觉应该打斗也会歇一集吧，保持打两集歇一集的节奏，正好到12集完<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 2299#       发表于 2018-8-21 18:19
+
+
+
+
+世界を灰にするまで这歌真的有一种生生被恋哥哥打断的尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hzhh95963  
+##### 2300#       发表于 2018-8-21 18:38
+
+
+
+ 本帖最后由 hzhh95963 于 2018-8-21 18:41 编辑 
+
+华恋每次出场的时候感觉都好突兀……
+
+
+
+
+
+
+
+-----
+
+####  xiaocheng  
+##### 2301#       发表于 2018-8-21 18:53
+
+
+
+
+少歌这卖歌不知道该说是耿直还是偷懒，剧中曲就是剧中曲，要增加内容那是不可能的，就像舞台剧的剧中曲直接就是舞台剧音源，重新唱那是不可能的(
+
+
+
+
+
+
+
+-----
+
+####  JintaBuster  
+##### 2302#       发表于 2018-8-21 19:03
+
+
+
+
+魔球好听哭了呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  ggyy0088  
+##### 2303#       发表于 2018-8-21 19:16
+
+
+
+
+望眼欲穿等了一天日亚配送延迟了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  curiousnoob  
+##### 2304#       发表于 2018-8-21 19:19
+
+
+
+
+我还等个光独唱fly me to the star完整版了结果还是tv size，这就是懒吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  摩天城  
+##### 2305#       发表于 2018-8-21 20:22
+
+
+
+
+更喜欢《花咲か唄》的feel<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llysander  
+##### 2306#       发表于 2018-8-21 20:23
+
+
+
+<blockquote>邬德强 发表于 2018-8-21 15:59
+
+我的感觉就是班长唱得好好的，突然音乐一关恋哥哥猛男天降大喊“没天赋就不要唱，还学人唱歌”把 ...</blockquote>
+抢麦熊室友海星
+
+星知道 里熊音加入合唱的部分还刚好和私たちの居る理由位置差不多 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer"> 一对比笑果拔群，不知道摸摸油唱这个的时候是什么表情
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2307#       发表于 2018-8-21 20:24
+
+
+
+
+花咲か唄 赞啊，应该是最完整的一首歌了
+
+
+
+
+
+
+
+-----
+
+####  skmdfong  
+##### 2308#       发表于 2018-8-21 20:29
+
+
+
+ 本帖最后由 skmdfong 于 2018-8-21 20:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这剧中歌听的鸡皮疙瘩都起了，少歌的音乐是真的赞，等发货了
+
+森森森的ED居然不是完整版的，卜开心
+
+
+
+
+
+
+
+-----
+
+####  zx2kks  
+##### 2309#       发表于 2018-8-21 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我倒觉得华恋用动画音不错，因为我最讨厌的就是要唱角色歌然后声优却用本音唱这种事了，这是角色歌嘛，我想听角色用自己的声音来唱歌啊
+
+剧中曲真好听！！耳机简直享受
+
+
+
+
+
+
+
+-----
+
+####  安广多惠子  
+##### 2310#       发表于 2018-8-21 20:57
+
+
+
+
+拿掉台词和音效后听得清楚乐器的感觉很棒，几首都非常赞，确实不可多得
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2311#       发表于 2018-8-21 21:02
+
+
+
+
+这CD有点讨巧啊，没新内容的。
+
+
+
+
+
+
+
+-----
+
+####  YESIARE  
+##### 2312#       发表于 2018-8-21 21:23
+
+
+
+
+前两首恋哥哥的中途插入...我还是陪着画面听比较好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhaoyanggolden  
+##### 2313#       发表于 2018-8-21 21:25
+
+
+
+
+渣恋乱入实在是……
+
+
+
+
+
+
+
+-----
+
+####  明明无亦无  
+##### 2314#       发表于 2018-8-21 21:46
+
+
+
+
+听剧中歌之前<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+听剧中歌之后，恋哥哥不要呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  chexk03  
+##### 2315#       发表于 2018-8-21 21:56
+
+
+
+
+剧中歌比之前的什么角色歌主题歌好听N倍，但怎么听下来不像普通曲子的格式…
+
+前奏和节奏怎么那么长，实际内容基本和动画差不多？？
+
+
+
+
+
+
+
+-----
+
+####  faxi  
+##### 2316#       发表于 2018-8-21 22:13
+
+
+
+<blockquote>chexk03 发表于 2018-8-21 21:56
+
+剧中歌比之前的什么角色歌主题歌好听N倍，但怎么听下来不像普通曲子的格式…
+
+前奏和节奏怎么那么长，实际内 ...</blockquote>
+就是动画去掉了对白和其他音效的版本，包括时长都是一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不知道该说实诚还是偷懒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2tch  
+##### 2317#       发表于 2018-8-21 22:20
+
+
+
+
+重看第一话才发现nana的登场台词是"我全都知道"。另外剧中歌真好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  curiousnoob  
+##### 2318#       发表于 2018-8-21 22:21
+
+
+
+<blockquote>chexk03 发表于 2018-8-21 21:56
+
+剧中歌比之前的什么角色歌主题歌好听N倍，但怎么听下来不像普通曲子的格式…
+
+前奏和节奏怎么那么长，实际内 ...</blockquote>
+几首歌背景本身就挺好听的，特别是恋球。
+
+
+不过还是没什么诚意，12+OST我都买了现在感情复杂
+
+
+
+
+
+
+
+-----
+
+####  墨村白丁  
+##### 2319#       发表于 2018-8-21 23:37
+
+
+
+
+華戀閉嘴啊！！！！！
+
+編曲有想法，很豐富（雖然略炫技過頭）。Karen唱地棒讀，演出畫面還拖後腿……
+
+恋の魔球3：45處，轉小調後鋼琴配給ひかり，刪掉莫名其妙薩克斯，用大提琴/巴松下方異向對位，由緩推急至激愴，絕對猛男落淚。
+
+渣戀吹喇叭去！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  桥田至  
+##### 2320#       发表于 2018-8-22 00:23
+
+
+
+
+谁能麻烦给我传个 私たちの居る理由  320KB的  我记的CD老早就发售了吧 网上根本没资源，只有B站有视频....
+
+
+
+
+
+
+
+-----
+
+####  魔术师梅丽  
+##### 2321#       发表于 2018-8-22 00:29
+
+
+
+
+算是叙事曲，不过确实不太可能加词
+
+非常棒没得说
+
+
+
+
+
+
+
+-----
+
+####  ziyer  
+##### 2322#       发表于 2018-8-22 00:34
+
+
+
+
+我不看歌剧不知道是不是因为歌剧的原因所以才这样收录。
+
+不过这样听，曲子真的各方面都很优秀啊。。。
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 2323#       发表于 2018-8-22 00:35
+
+
+
+<blockquote>桥田至 发表于 2018-8-22 00:23
+
+谁能麻烦给我传个 私たちの居る理由  320KB的  我记的CD老早就发售了吧 网上根本没资源，只有B站有视频.... ...</blockquote>
+因为发售的根本就不是CD啊，这歌收在舞台剧#1的BD的特典CD里，不知道买舞台剧BD的人里有没有人放流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 2324#       发表于 2018-8-22 01:04
+
+
+
+
+上mora看了一眼，第7集的fly me to the star只有伴奏，但是演唱者的名义写的是九九组（全员）而不是蕉姐姐，当然这只是一个写法而已并不能特别说明什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+http://mora.jp/package/43000004/PCCG-01706_F/
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2325#       发表于 2018-8-22 01:08
+
+
+
+
+歌单独拿出来听都太棒了，动画有演出分神不少
+
+
+
+
+
+
+
+-----
+
+####  DOACAON  
+##### 2326#       发表于 2018-8-22 01:16
+
+
+
+<blockquote>unnilennium 发表于 2018-8-21 11:04
+
+上mora看了一眼，第7集的fly me to the star只有伴奏，但是演唱者的名义写的是九九组（全员）而不是蕉姐姐 ...</blockquote>
+说明第七话蕉哥哥和其他人同归于尽，开始再一次loop了。演唱者确实是九九组全员……的尸体，所以无声。
+
+
+
+
+
+
+
+-----
+
+####  feif  
+##### 2327#       发表于 2018-8-22 01:24
+
+
+
+
+我觉得平常会唱歌的人唱歌和说话也常常不是一个声线，舞台少女这样不就更正常了么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真的受不了华恋这种掐着嗓子唱…尤其是第二首the star knows太破坏情绪了…简直想大喊闭嘴啊（这还能嘴炮掉眼镜我不服啊！）
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2328#       发表于 2018-8-22 01:29
+
+
+
+<blockquote>feif 发表于 2018-8-22 01:24
+
+我觉得平常会唱歌的人唱歌和说话也常常不是一个声线，舞台少女这样不就更正常了么真的受不了华恋这 ...</blockquote>
+恋哥哥在舞台剧里都唱得好好的，怎么换个地儿这就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YujsD  
+##### 2329#       发表于 2018-8-22 01:30
+
+
+
+<blockquote>DOACAON 发表于 2018-8-22 01:16
+说明第七话蕉哥哥和其他人同归于尽，开始再一次loop了。演唱者确实是九九组全员……的尸体，所以无声 ...</blockquote>
+让我想起去年prpr时有人脑补了一个最后小贝一个人在休息室用变声器模仿大家聊天的全灭结局<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 2330#       发表于 2018-8-22 02:06
+
+
+
+<blockquote>wuaistage1 发表于 2018-8-22 01:29
+
+恋哥哥在舞台剧里都唱得好好的，怎么换个地儿这就</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">舞台剧把鬼变成人，动画化把人变成鬼
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 2331#       发表于 2018-8-22 02:15
+
+
+
+<blockquote>YujsD 发表于 2018-8-22 01:30
+
+让我想起去年prpr时有人脑补了一个最后小贝一个人在休息室用变声器模仿大家聊天的全灭结局 ...</blockquote>
+你们够了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20180625015315.png
+(87 KB, 下载次数: 21)
+
+
+
+
+下载附件
+
+
+2018-8-22 02:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201808/22/021541iqcpq0ljb660qajq.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  drilleye  
+##### 2332#       发表于 2018-8-22 02:31
+
+
+
+
+半夜循环听得停不下来了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ezyh  
+##### 2333#       发表于 2018-8-22 09:50
+
+
+
+
+循环中<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+其实我觉得还好……恋哥儿的声音听习惯了就没那么扎耳了
+唱这样估计是音监要求的，舞台剧c位唱我存在于此的理由时的恋哥儿惊为天人
+应该跟邦邦爱美的情况一样，本身唱得很好，要用动画音唱就必须扯嗓子
+毕竟不是每个能唱歌的人都是高垣彩阳……
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端
+
+
+
+
+
+
+
+-----
+
+####  Lyrical_Magical  
+##### 2334#       发表于 2018-8-22 10:00
+
+
+
+
+这张cd的封面是不是不完整啊，我严重怀疑站在顶点的是蕉哥哥！
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2335#       发表于 2018-8-22 10:34
+
+
+
+
+我觉得 这剧中歌盘更像是OST<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  faxi  
+##### 2336#       发表于 2018-8-22 11:06
+
+
+
+<blockquote>桥田至 发表于 2018-8-22 00:23
+
+谁能麻烦给我传个 私たちの居る理由  320KB的  我记的CD老早就发售了吧 网上根本没资源，只有B站有视频.... ...</blockquote>
+https://nyaa.si/view/1064826
+
+NYAA上有人放流舞台剧的CD
+
+主要是少歌的东西不太好搜，关键字有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2337#         楼主| 发表于 2018-8-22 11:30
+
+
+
+
+第7話 大場なな
+
+脚本：樋口達人　　絵コンテ：古川知宏　　演出：塚本あかね
+
+
+その包容力と優しさで2年Ａ組を包み込んできた大場なな。彼女の大きな愛情の原点は1年生の時に上演した第99回聖翔祭の「スタァライト」にあった。ななの記憶に深く刻み込まれ彼女自身を変えたもの。彼女がその「再演」に執着する理由とは……？
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fuibj0o57sj20lc0c0wfh.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fuibj0o6g4j20lc0c0aau.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuibj0s2dmj20lc0c0dhk.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fuibj0pvqxj20lc0c0myc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skives  
+##### 2338#       发表于 2018-8-22 11:36
+
+
+
+
+好黄
+
+
+
+
+
+
+
+-----
+
+####  无聊者X  
+##### 2339#       发表于 2018-8-22 11:45
+
+
+
+
+蕉哥为啥非要绑这个奇怪的发型<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 S1Next-鹅版 v2.0.2
+
+
+
+
+
+
+
+-----
+
+####  Archlich  
+##### 2340#       发表于 2018-8-22 11:51
+
+
+
+
+监督回哦
 
 
 

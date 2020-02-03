@@ -146,7 +146,7 @@ if __name__ == '__main__':
                     i = re.sub(r'\n</td>','',i)
                     i = re.sub(r'</td>\n','',i)
                     i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','[[[[img src="',i)
-                    i = re.sub(r'"/>','" referrerpolicy="no-referrer"]]]]',i)
+                    i = re.sub(r'"/>','"/)',i)
                     i = re.sub(r'<img .*?file="','[[[[img src="',i)
                     i = re.sub(r'jpg".+\)','jpg" referrerpolicy="no-referrer"]]]]',i)
                     i = re.sub(r'png".+\)','png" referrerpolicy="no-referrer"]]]]',i)
