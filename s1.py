@@ -7,6 +7,25 @@ import sys
 import io
 import os
 
+def login(username, password, on_success, on_fail):
+    # on_success: 登录成功成功回调方法 sess: session
+    # on_fail: 登录失败时回调
+    sess = requests.Session()
+    resp = sess.post(
+        "https://bbs.saraba1st.com/2b/member.php?mod=logging&action=login&loginsubmit=yes&infloat=yes&lssubmit=yes&inajax=1",
+        data={'username': username, 'password': password}).text
+    if 'https://bbs.saraba1st.com/2b/./' in resp:
+        sess.headers.update({
+            'Host': 'bbs.saraba1st.com',
+            'User-Agent': 'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:72.0) Gecko/20100101 Firefox/72.0',
+            'Accept': 'text/html,application/xhtml+xml,application/xml;q=0.9,image/webp,*/*;q=0.8',
+            'Accept-Language': 'zh-CN,zh;q=0.8,zh-TW;q=0.7,zh-HK;q=0.5,en-US;q=0.3,en;q=0.2',
+            'Accept-Encoding': 'gzip, deflate, br',
+            'Connection': 'keep-alive'
+        })
+        on_success(sess)
+    else:
+        on_fail()
 
 def parse_html(html):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
@@ -43,12 +62,12 @@ if __name__ == '__main__':
     # url = 'https://bbs.saraba1st.com/2b/thread-1822440-1-1.html'
 
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
-    # cookie_str = r'_uab_collina=155477530039882998306669; unadblock=unadblock; __cfduid=dbd9e91983f1006c21f9b52cf37acb8b11554775298; UM_distinctid=169ffd45b2d286-073a4d25f4b92d-50343a5f-e1000-169ffd45b2e42c; _ga=GA1.2.902980739.1557052203; CNZZDATA1260281688=1437865748-1554770314-%7C1561100744; B7Y9_2132_smile=1465D1; B7Y9_2132_saltkey=D3GhbOZZ; B7Y9_2132_lastvisit=1561765113; B7Y9_2132_auth=1619AbWnQbtlJXBLZ0zuyUz0UKMjttG9Pf0kwh5s0%2ByxuNPtJoS4aPS%2FWl2C5A5W1qUQB%2F4%2FICiR0GZ7HJW8WIH3WCg; B7Y9_2132_lastcheckfeed=516449%7C1561781389; B7Y9_2132_atlist=516449%2C464256%2C155015%2C103359; B7Y9_2132_pc_size_c=0; B7Y9_2132_myrepeat_rr=R0; B7Y9_2132_yfe_in=1; B7Y9_2132_home_diymode=1; B7Y9_2132_sid=Q93K9v; B7Y9_2132_lip=122.225.220.132%2C1562057066; B7Y9_2132_visitedfid=75D6D51D4D48D74D115D83D135D140; B7Y9_2132_ulastactivity=d47fmAvt1i0%2Bb3i9vYV4yq%2Fln3eNvBgiMDs4EKhxNqnZZH2WOWC%2F; B7Y9_2132_viewid=tid_1298078; B7Y9_2132_sendmail=1; B7Y9_2132_st_p=516449%7C1562059958%7C7e01de1252f7bb996db04ad86fbf8a90; B7Y9_2132_st_t=516449%7C1562060149%7C7155932698e9a43f85f1c156d2b0c90d; B7Y9_2132_forum_lastvisit=D_27_1560306880D_140_1561288600D_48_1561513979D_115_1561800443D_74_1561806905D_4_1562042418D_51_1562049201D_6_1562055798D_75_1562060149; B7Y9_2132_checkpm=1; B7Y9_2132_lastact=1562060150%09forum.php%09ajax'
-    # # #把cookie字符串处理成字典，以便接下来使用
-    # cookies = {}
-    # for line in cookie_str.split(';'):
-    #     key, value = line.split('=', 1)
-    #     cookies[key] = value
+    cookie_str = r'YOUR COOKIES'
+    # #把cookie字符串处理成字典，以便接下来使用
+    cookies = {}
+    for line in cookie_str.split(';'):
+        key, value = line.split('=', 1)
+        cookies[key] = value
 
     # 设置请求头
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
@@ -59,12 +78,12 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
-    pages = ['1787418']
+    pages = ['1911905','1906409','1571184','1574553','1499843','1351199','1787418','1062484','1910584','1911928','1911848']
     for page in pages:
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
         time.sleep(0.1)
-        # s1 = requests.get(RURL, headers=headers,  cookies = cookies)
-        s1 = requests.get(RURL, headers=headers)
+        s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+        # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
         namelist, replylist,totalpage,title= parse_html(data)
@@ -75,7 +94,8 @@ if __name__ == '__main__':
         # thread = 1
                 RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-'+str(thread)+'-1.html'
                 time.sleep(0.1)
-                s1 = requests.get(RURL, headers=headers)
+                # s1 = requests.get(RURL, headers=headers)
+                s1 = requests.get(RURL, headers=headers,  cookies=cookies)
                 data = s1.content
                 namelist, replylist,totalpage,title= parse_html(data) 
                 nametime = []
@@ -96,8 +116,12 @@ if __name__ == '__main__':
                 for i in replylist:
                     i = re.sub(r'\r','\n',str(i))
                     # i = re.sub(r'\n\n','\n',i)
-                    i = re.sub(r'<blockquote>|</blockquote>','\n```\n',i)
+                    i = re.sub(r'<blockquote>','[[[[blockquote]]]]',i)
+                    i = re.sub(r'</blockquote>','[[[[/blockquote]]]]',i)
                     # i = re.sub(r'</blockquote>','\n',i)
+                    i = re.sub(r'<strong>','[[[[strong]]]]',i)
+                    i = re.sub(r'</strong>','[[[[/strong]]]]',i)
+                    # i = re.sub(r'</strong>','** ',i)
                     i = re.sub(r'<span class=\"icon_ring vm\">','﹍﹍﹍\n\n',str(i))
                     # i = re.sub(r'068.png','>[香菜捂脸]<',i)
                     # i = re.sub(r'049.png','>[尖嘴嘲讽]<',i)
@@ -121,18 +145,19 @@ if __name__ == '__main__':
                     i = re.sub(r'<td class="x.1">','|',i)
                     i = re.sub(r'\n</td>','',i)
                     i = re.sub(r'</td>\n','',i)
-                    i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','![](',i)
-                    i = re.sub(r'"/>',')',i)
-                    i = re.sub(r'<img .*?file="','[img src="',i)
-                    i = re.sub(r'jpg".+\)','jpg" referrerpolicy="no-referrer"]',i)
-                    i = re.sub(r'png".+\)','png" referrerpolicy="no-referrer"]',i)
-                    i = re.sub(r'gif".+\)','gif" referrerpolicy="no-referrer"]',i)
+                    i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','[[[[img src="',i)
+                    i = re.sub(r'"/>','" referrerpolicy="no-referrer"]]]]',i)
+                    i = re.sub(r'<img .*?file="','[[[[img src="',i)
+                    i = re.sub(r'jpg".+\)','jpg" referrerpolicy="no-referrer"]]]]',i)
+                    i = re.sub(r'png".+\)','png" referrerpolicy="no-referrer"]]]]',i)
+                    i = re.sub(r'gif".+\)','gif" referrerpolicy="no-referrer"]]]]',i)
                     i = re.sub(r'<.+?>','',i)
                     i = re.sub(r'\n(.*?)\|(.*?)\|(.*?)\n','\n|\\1|\\2|\\3|\n',i)
                     i = re.sub(r'收起\n理由','|昵称|战斗力|理由|\n|----|---|---|',i)
                     i = re.sub(r'\|\n+?\|','|\n|',i)
-                    i = re.sub(r'\[img src="','<img src="',i)
-                    i = re.sub(r'"no-referrer"\]','"no-referrer">',i)
+                    i = re.sub(r'\[\[\[\[','<',i)
+                    i = re.sub(r'\]\]\]\]','>',i)
+                    # i = re.sub(r'\[([/b].+ockquote)\]','<\\1>',i)
                 #     i = re.sub(r'\[blockquote\](.+)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n\n',i)
                 #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
                 #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n>\\4\n\n',i)
@@ -159,7 +184,7 @@ if __name__ == '__main__':
                 if(thread == totalpage):
                     count = totalpage +1
                     break
-                if(get_FileSize("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md') >= 1):
+                if(get_FileSize("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
                     os.rename("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md',"C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(thread)+'页.md')
                     startpage = thread+1
                     break
