@@ -116,6 +116,7 @@ if __name__ == '__main__':
                 for i in replylist:
                     i = re.sub(r'\r','\n',str(i))
                     # i = re.sub(r'\n\n','\n',i)
+                    
                     i = re.sub(r'<blockquote>','[[[[blockquote]]]]',i)
                     i = re.sub(r'</blockquote>','[[[[/blockquote]]]]',i)
                     # i = re.sub(r'</blockquote>','\n',i)
@@ -146,7 +147,7 @@ if __name__ == '__main__':
                     i = re.sub(r'\n</td>','',i)
                     i = re.sub(r'</td>\n','',i)
                     i = re.sub(r'<div class="modact">(.+?)</div>','\n\n *\\1* \n\n',i)
-                    i = re.sub(r'<a href="http(.+?)" target="_blank">(.+?)</a>','[[[[a href="http\\1" target="_blank"]]]]\\2[[[[/a]]]]',i)
+                    i = re.sub(r'<a href="http(.+?)" target="_blank">(.+?)</a>','[\\2](http\\1)',i)
                     i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','[[[[img src="',i)
                     i = re.sub(r'"/>','"/)',i)
                     i = re.sub(r'<img .*?file="','[[[[img src="',i)
@@ -154,11 +155,13 @@ if __name__ == '__main__':
                     i = re.sub(r'png".+\)','png" referrerpolicy="no-referrer"]]]]',i)
                     i = re.sub(r'gif".+\)','gif" referrerpolicy="no-referrer"]]]]',i)
                     i = re.sub(r'<.+?>','',i)
+                    
                     i = re.sub(r'\n(.*?)\|(.*?)\|(.*?)\n','\n|\\1|\\2|\\3|\n',i)
                     i = re.sub(r'收起\n理由','|昵称|战斗力|理由|\n|----|---|---|',i)
                     i = re.sub(r'\|\n+?\|','|\n|',i)
                     i = re.sub(r'\[\[\[\[','<',i)
                     i = re.sub(r'\]\]\]\]','>',i)
+                    i = re.sub(r'\[(.+?发表于.+?\d)\]\((http.+?)\)','<a href="http\\2" target="_blank">\\1</a>',i)
                     # i = re.sub(r'\[([/b].+ockquote)\]','<\\1>',i)
                 #     i = re.sub(r'\[blockquote\](.+)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n\n',i)
                 #     i = re.sub(r'\[blockquote\](.+)$\n(.*)$\n(.*)\[/blockquote\]','>\\1\n>\\2\n>\\3\n\n',i)
