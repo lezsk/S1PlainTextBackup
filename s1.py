@@ -145,6 +145,8 @@ if __name__ == '__main__':
                     i = re.sub(r'<td class="x.1">','|',i)
                     i = re.sub(r'\n</td>','',i)
                     i = re.sub(r'</td>\n','',i)
+                    i = re.sub(r'<div class="modact">(.+?)</div>','\n\n *\\1* \n\n',i)
+                    i = re.sub(r'<a href="http(.+?)" target="_blank">(.+?)</a>','[[[[a href="http\\1" target="_blank"]]]]\\2[[[[/a]]]]',i)
                     i = re.sub(r'<img alt=\".*?\" border=\"\d+?\" smilieid=\"\d+?\" src=\"','[[[[img src="',i)
                     i = re.sub(r'"/>','"/)',i)
                     i = re.sub(r'<img .*?file="','[[[[img src="',i)
