@@ -7,6 +7,28 @@ import sys
 import io
 import os
 
+def mkdir(path):
+    # 引入模块
+    import os
+ 
+    # 去除首位空格
+    path=path.strip()
+    # 去除尾部 \ 符号
+    path=path.rstrip("\\")
+ 
+    # 判断路径是否存在
+    # 存在     True
+    # 不存在   False
+    isExists=os.path.exists(path)
+ 
+    # 判断结果
+    if not isExists:
+        os.makedirs(path) 
+        return True
+    else:
+        # 如果目录存在则不创建，并提示目录已存在
+        return False
+
 def login(username, password, on_success, on_fail):
     # on_success: 登录成功成功回调方法 sess: session
     # on_fail: 登录失败时回调
@@ -78,6 +100,7 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
+    rootdir="C:/Users/riko/Documents/S1/S1PlainTextBackup/"
     pages = ['1911905','1906409','1571184','1574553','1499843','1351199','1787418','1062484','1910584','1911928','1911848']
     for page in pages:
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
@@ -87,6 +110,18 @@ if __name__ == '__main__':
         # s1.encoding='utf-8'
         data = s1.content
         namelist, replylist,totalpage,title= parse_html(data)
+        titles = re.sub(r'<.+?>','',str(title))
+        titles = re.sub(r'[\]\[]','',titles)
+        titles = re.sub(r'\|','｜',titles)
+        titles = re.sub(r'/','／',titles)
+        titles = re.sub(r'\\','＼',titles)
+        titles = re.sub(r':','：',titles)
+        titles = re.sub(r'\*','＊',titles)
+        titles = re.sub(r'\?','？',titles)
+        titles = re.sub(r'"','＂',titles)
+        titles = re.sub(r'<','＜',titles)
+        titles = re.sub(r'>','＞',titles)
+        mkdir(rootdir+str(page)+'-'+titles+'/')
         startpage = 1
         count = 1
         while(count <= totalpage):
@@ -176,29 +211,29 @@ if __name__ == '__main__':
                 output = re.sub(r'\r','\n',output)
                 # output = re.sub(r'\n\n\n','\n',output)
                 # output = re.sub(r'\n\n\n','\n',output)
-                titles = re.sub(r'<.+?>','',str(title))
-                titles = re.sub(r'[\]\[]','',titles)
-                titles = re.sub(r'\|','｜',titles)
-                titles = re.sub(r'/','／',titles)
-                titles = re.sub(r'\\','＼',titles)
-                titles = re.sub(r':','：',titles)
-                titles = re.sub(r'\*','＊',titles)
-                titles = re.sub(r'\?','？',titles)
-                titles = re.sub(r'"','＂',titles)
-                titles = re.sub(r'<','＜',titles)
-                titles = re.sub(r'>','＞',titles)
+                # titles = re.sub(r'<.+?>','',str(title))
+                # titles = re.sub(r'[\]\[]','',titles)
+                # titles = re.sub(r'\|','｜',titles)
+                # titles = re.sub(r'/','／',titles)
+                # titles = re.sub(r'\\','＼',titles)
+                # titles = re.sub(r':','：',titles)
+                # titles = re.sub(r'\*','＊',titles)
+                # titles = re.sub(r'\?','？',titles)
+                # titles = re.sub(r'"','＂',titles)
+                # titles = re.sub(r'<','＜',titles)
+                # titles = re.sub(r'>','＞',titles)
                 # titles = re.sub(r'】',']',titles)
                 # currenttime = time.strftime('%Y-%m-%d',time.localtime(time.time()))
                 # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
                     # 
                         # f.write(str(i)+'\n')
-                with open("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
+                with open(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
                     f.write(output)
                 if(thread == totalpage):
                     count = totalpage +1
                     break
-                if(get_FileSize("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
-                    os.rename("C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(totalpage)+'页.md',"C:/Users/riko/Desktop/"+str(page)+'-'+titles+str(startpage)+'-'+str(thread)+'页.md')
+                if(get_FileSize(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
+                    os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md')
                     startpage = thread+1
                     break
 
