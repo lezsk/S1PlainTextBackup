@@ -121,7 +121,8 @@ if __name__ == '__main__':
         titles = re.sub(r'"','＂',titles)
         titles = re.sub(r'<','＜',titles)
         titles = re.sub(r'>','＞',titles)
-        mkdir(rootdir+str(page)+'-'+titles+'/')
+        if(totalpage >= 50):
+            mkdir(rootdir+str(page)+'-'+titles+'/')
         startpage = 1
         count = 1
         while(count <= totalpage):
@@ -227,15 +228,22 @@ if __name__ == '__main__':
                 # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
                     # 
                         # f.write(str(i)+'\n')
-                with open(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
-                    f.write(output)
-                if(thread == totalpage):
-                    count = totalpage +1
-                    break
-                if(get_FileSize(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
-                    os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md')
-                    startpage = thread+1
-                    break
+                if(totalpage >= 50):
+                    with open(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
+                        f.write(output)
+                    if(thread == totalpage):
+                        count = totalpage +1
+                        break
+                    if(get_FileSize(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
+                        os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md')
+                        startpage = thread+1
+                        break
+                else:
+                    with open(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
+                        f.write(output)
+                    if(thread == totalpage):
+                        count = totalpage +1
+                        break
 
 
 
