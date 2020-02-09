@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-09 23:09** 
+> ## **本文件最后更新于2020-02-10 01:09** 
 
 
 
@@ -11674,6 +11674,71 @@ nmd人工呼吸先二指挑下巴把嘴合拢你要搞基直说啊今石哥哥�
 
 好吧，抛开先入为主的看法，普罗米亚拍得相当紧凑，两个小时不给观 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到的时候满脑子都是wtf，后来想了想这么可爱的男孩子无所谓了
+
+
+
+
+
+
+
+-----
+
+####  chivalry  
+##### 598#       发表于 2020-2-10 00:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雅人叔表现得真不错，我一直觉得boss要百倍奉还啊
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 599#       发表于 2020-2-10 00:54
+
+
+
+
+没有剧情支撑，光靠打戏我真的爽不起来
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 600#       发表于 2020-2-10 00:56
+
+
+
+
+挺好看的，剧情反正不能多想爽就完事。说实话男主男二这个纯度也就是基者见基真的。感觉基的可以检查一下自己是不是深柜。就是感觉自己有点泽野ptsd了，各种串戏xbx，klk
+
+
+
+
+
+
+
+-----
+
+####  ohi  
+##### 601#       发表于 2020-2-10 01:00
+
+
+
+
+大开大合，好多以往作品的影子，那条发狂的龙太狂气了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SO-02J, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
 
