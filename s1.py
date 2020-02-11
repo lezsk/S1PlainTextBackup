@@ -9,9 +9,6 @@ import os
 import json
 
 def mkdir(path):
-    # 引入模块
-    import os
- 
     # 去除首位空格
     path=path.strip()
     # 去除尾部 \ 符号
@@ -41,7 +38,19 @@ def parse_html(html):
     #     return soupname, souptime, next_page['herf']
     title = soup.find_all(name='span',attrs={"id":"thread_subject"})
     total_page = int((re.findall(r'<span title="共 (\d+) 页">', str(soup)) + [1])[0])
-    return namelist,replylist,total_page,title
+    titles = re.sub(r'<.+?>','',str(title))
+    titles = re.sub(r'[\]\[]','',titles)
+    titles = re.sub(r'\|','｜',titles)
+    titles = re.sub(r'/','／',titles)
+    titles = re.sub(r'\\','＼',titles)
+    titles = re.sub(r':','：',titles)
+    titles = re.sub(r'\*','＊',titles)
+    titles = re.sub(r'\?','？',titles)
+    titles = re.sub(r'"','＂',titles)
+    titles = re.sub(r'<','＜',titles)
+    titles = re.sub(r'>','＞',titles)
+    titles = re.sub(r'\.\.\.','…',titles)
+    return namelist,replylist,total_page,titles
 # \d{4}-\d{1}-\d{1}\s\d{2}\:\d{2}
 
 def addtimestamp(filedir,lasttimestamp):
@@ -57,7 +66,7 @@ def get_FileSize(filePath):
  
     return round(fsize, 2)
 
-def FormatStr(namelist, replylist,totalpage,title):
+def FormatStr(namelist, replylist,totalpage):
     nametime = []
     replys = []
     times = []
@@ -137,19 +146,7 @@ if __name__ == '__main__':
         # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
-        namelist, replylist,totalpage,title= parse_html(data)
-        titles = re.sub(r'<.+?>','',str(title))
-        titles = re.sub(r'[\]\[]','',titles)
-        titles = re.sub(r'\|','｜',titles)
-        titles = re.sub(r'/','／',titles)
-        titles = re.sub(r'\\','＼',titles)
-        titles = re.sub(r':','：',titles)
-        titles = re.sub(r'\*','＊',titles)
-        titles = re.sub(r'\?','？',titles)
-        titles = re.sub(r'"','＂',titles)
-        titles = re.sub(r'<','＜',titles)
-        titles = re.sub(r'>','＞',titles)
-        titles = re.sub(r'\.\.\.','…',titles)
+        namelist, replylist,totalpage,titles= parse_html(data)
         thdata[i]['title'] = titles
         if(totalpage > int(thdata[i]['totalpage'])):
             thdata[i]['totalpage'] = str(totalpage)
@@ -164,8 +161,8 @@ if __name__ == '__main__':
                     # s1 = requests.get(RURL, headers=headers)
                     s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
                     data = s1.content
-                    namelist, replylist,totalpage,title= parse_html(data) 
-                    output = FormatStr(namelist, replylist,totalpage,title)                
+                    namelist, replylist,totalpage,titles= parse_html(data) 
+                    output = FormatStr(namelist, replylist)                
                     # titles = re.sub(r'】',']',titles)
                     # currenttime = time.strftime('%Y-%m-%d',time.localtime(time.time()))
                     # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
