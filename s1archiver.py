@@ -122,7 +122,7 @@ def FormatStr(namelist, replylist,totalpage):
 if __name__ == '__main__':
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
-    cookie_str = r'YOUR COOKIES'
+    cookie_str = r'YourCookie'
     # #把cookie字符串处理成字典，以便接下来使用
     cookies = {}
     for line in cookie_str.split(';'):
@@ -137,10 +137,9 @@ if __name__ == '__main__':
 
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
-
+    
     for i in range(len(thdata)):
         page = thdata[i]['id']
-        
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
         s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
         # s1 = requests.get(RURL, headers=headers)
@@ -148,6 +147,7 @@ if __name__ == '__main__':
         data = s1.content
         namelist, replylist,totalpage,titles= parse_html(data)
         thdata[i]['title'] = titles
+        deletepage = int(thdata[i]['totalpage'])
         if(totalpage > int(thdata[i]['totalpage'])):
             thdata[i]['totalpage'] = str(totalpage)
             if(int(thdata[i]['lastpage']) > 1):
@@ -176,6 +176,8 @@ if __name__ == '__main__':
                         if(thread == totalpage):
                             count = totalpage +1
                             addtimestamp(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',lastsave)
+                            if(os.path.exists(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')):
+                                os.remove(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')
                             thdata[i]['lastedit'] = str(int(time.time()))
                             # os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页@'+lastsave+'.md')
                             break
@@ -198,9 +200,16 @@ if __name__ == '__main__':
                         if(thread == totalpage):
                             count = totalpage +1
                             addtimestamp(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',lastsave)
+                            if(os.path.exists(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')):
+                                os.remove(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')
                             thdata[i]['lastedit'] = str(int(time.time()))
                             break
         if(int(time.time()) - int(thdata[i]['lastedit']) > 15552000):
             thdata.pop(i)
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+
+
+
+
+
