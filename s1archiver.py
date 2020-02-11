@@ -128,7 +128,7 @@ if __name__ == '__main__':
 
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
-
+    
     for i in range(len(thdata)):
         page = thdata[i]['id']
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
