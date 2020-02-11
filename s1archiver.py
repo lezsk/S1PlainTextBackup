@@ -135,25 +135,25 @@ if __name__ == '__main__':
     下面的page为帖子号，默认从第一页开始下载
     '''
     rootdir="C:/Users/riko/Documents/S1/S1PlainTextBackup/"
-
-    threads = ['1808327']
+    
+    threads = ['1857164']
     for ThreadID in threads:
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
-        s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
+        s1 = requests.get(RURL, headers=headers,  cookies=cookies)
         # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
         namelist, replylist,totalpage,titles= parse_html(data)
         filedir = rootdir+str(ThreadID)+titles+'/'
         mkdir(filedir)
-        startpage = 851
+        startpage = 101
         finishflag = 1
         ThreadContent = [' ']*50
         PageCount = 0
         for thread in range(startpage,totalpage+1):
             RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
             # s1 = requests.get(RURL, headers=headers)
-            s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
+            s1 = requests.get(RURL, headers=headers,  cookies=cookies)
             data = s1.content
             namelist, replylist,totalpage,titles= parse_html(data) 
             ThreadContent[PageCount] = FormatStr(namelist, replylist)
