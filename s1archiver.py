@@ -7,11 +7,9 @@ import sys
 import io
 import os
 import json
+import math
 
 def mkdir(path):
-    # 引入模块
-    import os
- 
     # 去除首位空格
     path=path.strip()
     # 去除尾部 \ 符号
@@ -41,7 +39,20 @@ def parse_html(html):
     #     return soupname, souptime, next_page['herf']
     title = soup.find_all(name='span',attrs={"id":"thread_subject"})
     total_page = int((re.findall(r'<span title="共 (\d+) 页">', str(soup)) + [1])[0])
-    return namelist,replylist,total_page,title
+    titles = re.sub(r'<.+?>','',str(title))
+    titles = re.sub(r'[\]\[]','',titles)
+    titles = re.sub(r'\|','｜',titles)
+    titles = re.sub(r'/','／',titles)
+    titles = re.sub(r'\\','＼',titles)
+    titles = re.sub(r':','：',titles)
+    titles = re.sub(r'\*','＊',titles)
+    titles = re.sub(r'\?','？',titles)
+    titles = re.sub(r'"','＂',titles)
+    titles = re.sub(r'<','＜',titles)
+    titles = re.sub(r'>','＞',titles)
+    titles = re.sub(r'\.\.\.','…',titles)
+    titles = '['+titles+']'
+    return namelist,replylist,total_page,titles
 # \d{4}-\d{1}-\d{1}\s\d{2}\:\d{2}
 
 def addtimestamp(filedir,lasttimestamp):
@@ -57,7 +68,7 @@ def get_FileSize(filePath):
  
     return round(fsize, 2)
 
-def FormatStr(namelist, replylist,totalpage,title):
+def FormatStr(namelist, replylist):
     nametime = []
     replys = []
     times = []
@@ -75,7 +86,6 @@ def FormatStr(namelist, replylist,totalpage,title):
     for i in replylist:
         i = re.sub(r'\r','\n',str(i))
         # i = re.sub(r'\n\n','\n',i)
-        
         i = re.sub(r'<blockquote>','[[[[blockquote]]]]',i)
         i = re.sub(r'</blockquote>','[[[[/blockquote]]]]',i)
         # i = re.sub(r'</blockquote>','\n',i)
@@ -126,93 +136,35 @@ if __name__ == '__main__':
     '''
     rootdir="C:/Users/riko/Documents/S1/S1PlainTextBackup/"
 
-    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-        thdata=json.load(f)
-    
-    for i in range(len(thdata)):
-        page = thdata[i]['id']
-        RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-1-1.html'
+    threads = ['1808327']
+    for ThreadID in threads:
+        RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
         s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
         # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
-        namelist, replylist,totalpage,title= parse_html(data)
-        titles = re.sub(r'<.+?>','',str(title))
-        titles = re.sub(r'[\]\[]','',titles)
-        titles = re.sub(r'\|','｜',titles)
-        titles = re.sub(r'/','／',titles)
-        titles = re.sub(r'\\','＼',titles)
-        titles = re.sub(r':','：',titles)
-        titles = re.sub(r'\*','＊',titles)
-        titles = re.sub(r'\?','？',titles)
-        titles = re.sub(r'"','＂',titles)
-        titles = re.sub(r'<','＜',titles)
-        titles = re.sub(r'>','＞',titles)
-        titles = re.sub(r'\.\.\.','…',titles)
-        thdata[i]['title'] = titles
-        deletepage = int(thdata[i]['totalpage'])
-        if(totalpage > int(thdata[i]['totalpage'])):
-            thdata[i]['totalpage'] = str(totalpage)
-            if(int(thdata[i]['lastpage']) > 1):
-                mkdir(rootdir+str(page)+'-'+titles+'/')
-            startpage = int(thdata[i]['lastpage'])
-            count = 1
-            while(count <= totalpage):
-                for thread in range(startpage,totalpage+1):
-            # thread = 1
-                    RURL = 'https://bbs.saraba1st.com/2b/thread-'+page+'-'+str(thread)+'-1.html'
-                    # s1 = requests.get(RURL, headers=headers)
-                    s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
-                    data = s1.content
-                    namelist, replylist,totalpage,title= parse_html(data) 
-                    output = FormatStr(namelist, replylist,totalpage,title)                
-                    # titles = re.sub(r'】',']',titles)
-                    # currenttime = time.strftime('%Y-%m-%d',time.localtime(time.time()))
-                    # with open("C:/Users/riko/Desktop/test.md",'w',encoding='utf-8') as f:
-                        # 
-                            # f.write(str(i)+'\n')
-                    # with open(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
-                    lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
-                    if(int(thdata[i]['lastpage']) > 1):
-                        with open(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
-                            f.write(output)
-                        if(thread == totalpage):
-                            count = totalpage +1
-                            addtimestamp(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',lastsave)
-                            if(os.path.exists(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')):
-                                os.remove(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')
-                            thdata[i]['lastedit'] = str(int(time.time()))
-                            # os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页@'+lastsave+'.md')
-                            break
-                        if(get_FileSize(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
-                            os.rename(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md')
-                            addtimestamp(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md',lastsave)
-                            startpage = thread+1
-                            thdata[i]['lastpage'] = str(startpage)
-                            break
-                    else:
-                        with open(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',"a",encoding='utf-8') as f:
-                            f.write(output)
-                        if(get_FileSize(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md') >= 0.9):
-                            os.rename(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md')
-                            addtimestamp(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(thread)+'页.md',lastsave)
-                            startpage = thread+1
-                            thdata[i]['lastpage'] = str(startpage)
-                            mkdir(rootdir+str(page)+'-'+titles+'/')
-                            break
-                        if(thread == totalpage):
-                            count = totalpage +1
-                            addtimestamp(rootdir+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(totalpage)+'页.md',lastsave)
-                            if(os.path.exists(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')):
-                                os.remove(rootdir+str(page)+'-'+titles+'/'+str(page)+'-'+titles+'-'+str(startpage)+'-'+str(deletepage)+'页.md')
-                            thdata[i]['lastedit'] = str(int(time.time()))
-                            break
-        if(int(time.time()) - int(thdata[i]['lastedit']) > 15552000):
-            thdata.pop(i)
-    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-        f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-
-
-
-
-
+        namelist, replylist,totalpage,titles= parse_html(data)
+        filedir = rootdir+str(ThreadID)+titles+'/'
+        mkdir(filedir)
+        startpage = 851
+        finishflag = 1
+        ThreadContent = [' ']*50
+        PageCount = 0
+        for thread in range(startpage,totalpage+1):
+            RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
+            # s1 = requests.get(RURL, headers=headers)
+            s1 = requests.get(RURL, headers=headers,  cookies=cookies, timeout=10)
+            data = s1.content
+            namelist, replylist,totalpage,titles= parse_html(data) 
+            ThreadContent[PageCount] = FormatStr(namelist, replylist)
+            PageCount = PageCount + 1
+            if(PageCount == 50 or thread == totalpage):
+                lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
+                pages = '%02d' %math.ceil(thread/50)
+                filename = str(ThreadID)+titles+'-'+str(pages)+'.md'
+                with open(filedir+filename,'w',encoding='utf-8') as f:
+                    f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
+                    f.writelines(ThreadContent)
+                ThreadContent = [' ']*50
+                PageCount = 0
+                
