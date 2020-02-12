@@ -1,4 +1,5 @@
-# # -*- coding: UTF-8 -*-
+# -*- coding: UTF-8 -*-
+#!/usr/bin/env/ python3
 import requests
 from bs4 import BeautifulSoup
 import re
@@ -9,12 +10,16 @@ import os
 import json
 import math
 
+def remov(path):
+    path=path.encode('utf-8')
+    if(os.path.exists(path)):
+        os.remove(path)
 def mkdir(path):
     # 去除首位空格
     path=path.strip()
     # 去除尾部 \ 符号
     path=path.rstrip("\\")
- 
+    path=path.encode('utf-8')
     # 判断路径是否存在
     # 存在     True
     # 不存在   False
@@ -22,7 +27,7 @@ def mkdir(path):
  
     # 判断结果
     if not isExists:
-        os.makedirs(path) 
+        os.makedirs(path)
         return True
     else:
         # 如果目录存在则不创建，并提示目录已存在
@@ -134,37 +139,51 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
-    rootdir="C:/Users/riko/Documents/S1/S1PlainTextBackup/"
-    
-    threads = ['1857164']
-    for ThreadID in threads:
+    rootdir="/home/ubuntu/S1PlainTextBackup/"
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+        thdata=json.load(f)
+    for i in range(len(thdata)):
+        ThreadID = thdata[i]['id']
+        lastpage = int(thdata[i]['totalpage'])
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
         s1 = requests.get(RURL, headers=headers,  cookies=cookies)
         # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
         namelist, replylist,totalpage,titles= parse_html(data)
-        filedir = rootdir+str(ThreadID)+titles+'/'
-        mkdir(filedir)
-        startpage = 101
-        finishflag = 1
-        ThreadContent = [' ']*50
-        PageCount = 0
-        for thread in range(startpage,totalpage+1):
-            RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
-            # s1 = requests.get(RURL, headers=headers)
-            s1 = requests.get(RURL, headers=headers,  cookies=cookies)
-            data = s1.content
-            namelist, replylist,totalpage,titles= parse_html(data) 
-            ThreadContent[PageCount] = FormatStr(namelist, replylist)
-            PageCount = PageCount + 1
-            if(PageCount == 50 or thread == totalpage):
-                lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
-                pages = '%02d' %math.ceil(thread/50)
-                filename = str(ThreadID)+titles+'-'+str(pages)+'.md'
-                with open(filedir+filename,'w',encoding='utf-8') as f:
-                    f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
-                    f.writelines(ThreadContent)
-                ThreadContent = [' ']*50
-                PageCount = 0
-                
+        if(totalpage > lastpage):
+            if(totalpage > 50):
+                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
+                mkdir(filedir)
+            else:
+                filedir = rootdir+thdata[i]['category']+'/'
+            #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
+            startpage = (lastpage-1)//50*50+1
+            ThreadContent = [' ']*50
+            PageCount = 0
+            lastpages = '%02d' %math.ceil(lastpage/50)
+            remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
+            for thread in range(startpage,totalpage+1):
+                RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
+                # s1 = requests.get(RURL, headers=headers)
+                s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+                data = s1.content
+                namelist, replylist,totalpage,titles= parse_html(data) 
+                ThreadContent[PageCount] = FormatStr(namelist, replylist)
+                PageCount = PageCount + 1
+                if(PageCount == 50 or thread == totalpage):
+                    lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
+                    pages = '%02d' %math.ceil(thread/50)
+                    filename = str(ThreadID)+titles+'-'+str(pages)+'.md'
+                    with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
+                        f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
+                        f.writelines(ThreadContent)
+                    ThreadContent = [' ']*50
+                    PageCount = 0                                        
+            thdata[i]['totalpage'] = totalpage
+            thdata[i]['lastedit'] = str(int(time.time()))
+            thdata[i]['title'] = titles
+        if((int(time.time()) - int(thdata[i]['lastedit'])) > 7776000 or totalpage == 1):
+            thdata.pop(i)
+        with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+            f.write(json.dumps(thdata,indent=2,ensure_ascii=False))

@@ -1,4 +1,4 @@
-# # -*- coding: UTF-8 -*-
+# -*- coding: UTF-8 -*-
 import requests
 from bs4 import BeautifulSoup
 import re
@@ -14,7 +14,7 @@ def mkdir(path):
     path=path.strip()
     # 去除尾部 \ 符号
     path=path.rstrip("\\")
- 
+    path=path.encode('utf-8')
     # 判断路径是否存在
     # 存在     True
     # 不存在   False
@@ -22,7 +22,7 @@ def mkdir(path):
  
     # 判断结果
     if not isExists:
-        os.makedirs(path) 
+        os.makedirs(path)
         return True
     else:
         # 如果目录存在则不创建，并提示目录已存在
@@ -134,7 +134,7 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
-    rootdir="C:/Users/riko/Documents/S1/S1PlainTextBackup/"
+    rootdir="/home/ubuntu/S1PlainTextBackup/"
     
     threads = ['1857164']
     for ThreadID in threads:
@@ -162,7 +162,7 @@ if __name__ == '__main__':
                 lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
                 pages = '%02d' %math.ceil(thread/50)
                 filename = str(ThreadID)+titles+'-'+str(pages)+'.md'
-                with open(filedir+filename,'w',encoding='utf-8') as f:
+                with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
                     f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
                     f.writelines(ThreadContent)
                 ThreadContent = [' ']*50
