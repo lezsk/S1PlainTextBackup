@@ -10,10 +10,10 @@ import os
 import json
 import math
 
-def remov(path):
-    path=path.encode('utf-8')
-    if(os.path.exists(path)):
-        os.remove(path)
+# def remov(path):
+#     path=path.encode('utf-8')
+#     if(os.path.exists(path)):
+#         os.remove(path)
 def mkdir(path):
     # 去除首位空格
     path=path.strip()
@@ -161,8 +161,8 @@ if __name__ == '__main__':
             startpage = (lastpage-1)//50*50+1
             ThreadContent = [' ']*50
             PageCount = 0
-            lastpages = '%02d' %math.ceil(lastpage/50)
-            remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
+            # lastpages = '%02d' %math.ceil(lastpage/50)
+            # remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
             for thread in range(startpage,totalpage+1):
                 RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
                 # s1 = requests.get(RURL, headers=headers)

@@ -135,19 +135,22 @@ if __name__ == '__main__':
     下面的page为帖子号，默认从第一页开始下载
     '''
     rootdir="/home/ubuntu/S1PlainTextBackup/"
-    
-    threads = ['1857164']
-    for ThreadID in threads:
+    thdata=[{'id':'','category':''}]
+    # threads = ['1829754','1839962','1848341','1856302','1863536']
+    for i in range(len(thdata)):
+        ThreadID = thdata[i]['id']
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
         s1 = requests.get(RURL, headers=headers,  cookies=cookies)
         # s1 = requests.get(RURL, headers=headers)
         # s1.encoding='utf-8'
         data = s1.content
         namelist, replylist,totalpage,titles= parse_html(data)
-        filedir = rootdir+str(ThreadID)+titles+'/'
-        mkdir(filedir)
-        startpage = 101
-        finishflag = 1
+        if(totalpage > 50):
+            filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
+            mkdir(filedir)
+        else:
+            filedir = rootdir+thdata[i]['category']+'/'
+        startpage = 1
         ThreadContent = [' ']*50
         PageCount = 0
         for thread in range(startpage,totalpage+1):

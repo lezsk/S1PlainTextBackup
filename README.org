@@ -17,9 +17,11 @@
 
 *** 脚本使用须知
 
-- 在RefreshingData.json中存放有待检查更新的帖子，会自动移除最后 *翻页* 日期为半年（180天）之前的帖子信息。
-- 如果是初次使用，只需要在RefreshingData.json中填入id即可自动生成后续信息。
-- 为确保可被GitHub网页渲染，单个文件大小需控制在1M以内，故拆分成多个文件。
+- RefreshingData.json的必填数据格式：
+    - id：代表帖子id
+    - totalpage：新帖子为1
+    - category：代表放进哪个文件夹
+- 为确保可被GitHub网页渲染，单个文件大小需控制在1M以内，故以50页为限，拆分成多个文件。
 - 所有图片采取markdown格式链接，均为网络图片，不保证可用性。
     - 如果加载不出来请采用网络加速手段，因为GitHub的markdown预览会把图片先自己缓存一次，所以你获取图片的来源就变成了GitHub了。也可以把md文件下载到本地用本地markdown客户端进行预览，这样你就是直连的图片源。
 - 如需要本地图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
