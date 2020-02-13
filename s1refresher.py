@@ -142,6 +142,7 @@ if __name__ == '__main__':
     rootdir="/home/ubuntu/S1PlainTextBackup/"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
+    savethdata = thdata[:]
     for i in range(len(thdata)):
         ThreadID = thdata[i]['id']
         lastpage = int(thdata[i]['totalpage'])
@@ -180,10 +181,10 @@ if __name__ == '__main__':
                         f.writelines(ThreadContent)
                     ThreadContent = [' ']*50
                     PageCount = 0                                        
-            thdata[i]['totalpage'] = totalpage
-            thdata[i]['lastedit'] = str(int(time.time()))
-            thdata[i]['title'] = titles
-        if((int(time.time()) - int(thdata[i]['lastedit'])) > 259200 or totalpage == 1):
-            thdata.pop(i)
+            savethdata[i]['totalpage'] = totalpage
+            savethdata[i]['lastedit'] = str(int(time.time()))
+            savethdata[i]['title'] = titles
+        if((int(time.time()) - int(savethdata[i]['lastedit'])) > 259200 or totalpage == 1):
+            savethdata.pop(i)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
