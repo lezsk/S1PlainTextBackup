@@ -1,5 +1,6 @@
 #!/bin/bash
-/usr/bin/python3.6 /home/ubuntu/s1refresher.py
+#cd /home/ubuntu/S1PlainTextBackup
+python3 /home/ubuntu/s1refresher.py
 datime=$(date "+%Y-%m-%d %H:%M")
 git add .
 git commit -m "上传于$datime"
