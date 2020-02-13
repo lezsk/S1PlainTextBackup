@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-12 15:28** 
+> ## **本文件最后更新于2020-02-13 20:01** 
 
 
 
@@ -15056,7 +15056,7 @@ BG 还是战队组舒服啊，三对 BG 还都是善终啊……也别是ココ�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301107&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 22:26</a>
 
 治愈组的楼怎么成了茶几鞭挞大会了？</blockquote>
-OP里看到帅哥就想到BG，想到BG就得提起蓝神，提起蓝神就必须拉出来批判。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+OP里看到帅哥就想到BG，想到BG就得提起蓝神，提起蓝神就必须拉出来批判。[f:245]
 
 
 
@@ -16087,9 +16087,9 @@ UMB的声线还是接受不了，总觉得别扭</blockquote>
 
  本帖最后由 Sliurus 于 2020-2-2 13:28 编辑 
 
-第一集观感还行，节奏很快，简单交代了一下主要角色的形象。虽然之前有汁波密这种文静型的，但是病弱型的还真没见过。哪天打完病倒进医院就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+第一集观感还行，节奏很快，简单交代了一下主要角色的形象。虽然之前有汁波密这种文静型的，但是病弱型的还真没见过。哪天打完病倒进医院就有意思了[f:220]
 
-粉兔子居然认识反派，而且还挺熟的样子，能不能安排一下淫兽跟反派的恋爱情节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+粉兔子居然认识反派，而且还挺熟的样子，能不能安排一下淫兽跟反派的恋爱情节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，怪不得推上有跟奏太太的联动图，南野奏天堂[f:245]
 
 ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两个ed那种调调
 
@@ -19911,7 +19911,7 @@ umb声线好高，听着刺耳。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46366009&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-9 04:07</a>
 
 网上放不当做官方发布也会躲不了版权问题？</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">现在看，貌似不行，应该是东映让撤了吧
+[f:218]现在看，貌似不行，应该是东映让撤了吧
 
 
 
@@ -22578,7 +22578,7 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 我同意粉主和正太干部在一起
 
 话说三干部的名字271是怎么翻译的</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我不同意，正太脸太尖太帅了，一点也不可爱
+[f:213]我不同意，正太脸太尖太帅了，一点也不可爱
 
 
 
@@ -22787,4 +22787,506 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 
 
 
-          
+
+
+-----
+
+####  达达葱2  
+##### 1180#       发表于 2020-2-12 16:47
+
+
+
+<blockquote>cmyk1234 发表于 2020-2-12 14:48
+听说初代的淫兽跟q娃唱反调是常态？</blockquote>
+金闪闪:不行吗
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1181#       发表于 2020-2-12 17:13
+
+
+
+
+风评比较好的淫兽好像也没几个，大部分都是熊孩子的水平。
+
+个人喜欢塔鲁特，哈米，丝带和哈姆哈利
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1182#       发表于 2020-2-12 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46397664&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-12 15:06</a>
+
++1，母的神烦，看着都想冲上去扇个巴掌，但关键时候还是挺可靠也懂低头认错，想想小小年纪来到异世界也不 ...</blockquote>
+前两代都是，公的变身器神烦还欠揍（一哥对淫兽莫名好，说什么给什么，二哥倒是会威胁不给饭吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），小的无论公母都烦
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 1183#       发表于 2020-2-12 18:19
+
+
+
+
+不知道为什么兔子叫粉主的名字时一直幻听成馒头卡，有毒<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1184#       发表于 2020-2-12 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46399222&amp;ptid=1860852" target="_blank">蓬莱妹红 发表于 2020-2-12 18:19</a>
+
+不知道为什么兔子叫粉主的名字时一直幻听成馒头卡，有毒</blockquote>
+毕竟就差一个字
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1185#       发表于 2020-2-12 20:36
+
+
+
+
+你们太扭曲了，蓝色这一点也不像六花好吧
+
+倒是像南会长和纱绫的结合体
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1186#       发表于 2020-2-12 22:16
+
+
+
+
+菱川六花女士可是q娃第一玩具 怎么能忘讷
+柴田遗民 无时无刻不怀念心跳朝的说<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鸣上悠  
+##### 1187#       发表于 2020-2-12 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396889&amp;ptid=1860852" target="_blank">久井路路 发表于 2020-2-12 13:41</a>
+
+只是有些担忧，毕竟是那个写出法爷单元回的，不用铺长成长线的话在单元回里塑造角色需要足够的本事，但是 ...</blockquote>
+大部分比起待遇差就是存在感很低，打架大部分时候这是观众或者道具，日常戏份还很多时候不带淫兽玩
+
+只有1-2只的时候戏份还挺充足，男的有时候还能变帅哥跟Q娃来个感情戏，女的或许能变身成Q娃
+
+但是每个Q娃人手一只的时候每一只淫兽和Q娃互动一次（例如吵架回）个人回好像就是极限了
+
+这次不止人手一只，还有一狗
+
+
+
+
+
+
+
+-----
+
+####  鸣上悠  
+##### 1188#       发表于 2020-2-12 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46400334&amp;ptid=1860852" target="_blank">catenary 发表于 2020-2-12 20:36</a>
+
+你们太扭曲了，蓝色这一点也不像六花好吧
+
+
+倒是像南会长和纱绫的结合体</blockquote>
+蓝的不六花，只是正太在大家眼中配蓝色
+
+
+
+
+
+
+
+-----
+
+####  不能摸的屁屁  
+##### 1189#       发表于 2020-2-13 00:53
+
+
+
+
+蓝色是运动系帅气大姐姐，还是粉主憧憬的类型→坐等痛快多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1190#       发表于 2020-2-13 08:05
+
+
+
+
+今年的女主真是人间体之鉴，肉身搬大树肉身拉怪，而且还是有想法那种不是瞎拉怪，爱了
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1191#       发表于 2020-2-13 08:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46401812&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-12 23:24</a>
+
+蓝的不六花，只是正太在大家眼中配蓝色</blockquote>
+大鸟邮递员、狼少年、奏太、朱利奥表示不服
+
+
+
+
+
+
+
+-----
+
+####  asda  
+##### 1192#       发表于 2020-2-13 08:26
+
+
+
+
+Umb配得很差，可能之前声带使用过度伤了，配不了幼女，音调怎么也升不上去，半死不活似的（还是说这是病弱的设定需要）
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1193#       发表于 2020-2-13 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46403504&amp;ptid=1860852" target="_blank">asda 发表于 2020-2-13 08:26</a>
+
+Umb配得很差，可能之前声带使用过度伤了，配不了幼女，音调怎么也升不上去，半死不活似的（还是说这是病弱 ...</blockquote>
+UMB 是不是想要有意避免用馒头卡声线？
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1194#       发表于 2020-2-13 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46406279&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 14:18</a>
+
+UMB 是不是想要有意避免用馒头卡声线？</blockquote>
+感觉悠木碧避免不了立花响声线，激动时的配音表达听起来相当明显。
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1195#       发表于 2020-2-13 16:13
+
+
+
+
+今年的人设还是挺不错的
+和佳弱气和母性并存，而且现在来看塑造的很好
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  猫坤  
+##### 1196#       发表于 2020-2-13 16:15
+
+
+
+<blockquote>cmyk1234 发表于 2020-2-13 16:04
+感觉悠木碧避免不了立花响声线，激动时的配音表达听起来相当明显。</blockquote>
+其实她其它作品里大抵都是这样
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1197#       发表于 2020-2-13 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407349&amp;ptid=1860852" target="_blank">猫坤 发表于 2020-2-13 16:15</a>
+
+其实她其它作品里大抵都是这样</blockquote>
+我想了想，三瓶配音梦原队长时，好像没听到破出本来声线的情况，这是体质因素吗？
+
+
+
+
+
+
+
+-----
+
+####  最低人间肥宅  
+##### 1198#       发表于 2020-2-13 16:28
+
+
+
+
+我对UMB最有印象的声线，还是配痴女）
+
+期待接下来对蓝色的痴女行为）
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1199#       发表于 2020-2-13 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407338&amp;ptid=1860852" target="_blank">catenary 发表于 2020-2-13 16:13</a>
+今年的人设还是挺不错的
+和佳弱气和母性并存，而且现在来看塑造的很好</blockquote>
+哪来的母性？照顾拿铁然后不能坐视不管那一段？
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 1200#       发表于 2020-2-13 17:54
+
+
+
+
+估计是OP最后的和佳那个回头(Q娃态和常态)就有了那个“母性”气质
+
+
+题外话，微博上一群大友在人设图和PV刚出之时就对着和佳喊妈了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1201#       发表于 2020-2-13 18:03
+
+
+
+
+怪不得有些母性萝莉的漫画这么有市场，怎么看怎么怪的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1202#       发表于 2020-2-13 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46408159&amp;ptid=1860852" target="_blank">Blackson 发表于 2020-2-13 17:54</a>
+
+估计是OP最后的和佳那个回头(Q娃态和常态)就有了那个“母性”气质
+
+
+题外话，微博上一群大友在人设图和PV刚 ...</blockquote>
+那是花花PTSD病人从中看出了花花味
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1203#       发表于 2020-2-13 18:19
+
+
+
+ 本帖最后由 風駿 于 2020-2-13 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407367&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-2-13 16:17</a>
+
+我想了想，三瓶配音梦原队长时，好像没听到破出本来声线的情况，这是体质因素吗？ ...</blockquote>
+可是三爷声线都没能稳住，5早期和5gogo根本不是一种声线，不知道破出本来声线是怎么个定义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+然后同样的，凹配响爷时间跨度也很久，第一季和后面差异十分明显，但是配小圆的时候就没感觉有什么差异
+
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1204#       发表于 2020-2-13 18:48
+
+
+
+ 本帖最后由 cmyk1234 于 2020-2-13 18:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46408340&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-13 18:19</a>
+可是三爷声线都没能稳住，5早期和5gogo根本不是一种声线，不知道破出本来声线是怎么个定义
+
+
+然后同 ...</blockquote>
+就是破出与业务无关的本音。
+东映魔女子动画系列主角群有几个CV是钦定非选拔的，如佐藤顺一点名要宍户留美上场。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1205#       发表于 2020-2-13 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46396955&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-12 13:49</a>
+
+现在就期待反派少年会不会潜入学校以及给自己起什么名</blockquote>
+别。反派一旦潜入学校就开始插满洗白 FLAG。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1206#       发表于 2020-2-13 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46401790&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-12 23:22</a>
+
+大部分比起待遇差就是存在感很低，打架大部分时候这是观众或者道具，日常戏份还很多时候不带淫兽玩
+
+只有1- ...</blockquote>
+就是不多不少人手一只。狗是追加战士的变身器。
+
+
+
+
+
+         
