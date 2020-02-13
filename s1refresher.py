@@ -187,4 +187,4 @@ if __name__ == '__main__':
         if((int(time.time()) - int(savethdata[i]['lastedit'])) > 259200 or totalpage == 1):
             savethdata.pop(i)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-            f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+            f.write(json.dumps(savethdata,indent=2,ensure_ascii=False))
