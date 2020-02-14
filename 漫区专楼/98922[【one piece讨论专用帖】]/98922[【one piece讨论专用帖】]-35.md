@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-14 00:08** 
+> ## **本文件最后更新于2020-02-14 16:06** 
 
 
 
@@ -9505,9 +9505,9 @@ WT最近是不是关东煮吃太多食物中毒了<img src="https://static.sarab
 
 
 
- 本帖最后由 DGIL 于 2020-2-13 17:53 编辑 
+ 本帖最后由 DGIL 于 2020-2-14 07:22 编辑 
 
-我懂了！原来傻瓜殿下是指御田真的是个煞笔！而他能在外面横着走乱来，都是因为他运气好，上的是世界上最强的两个人的船！跟着世界上最好的船团，当然没有任何问题，反正有人擦屁股有人照着，他自己玩的话就是这样煞笔！
+我懂了！原来傻瓜殿下是指御田是真的傻！而他能在外面横着走乱来，都是因为他运气好，上的是世界上最强的两个人的船！跟着世界上最好的船团，当然没有任何问题，反正有人擦屁股有人照着，他自己玩的话就是这样的结果！
 
 
 
@@ -9902,4 +9902,966 @@ WT最近是不是关东煮吃太多食物中毒了<img src="https://static.sarab
 
 
 
-                                 
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 51496#       发表于 2020-2-14 00:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/14/001209shiwheqlmgm9m3wj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>cd1090b7d0a20cf4bf79dca261094b36adaf9970.jpg</strong> (140.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-14 00:12 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/14/001209jjjzsb65rybsjrre.jpg" referrerpolicy="no-referrer">
+
+
+<strong>d**f7628535e5dd42c587a261c6a7efcf1b6270.jpg</strong> (134.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-14 00:12 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/14/001208quppwzpsim22soqw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1619841ea8d3fd1f91e18047274e251f94ca5f71.jpg</strong> (230.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-14 00:12 上传
+
+
+
+
+
+
+
+贴吧版海贼王还是一如既往的生草<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 51497#       发表于 2020-2-14 01:26
+
+
+
+ 本帖最后由 evangelina 于 2020-2-14 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46407458&amp;ptid=98922" target="_blank">今天不守尸 发表于 2020-2-13 16:28</a>
+
+我简单描述一下御田跳舞的经过嗷，是不是“ 御田跳了2年，救了7万人，开心！凯多笑了笑又再抓10万人，然后 ...</blockquote>
+
+这不就是本子里被人胁迫卖身的女主角剧情，关东煮说是杰克苏玛丽苏真的没问题
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51498#       发表于 2020-2-14 01:33
+
+
+
+ 本帖最后由 灰狼 于 2020-2-14 01:44 编辑 
+
+虽然作为尾田孝子这么说不好，但是我现在满脑子都是希望之花，，
+
+
+要是动画做到这里的时候真的是时夫人（或者艺妓）唱歌桃子抬头
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 51499#       发表于 2020-2-14 02:05
+
+
+
+
+感觉回忆还有两三话，还没到时夫人怎样帮他们穿越呢，应该至少回忆到这里才会结束吧
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 51500#       发表于 2020-2-14 09:08
+
+
+
+
+如果真的是自己时间线脑抽bug了硬填我尚可接受，如果这段的效果真是尾田事前就想好的，那我真的有点没法直视现在的尾田了
+
+—— 来自 HUAWEI FRD-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51501#       发表于 2020-2-14 09:56
+
+
+
+
+我在考虑大蛇到底高配明哥还是低配明哥，，
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51502#       发表于 2020-2-14 10:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46413270&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-14 09:56</a>
+
+我在考虑大蛇到底高配明哥还是低配明哥，，</blockquote>
+别多想，不然某些火鸡粉还不把你头给打爆了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51503#       发表于 2020-2-14 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46413345&amp;ptid=98922" target="_blank">angelooo 发表于 2020-2-14 10:06</a>
+
+别多想，不然某些火鸡粉还不把你头给打爆了</blockquote>
+但是现在就，，诶
+
+我现在不好说圆没圆回来，但现在这是真的奔着德岛2.0去了
+
+
+复刻哪个不好复刻这个，，
+
+
+
+这别到最后黑胡子真的是明哥究级体吧
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 51504#       发表于 2020-2-14 11:45
+
+
+
+
+已经被刃牙吧拿来生草了(悲)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 51505#       发表于 2020-2-14 12:37
+
+
+
+
+看人总结尾田现在的情况是喜欢制造噱头，而填充物常常对不起这个噱头。当初的山治年就是非常典型的例子。
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 51506#       发表于 2020-2-14 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46414163&amp;ptid=98922" target="_blank">Algie 发表于 2020-2-14 11:45</a>
+已经被刃牙吧拿来生草了(悲)
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+你听说过……关东煮的故事吗？
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51507#       发表于 2020-2-14 13:08
+
+
+
+
+好奇动画到这里要怎么处理
+
+
+这不像哲普吃腿和白胡子削脸那么好糊弄过去（当然白胡子改了以后也没有漫画版震撼了）
+
+
+
+
+
+
+
+-----
+
+####  theti  
+##### 51508#       发表于 2020-2-14 13:30
+
+
+
+
+韩文版出了，还是很憨
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51509#       发表于 2020-2-14 14:17
+
+
+
+
+就问能不能把年轻的小忍还给我<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerock  
+##### 51510#       发表于 2020-2-14 14:19
+
+
+
+ 本帖最后由 zerock 于 2020-2-14 14:21 编辑 
+
+大蛇一共抓了几百人，御田每次跳舞放100个，大蛇造一条船五年后让御田出海
+
+御田每周都到各乡去检查有无异样，但就是没关注船造的怎么样了
+
+
+五年后御田还在跳舞，船连影子都没有，御田恍然大悟
+
+是我哪里看错了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有大蛇号称要毁灭和之国，二十年过去了和之国还在，我怎么觉得这是在洗白大蛇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 51511#       发表于 2020-2-14 14:24
+
+
+
+
+纠正楼上，造船是凯多和大蛇离开和之国
+
+现在和之国活着的存在不是比死还惨？
+
+
+刚看完，先表个态，我觉得可以接受
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51512#       发表于 2020-2-14 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415454&amp;ptid=98922" target="_blank">zerock 发表于 2020-2-14 14:19</a>
+
+大蛇一共抓了几百人，御田每次跳舞放100个，大蛇造一条船五年后让御田出海
+
+御田每周都到各乡去检查有无异样 ...</blockquote>
+相信会造船这个蠢到家了没法洗
+
+大蛇你可以理解是为了要让和之国所有人生不如死，但从刚开始一堆小屁孩上课还在黑御田和九侠，我很怀疑小忍披露的真相到底他妈的起到了多大的作用，要么和之国大部分国民都是弱智要么都是都去忍辱负重了
+
+顺便我求求WT了，你可以说一开始那些反派还要作为线索人物留着，现在他妈的都快完结了就不能杀一两个人渣祭天吗？尼玛我再也不想看到磁鼓国那傻逼东山再起的剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 51513#       发表于 2020-2-14 14:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没什么好说的 真的就是憨
+
+就算他真在战斗中打赢了凯多我都信御田会被被简单的糊弄过去
+
+而关键问题处理真的太随意了 甚至不是一句憨可以解释的
+
+
+
+
+
+
+
+-----
+
+####  theti  
+##### 51514#       发表于 2020-2-14 14:36
+
+
+
+
+全力对战御田九侠加上全国武士，大蛇他们哪有精力被追着打还要平民的命。只是蠢罢了
+
+
+
+
+
+
+
+-----
+
+####  ttgg777  
+##### 51515#       发表于 2020-2-14 14:36
+
+
+
+
+御田这家伙出道带他的大佬都是人品好实力强的，破事估计都没遇上，遇上了也是大佬扛了，人根本没长进。
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 51516#       发表于 2020-2-14 14:39
+
+
+
+
+大蛇这段不就是明哥2.0嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 51517#       发表于 2020-2-14 14:40
+
+
+
+
+中文版出了，还是很憨
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 51518#       发表于 2020-2-14 14:41
+
+
+
+
+另外凯多也确实显得越来越low了，和大蛇平起平坐不说，有几个画面给人一种他就是大蛇打手的感觉
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51519#       发表于 2020-2-14 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415642&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-2-14 14:41</a>
+
+另外凯多也确实显得越来越low了，和大蛇平起平坐不说，有几个画面给人一种他就是大蛇打手的感觉 ...</blockquote>
+莫利亚粉表示现在只想掀桌<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zerock  
+##### 51520#       发表于 2020-2-14 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415492&amp;ptid=98922" target="_blank">刹那の劍 发表于 2020-2-14 14:24</a>
+
+纠正楼上，造船是凯多和大蛇离开和之国
+
+现在和之国活着的存在不是比死还惨？</blockquote>
+大蛇和凯多自己没有船吗？或者说御田跳舞五年就为了让大蛇发动人力大干五年造出能送走几万人的船？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那确实是我理解错了，这个选项根本不在我设想的范围里
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 51521#       发表于 2020-2-14 14:47
+
+
+
+
+去扫了眼韩肉凯多完全就是个瘪三阿，我记得泥潭还有凯多粉来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 51522#       发表于 2020-2-14 14:51
+
+
+
+
+完了，这下真的完了。。。
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 51523#       发表于 2020-2-14 14:52
+
+
+
+<blockquote>zerock 发表于 2020-2-14 14:19
+大蛇一共抓了几百人，御田每次跳舞放100个，大蛇造一条船五年后让御田出海
+
+御田每周都到各乡去检查有无异样 ...</blockquote>
+不止这些人，你忘了工厂，御田那次回和之国的时候，工厂就已经开始了，其他那些人应该是工厂里的。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51524#       发表于 2020-2-14 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415726&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2020-2-14 14:52</a>
+
+不止这些人，你忘了工厂，御田那次回和之国的时候，工厂就已经开始了，其他那些人应该是工厂里的。 ...</blockquote>
+其实按照这个逻辑，全和之国的人都和大蛇有仇，御田得跳够全国人的份
+
+
+但是和之国如果才25000人也太少了
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51525#       发表于 2020-2-14 14:56
+
+
+
+ 本帖最后由 灰狼 于 2020-2-14 15:00 编辑 
+
+感觉下一话大概就是女人唱歌男人死么
+
+
+不管怎么说回忆快结束了。。我不信这次还能推鸟笼（啊不对对面有个人有毒气，那么这次难道是缩毒圈？）
+
+
+说起来在外网看到一个说法，凯多可能是看御田煮了1个小时被刺激到了，然后开始各种自杀找刺激
+
+
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 51526#       发表于 2020-2-14 15:01
+
+
+
+
+话说内奸到底是谁啊，都要下油锅啊还能忍着不跳，太敬业了吧。。。
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 51527#       发表于 2020-2-14 15:03
+
+
+
+ 本帖最后由 天下至贱 于 2020-2-14 15:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415672&amp;ptid=98922" target="_blank">angelooo 发表于 2020-2-14 14:44</a>
+
+莫利亚粉表示现在只想掀桌</blockquote>
+小忍的回忆里你能看到御田和凯多已经开打了，然后又是大蛇在一边一句话解围。完全就是所谓决战的翻版，搞得两个人从头到尾没好好真打几下，两边都low得不行。
+
+
+这种级别的强者不好好搞个立得住的形象是会拉低整个层次的评价的，剧场版的**金狮子都是平行世界也就罢了，凯多这个只能理解成wt就是想描写出一个外表莽夫内心low比的多重人格患者了。老沙出海时与白团争斗过会拉高评价，莫利亚被这样的凯多搞成ptsd只会…
+
+
+另外大蛇的方案，“即使发动战争也要阻止我们继续抓人吗，那你的损失可就大了”“敌人是对这个国家根本没有兴趣的‘复仇者’，很明显无论胜败损失都巨大”，已经让人完全看不懂逻辑了。
+
+<img src="https://img.saraba1st.com/forum/202002/14/152013nfjumj8ymuyqlpup.jpg" referrerpolicy="no-referrer">
+
+
+<strong>thread_131678986449280_20200214145817_s_145241_w_580_h_902_47125.jpg</strong> (135.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-14 15:20 上传
+
+
+
+
+
+<img src="https://i11.hoopchina.com.cn/hupuapp/bbs/131678986449280/thread_131678986449280_20200214145817_s_145241_w_580_h_902_47125.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51528#       发表于 2020-2-14 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415821&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-2-14 15:03</a>
+
+小忍的回忆里你能看到御田和凯多已经开打了，然后又是大蛇在一边一句话解围。完全就是所谓决战的翻版，搞 ...</blockquote>
+是这样的，凯多这个人设目前为止太迷了，先前被大家各种喷的神经病巨婴大妈我看都比他正常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 51529#       发表于 2020-2-14 15:10
+
+
+
+
+草，看完感觉御田依旧low逼，凯多再low一分，大蛇反而没那么low了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+还有小忍你丫别想着给御田摘帽子，傻瓜殿下这帽子御田得戴好了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 51530#       发表于 2020-2-14 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415642&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-2-14 14:41</a>
+
+另外凯多也确实显得越来越low了，和大蛇平起平坐不说，有几个画面给人一种他就是大蛇打手的感觉 ...</blockquote>
+毕竟自杀不会死，但泡澡一小时会晕菜
+
+
+
+
+
+
+
+-----
+
+####  zero12  
+##### 51531#       发表于 2020-2-14 15:24
+
+
+
+
+尾田这是同一种套路写多了想不出新套路了啊。
+
+这种苦大仇深的套路看多了就觉得受苦的国王都是弱智，被坏人一威胁连智商都没有了。
+
+真就和ntr游戏里被裸照威胁的女主一个水平。
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 51532#       发表于 2020-2-14 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实我挺意外这种强者一小时能煮死的 我本来觉得会煮几天
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 51533#       发表于 2020-2-14 15:30
+
+
+
+
+御田的愧疚是不是因为之前回来的时候选择继续航行不回家导致的，觉得都是自己导致的和之国目前的现状。
+
+
+还有他不甘心死掉的缘由，是必须他来迎接快乐男孩吗
+
+
+
+
+
+
+
+-----
+
+####  暗杀翻看是  
+##### 51534#       发表于 2020-2-14 15:30
+
+
+
+
+既然大家都不满意尾田的处理，那这段剧情怎么写比较好？既要御田强于凯多，还有御田失败被杀，俩人还都不丢逼格？
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51535#       发表于 2020-2-14 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415999&amp;ptid=98922" target="_blank">faust123 发表于 2020-2-14 15:22</a>
+毕竟自杀不会死，但泡澡一小时会晕菜</blockquote>
+能力者泡澡一小时真的会晕，所以还是淋浴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ttgg777  
+##### 51536#       发表于 2020-2-14 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46416076&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2020-2-14 15:30</a>
+
+既然大家都不满意尾田的处理，那这段剧情怎么写比较好？既要御田强于凯多，还有御田失败被杀，俩人还都不丢 ...</blockquote>
+御田刚回来，杀到大蛇那里，被屏障挡住，然后凯多大蛇两人单挑，两人准备拼大招的时候模仿果实把桃之助变出来让御田分一下心，凯多大招拼赢，拿下御田，下一幕让凯多喷大蛇就可以了，反正大蛇low无所谓。而且凯多又不是正直的人，完全可以塑造成不喜欢单挑的时候别人插手但是真侥幸赢了也不在乎的形象，也不损逼格。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51537#       发表于 2020-2-14 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46416076&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2020-2-14 15:30</a>
+既然大家都不满意尾田的处理，那这段剧情怎么写比较好？既要御田强于凯多，还有御田失败被杀，俩人还都不丢 ...</blockquote>
+就很简单啊，为什么御田一定要强于凯多？略逊于凯多导致战败被擒不行了吗？删去跳五年舞和人质，别的剧情不用改，每个人的逼格都能保住。岂不美哉？
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 51538#       发表于 2020-2-14 15:46
+
+
+
+
+就怕白胡子，猫狗也跟着尴尬，他们出海了，找没找白胡子？
+找了没来，喷死。找了来了，怎么没变？
+没找，喷死
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 51539#       发表于 2020-2-14 15:48
+
+
+
+
+没有这五年和相信大蛇的承诺 任何事都好说
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 51540#       发表于 2020-2-14 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46415691&amp;ptid=98922" target="_blank">uponutopia 发表于 2020-2-14 14:47</a>
+
+去扫了眼韩肉凯多完全就是个瘪三阿，我记得泥潭还有凯多粉来着</blockquote>
+现四皇的逼格压力全在红发这儿了，额.....不对，第一话就被山贼王爆头，还被近海之王要了只胳膊。。应该是逼格掉的最早的四皇....<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theti  
+##### 51541#       发表于 2020-2-14 15:51
+
+
+
+<blockquote>暗杀翻看是 发表于 2020-2-14 15:30
+既然大家都不满意尾田的处理，那这段剧情怎么写比较好？既要御田强于凯多，还有御田失败被杀，俩人还都不丢 ...</blockquote>
+御田早看出大蛇奸诈小人五年一直卧薪尝胆磨砺剑技，大蛇带着疫灾和旱灾前去捕杀豹五郎和他家人时被小忍和猫救走。与此同时御田已经带着剩下九侠乘机攻上鬼岛，其他人对付炎灾和小兵，御田单挑凯多。两人互放大招时，模仿果实上线让御田分心战败，凯多对此不知情但表示会在战斗上这种当的人不配当自己对手。保留了战斗狂人的人设
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 51542#       发表于 2020-2-14 16:03
+
+
+
+
+为啥都在喷凯多low
+
+不会真的被五皇洗脑了吧，侠义，信用，义气这些词和“海贼”有一毛钱的关系？
+
+凯多才是真正的不忘初心的带海贼啊
+
+杀的莫里亚全团没剩几个人，够残忍；拿人质威胁欺骗御田，够阴险；对付超新星时狮子搏兔亦用全力，派内奸卧底进行定点空投，平时还去海军薄弱处虐菜营销自己最强生物的名头，可谓卑鄙无耻，有勇有谋，是海贼中的榜样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 51543#       发表于 2020-2-14 16:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/14/160500cp9mos8ocwwz5c8s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>eaa428a4462309f7329347457d0e0cf3d5cad6dc.jpg</strong> (469.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-14 16:05 上传
+
+
+
+
+
+
+
+
+
+
+                               
