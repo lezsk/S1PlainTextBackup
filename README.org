@@ -2,8 +2,9 @@
 
 本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
 
-Gitee地址：https://gitee.com/TomoeMami/S1PlainTextBackup
-GitHub地址：https://github.com/TomoeMami/S1PlainTextBackup
+- Gitee地址：https://gitee.com/TomoeMami/S1PlainTextBackup
+
+- GitHub地址：https://github.com/TomoeMami/S1PlainTextBackup
 
 *** 目前支持的特殊效果
 
