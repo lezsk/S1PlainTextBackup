@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-15 12:33** 
+> ## **本文件最后更新于2020-02-16 04:05** 
 
 
 
@@ -15407,7 +15407,23 @@ P5S,QGN:香疯了,怎么回事啊,真正的P5</blockquote>
 
 
 
+ 本帖最后由 AeonsTorn 于 2020-2-15 21:20 编辑 
+
 <img src="http://i.loli.net/2020/02/13/SRcdxoeH98sYnlv.png" referrerpolicy="no-referrer">机皇这图太草了
+
+
+<img src="https://img.saraba1st.com/forum/202002/15/212006ikvu636pcv36ff66.png" referrerpolicy="no-referrer">
+
+
+<strong>5e4537f55e60279d5098ec5fIB7ZkWL202.png</strong> (58.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-15 21:20 上传
+
+
+
+
 
 
 
@@ -15494,4 +15510,379 @@ P5S,QGN:香疯了,怎么回事啊,真正的P5</blockquote>
 
 
 
-                    
+
+
+-----
+
+####  KuonjiClara  
+##### 6886#       发表于 2020-2-15 18:27
+
+
+
+
+秦川玩这个还不错的,有些时候思路怪异的可以,倒是弹幕大神很弱智,都十多关了还指挥拉字母,也不知道看了半天看的啥.
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6887#       发表于 2020-2-15 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46425475&amp;ptid=1712512" target="_blank">KuonjiClara 发表于 2020-2-15 18:27</a>
+
+秦川玩这个还不错的,有些时候思路怪异的可以,倒是弹幕大神很弱智,都十多关了还指挥拉字母,也不知道看了半天 ...</blockquote>
+云玩家是这样的，阿缺操作时没多想，经常用撤回，看起来就像是在拉字母一样，云的直接认为可以拉了
+
+
+
+
+
+
+
+-----
+
+####  ruojichong  
+##### 6888#       发表于 2020-2-15 20:08
+
+
+
+
+NBA名宿伟天重出江湖
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 6889#       发表于 2020-2-15 22:07
+
+
+
+
+quin二次复出篮坛，但是当年马刺队的兄弟都已经不在了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6890#       发表于 2020-2-15 22:42
+
+
+
+
+狗头人玩这个是真的气人啊
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6891#       发表于 2020-2-15 23:26
+
+
+
+
+艹，马刺上当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终极回归
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6892#       发表于 2020-2-15 23:28
+
+
+
+
+治疗低血压效果拔群
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6893#       发表于 2020-2-15 23:58
+
+
+
+
+不会跳的不死人小前锋
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 6894#       发表于 2020-2-16 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46428011&amp;ptid=1712512" target="_blank">sanxgh571 发表于 2020-2-15 23:58</a>
+不会跳的不死人小前锋</blockquote>
+笑死
+秦川是这有意思，三秒区不懂居然能玩得很开心<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6895#       发表于 2020-2-16 00:07
+
+
+
+
+秦川玩2k实在太搞笑了 
+
+
+
+
+
+
+
+-----
+
+####  茶卡特尔  
+##### 6896#       发表于 2020-2-16 00:09
+
+
+
+ 本帖最后由 茶卡特尔 于 2020-2-16 00:15 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6897#       发表于 2020-2-16 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46428117&amp;ptid=1712512" target="_blank">茶卡特尔 发表于 2020-2-16 00:09</a>
+
+惊了，小秦在逼站这么有排面的吗</blockquote>
+？
+
+没懂
+
+
+
+
+
+
+
+-----
+
+####  茶卡特尔  
+##### 6898#       发表于 2020-2-16 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46428155&amp;ptid=1712512" target="_blank">reficul 发表于 2020-2-16 00:13</a>
+？
+
+没懂</blockquote>
+我理解错了，无视吧
+
+
+
+
+
+
+
+-----
+
+####  gjzeng  
+##### 6899#       发表于 2020-2-16 00:38
+
+
+
+
+Homi Quin ！把我笑出眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yck019  
+##### 6900#       发表于 2020-2-16 01:03
+
+
+
+
+打球笑死了
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6901#       发表于 2020-2-16 02:01
+
+
+
+
+太草了  完全没有防守  被人乱揍
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6902#       发表于 2020-2-16 02:15
+
+
+
+
+凌晨两点的打铁声
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6903#       发表于 2020-2-16 02:27
+
+
+
+
+金钱拿球，太草了
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 6904#       发表于 2020-2-16 02:29
+
+
+
+
+秦川居然也是马刺球迷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Imanmi  
+##### 6905#       发表于 2020-2-16 03:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429035&amp;ptid=1712512" target="_blank">Duncan_Spurs 发表于 2020-2-16 02:29</a>
+秦川居然也是马刺球迷
+
+—— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+他是16年马刺名宿啊
+
+
+
+
+
+
+
+-----
+
+####  gdfs  
+##### 6906#       发表于 2020-2-16 03:10
+
+
+
+
+中文配音加秦川的嘴臭太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6907#       发表于 2020-2-16 03:14
+
+
+
+ 本帖最后由 AeonsTorn 于 2020-2-16 03:21 编辑 
+
+用AI做了首诗，害挺贴切
+金钱拿球 
+金钱拿不住，抛向市中来。 
+若是人饶舌，将何买祸胎。
+
+
+
+
+
+                   
