@@ -1,0 +1,15497 @@
+> ## **本文件最后更新于2020-02-15 12:33** 
+
+
+
+-----
+
+####  甜糯米粥  
+##### 6001#       发表于 2019-11-11 07:56
+
+
+
+
+剧情比想象的还故弄玄虚一点，后期配上过度装逼的演出我都看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过光看感觉gameplay比想象的好不少
+
+
+
+
+
+
+
+-----
+
+####  風舞雪  
+##### 6002#       发表于 2019-11-11 07:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45473586&amp;ptid=1712512" target="_blank">山下野人 发表于 2019-11-11 07:51</a>
+
+剧情说实话挺蛇的，我最后也没整明白这女人为什么要灭世又不灭世。不过演出确实挺能打动人的。 ...</blockquote>
+这个女的可以预见世界必定会灭
+
+只是现在灭 还是以后灭
+
+他觉得太无聊了所以想加速灭世 因为反正都要灭 结果看到自闭男孩弩哥通过努力把世界都连接在一起了 自己也走出自闭 感觉世界又没必要马上灭 所以就先不加速灭世了
+
+就是这样。。
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 6003#       发表于 2019-11-11 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45473586&amp;ptid=1712512" target="_blank">山下野人 发表于 2019-11-11 07:51:07</a>
+剧情说实话挺蛇的，我最后也没整明白这女人为什么要灭世又不灭世。不过演出确实挺能打动人的。 ...</blockquote>就是山姆这一趟链接之旅让她改观了呗，她本身也很纠结，山姆是最关键的一点了，从射她和拥抱她不同结局就可以看出来。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6004#       发表于 2019-11-11 08:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">云完的最大感受是打算明天开始重温EVA…
+
+
+
+
+
+
+
+-----
+
+####  哲学向黑子  
+##### 6005#       发表于 2019-11-11 08:19
+
+
+
+ 本帖最后由 哲学向黑子 于 2019-11-11 08:26 编辑 
+
+跟着quin一起看麻了
+
+唯一的感想就是今晚在重温一次EVA剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+edge这游戏通不了关还真的实在，换我被小岛在结尾部分整一波从西部跑回东部去，不仅是媒体测试期间没有大量玩家搞基建，还得面对4次BT骚扰，我盘都给飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6006#       发表于 2019-11-11 08:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">人与人无限的连接着！我想了半天想到这么一句ghost的台词
+
+
+
+
+
+
+
+-----
+
+####  Lygljj  
+##### 6007#       发表于 2019-11-11 09:26
+
+
+
+
+qgn最终评分，9分，ign搁浅确认
+<img src="https://s2.ax1x.com/2019/11/11/MMKgDU.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6008#       发表于 2019-11-11 09:34
+
+
+
+
+怒 吃人妹 怒
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6009#       发表于 2019-11-11 09:40
+
+
+
+
+ign图一乐
+
+等新的秦川丢人合集，海獭帽我要笑死了
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 6010#       发表于 2019-11-11 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45474388&amp;ptid=1712512" target="_blank">ACGN若翼 发表于 2019-11-11 09:40</a>
+
+ign图一乐
+
+等新的秦川丢人合集，海獭帽我要笑死了</blockquote>
+太多了，高山漂流，背炸弹快到的时候摔跤，尿BT，雪山滑板<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wd54w8  
+##### 6011#       发表于 2019-11-11 09:42
+
+
+
+
+亏了，没想到小秦居然通宵了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6012#       发表于 2019-11-11 10:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">按照论坛玩家的黑法，该小秦跌落神坛了
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6013#       发表于 2019-11-11 10:29
+
+
+
+
+qgn这条微博竟然被谷大白话转了。。。
+
+
+----发送自 [HMD Global Nokia X7,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  nakedsnake  
+##### 6014#       发表于 2019-11-11 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45473586&amp;ptid=1712512" target="_blank">山下野人 发表于 2019-11-11 07:51</a>
+剧情说实话挺蛇的，我最后也没整明白这女人为什么要灭世又不灭世。不过演出确实挺能打动人的。 ...</blockquote>
+因为女人就是世界末日本身，但是没说世界末日什么时候来，也许是明天，也许是一万年以后，然后女人就只能在那片沙滩上等着，后来实在是等不下去了就想干脆自己引发世界末日省的再等下去了，不过后来被弩哥感化了，就决定再等等。话说这女人即是弩哥老婆又是弩哥的妈 算不算弗洛伊德啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 6015#       发表于 2019-11-11 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45475223&amp;ptid=1712512" target="_blank">nakedsnake 发表于 2019-11-11 10:51:52</a>
+
+因为女人就是世界末日本身，但是没说世界末日什么时候来，也许是明天，也许是一万年以后，然后女人就只能 ...</blockquote>
+其实就沙滩无限跑看staff那段我已经理解了她为什么想要提前了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实在是太枯燥了
+
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6016#       发表于 2019-11-11 11:25
+
+
+
+ 本帖最后由 缺德猫 于 2019-11-11 11:27 编辑 
+
+可以对比一下其他游戏的评分
+
+
+神海4 9.9
+
+大镖客2 本世代最佳
+
+泰坦佛2 20/10 超越满分 史上最佳FPS游戏战役
+
+巫师3 无法评价 FF15 8.5
+
+
+剩下的记不太清了，大家可以补充
+
+
+
+
+
+
+
+
+
+-----
+
+####  sssacpgdr  
+##### 6017#       发表于 2019-11-11 11:28
+
+
+
+
+还有泥潭唯一指定RPG 8.9
+
+
+
+
+
+
+
+-----
+
+####  灼眼艾莉亚  
+##### 6018#       发表于 2019-11-11 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45474718&amp;ptid=1712512" target="_blank">上坂蓮華 发表于 2019-11-11 10:10</a>
+
+按照论坛玩家的黑法，该小秦跌落神坛了</blockquote>
+这个估计要等到播原神的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  哲学向黑子  
+##### 6019#       发表于 2019-11-11 11:30
+
+
+
+
+这么看秦川打分还是蛮宽松的，印象里除了一个大圣没几个差评
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6020#       发表于 2019-11-11 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45475750&amp;ptid=1712512" target="_blank">哲学向黑子 发表于 2019-11-11 11:30</a>
+
+这么看秦川打分还是蛮宽松的，印象里除了一个大圣没几个差评</blockquote>
+主要小秦会破格给分，所以满分是不是10不好说。
+
+
+
+
+
+
+
+-----
+
+####  zhacaizn  
+##### 6021#       发表于 2019-11-11 13:08
+
+
+
+
+p5是9.58来着？ 本身就图一乐，他打分真没什么意义
+
+
+
+
+
+
+
+-----
+
+####  ltay222  
+##### 6022#       发表于 2019-11-11 13:10
+
+
+
+
+巫师3这个无法评价是啥情况来着，有点太久远了记不得了，不过我记得他玩了挺久的
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6023#       发表于 2019-11-11 13:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小秦给9分的话，这游戏大众评分大概7.5-8.5之间这样？
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6024#       发表于 2019-11-11 13:27
+
+
+
+
+qgn能通关就说明这游戏对他胃口，分数自然偏高，像那种打着打着就不存在了的游戏，很多都没有被评分的机会
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6025#       发表于 2019-11-11 14:52
+
+
+
+
+说起来刚播的时候小秦直播间还有人在喷ign编辑是战鹰小亮蓝土包子什么的，没想到小岛本人就是这么认为的
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6026#       发表于 2019-11-11 15:35
+
+
+
+ 本帖最后由 Mr.BBWoLf 于 2019-11-11 15:38 编辑 
+
+补了点录像，看阿秦拿把枪对着亚美利那，不能拳头打她，不能存档。
+
+
+“我也不知道该怎么选，那我逃了。（对着开了几枪）这也打不了啊，她骗我，她骗我（要去抱她没抱上）。我也没抱她，我什么都没选。”
+
+
+真实碇真嗣，太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6027#       发表于 2019-11-11 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45477058&amp;ptid=1712512" target="_blank">ltay222 发表于 2019-11-11 13:10</a>
+
+巫师3这个无法评价是啥情况来着，有点太久远了记不得了，不过我记得他玩了挺久的 ...</blockquote>
+不记得本篇了，只记得好像血与酒是给了正无穷来着
+
+
+
+
+
+
+
+-----
+
+####  血狂毘沙门  
+##### 6028#       发表于 2019-11-11 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45475750&amp;ptid=1712512" target="_blank">哲学向黑子 发表于 2019-11-11 11:30</a>
+
+这么看秦川打分还是蛮宽松的，印象里除了一个大圣没几个差评</blockquote>
+其实他打大圣归来时早点领悟喝蓝药无限火凤舞 最后的评价也不会那么差了
+
+我后来看羽毛打 中途学会这招 打通之后给的评价是"还行"
+
+
+
+
+
+
+
+-----
+
+####  usoulo  
+##### 6029#       发表于 2019-11-11 16:40
+
+
+
+
+小秦口味其实也蛮怪的，你说他讨厌文字量大剧情复杂或者单纯剧情为主的，最近的天外世界王国之心都没下文了，但是逆转裁判古墓暗影，甚至days gone都通了。
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 6030#       发表于 2019-11-11 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45479237&amp;ptid=1712512" target="_blank">usoulo 发表于 2019-11-11 16:40</a>
+ 小秦口味其实也蛮怪的，你说他讨厌文字量大剧情复杂或者单纯剧情为主的，最近的天外世界王国之心都没下文了 ...</blockquote>
+逆转想通关反正也**，有弹幕帮忙随便看看也差不离，而且段子很好玩
+后面俩电影游戏不看剧情又如何，任务点杀杀杀完事的玩意，你要问他哪里台词有什么特点/梗百分之一个亿答不上来
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 6031#       发表于 2019-11-11 17:00
+
+
+
+
+尼尔也是无法评价
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 6032#       发表于 2019-11-11 17:02
+
+
+
+
+准备用看的去补死亡搁浅的视频了
+
+以前听的就很有意思
+
+“玩家在这里最需要什么？可能是发现一无所有的失望吧，所以我就不放物资在这了”
+
+
+
+
+
+
+
+-----
+
+####  Openglpro  
+##### 6033#       发表于 2019-11-11 17:04
+
+
+
+
+我佛了，NGA一群人拿QGN评分去“打”所谓“小岛秀夫黑子”的脸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么还能有这种操作的
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 6034#       发表于 2019-11-11 17:16
+
+
+
+
+梗说多了，粉丝和本人都当真了
+
+
+
+
+
+
+
+-----
+
+####  wjbdasd  
+##### 6035#       发表于 2019-11-11 17:50
+
+
+
+<blockquote>Openglpro 发表于 2019-11-11 17:04
+我佛了，NGA一群人拿QGN评分去“打”所谓“小岛秀夫黑子”的脸怎么还能有这种操作的 ...</blockquote>
+做这种操作的时候忘了还有泰坦佛2这种qgn20分的fps吗？这不是自抽？
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6036#       发表于 2019-11-11 17:59
+
+
+
+
+秦川自己打分分数其实还是看心情给，大作这块基本没啥区分度，评测内容才是qgn重点，把qgn9.0当武器的和把ign6.8当武器的也没啥区别
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6037#       发表于 2019-11-11 18:11
+
+
+
+
+QGN不就图个乐（
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6038#       发表于 2019-11-11 19:32
+
+
+
+
+最后这段太牛逼了，就是前面那段又臭又长强行让玩家体验亚美利在冥滩上的感觉很蛋疼，虽然的确有用。
+
+
+
+
+
+
+
+-----
+
+####  NameLess2501  
+##### 6039#       发表于 2019-11-11 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45479545&amp;ptid=1712512" target="_blank">Openglpro 发表于 2019-11-11 17:04</a>
+
+我佛了，NGA一群人拿QGN评分去“打”所谓“小岛秀夫黑子”的脸怎么还能有这种操作的 ...</blockquote>
+一边是观众见证下45个小时通关困难难度的小秦。
+
+一边是不一定通关，时而义愤填膺，捶胸顿足，时而阴阳怪气，冷嘲热讽的"小岛秀夫黑子"。
+
+谁可信性更高呢？
+
+
+
+
+
+
+
+-----
+
+####  Openglpro  
+##### 6040#       发表于 2019-11-11 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45481702&amp;ptid=1712512" target="_blank">NameLess2501 发表于 2019-11-11 20:51</a>
+
+一边是观众见证下45个小时通关困难难度的小秦。
+
+一边是不一定通关，时而义愤填膺，捶胸顿足，时而阴阳怪 ...</blockquote>
+我没有说秦川的评分没有价值，我意思是这样的行为对秦川没有任何好处也没有意义，当时那个帖子就出现了很多对秦川各方面冷嘲热讽的话，他们这样的行为我真的不明白有何价值<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，除了给秦川败败路人缘以外。
+
+我只是对这样的做法很迷惑
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6041#       发表于 2019-11-11 21:07
+
+
+
+
+xb2狗头人也是接近9分的.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NameLess2501  
+##### 6042#       发表于 2019-11-11 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45481763&amp;ptid=1712512" target="_blank">Openglpro 发表于 2019-11-11 20:58</a>
+
+我没有说秦川的评分没有价值，我意思是这样的行为对秦川没有任何好处也没有意义，当时那个帖子就出现了很 ...</blockquote>
+这倒是，粉丝自己圈子乐一乐，拿出去宣传的确不好。
+
+
+
+
+
+
+
+-----
+
+####  saevey  
+##### 6043#       发表于 2019-11-11 21:22
+
+
+
+
+感觉秦川评测在“评”这块真是看心情，超越满分的游戏都好几个了，像楼上所说，秦川的内容才是看点。
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 6044#       发表于 2019-11-11 21:27
+
+
+
+
+QGN P5尼尔和XB2的分数都差不多接近满分吧，小秦口味还是和泥潭婆罗门还是蛮像的
+
+
+
+
+
+
+
+-----
+
+####  mandora  
+##### 6045#       发表于 2019-11-11 21:40
+
+
+
+
+狗粉丝跟狗粉丝还真没啥不同了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三谷歩夢  
+##### 6046#       发表于 2019-11-11 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45481702&amp;ptid=1712512" target="_blank">NameLess2501 发表于 2019-11-11 20:51</a>
+
+一边是观众见证下45个小时通关困难难度的小秦。
+
+一边是不一定通关，时而义愤填膺，捶胸顿足，时而阴阳怪 ...</blockquote>
+你这幅做派和那帮人又有什么区别呢，那再来讨论一下狗头人打8.5分的3A大作初版FF15？
+
+
+
+
+
+
+
+-----
+
+####  NameLess2501  
+##### 6047#       发表于 2019-11-11 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45482116&amp;ptid=1712512" target="_blank">三谷歩夢 发表于 2019-11-11 21:43</a>
+
+你这幅做派和那帮人又有什么区别呢，那再来讨论一下狗头人打8.5分的3A大作初版FF15？ ...</blockquote>
+您说得都对。
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6048#       发表于 2019-11-11 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">QGN这玩意本来是粉丝图一乐，怎么还真有人拿去打脸了
+
+
+
+
+
+
+
+-----
+
+####  小月亮李再含  
+##### 6049#       发表于 2019-11-11 22:48
+
+
+
+
+LGA那板块这几天的发言简直社会学实验，反攻倒算后面接着反攻倒算，背后的嘴脸可见一斑。
+
+关键是游戏都发售了，好不好玩自己不知道吗，还要拿QGN去黑IGN，拿着狗头人这种个人玩家的大棒去讨伐游戏媒体，也是一绝。
+
+自己玩过，甚至云过，觉得好玩就吹，不好玩就喷，怎么狗头人还能当游戏界KOL的？
+
+
+
+
+
+
+
+-----
+
+####  misaki_d  
+##### 6050#       发表于 2019-11-11 22:55
+
+
+
+
+我现在就想知道 edge 那个评测玩了 40 小时没通关打不下去是在干啥
+
+
+
+
+
+
+
+-----
+
+####  lingtian2876  
+##### 6051#       发表于 2019-11-11 23:02
+
+
+
+
+看乐了，就楼里一些人能把梗玩出幻觉的智商，那就只能丢人现眼
+
+
+
+
+
+
+
+-----
+
+####  dropdead  
+##### 6052#       发表于 2019-11-11 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45482698&amp;ptid=1712512" target="_blank">misaki_d 发表于 2019-11-11 22:55</a>
+
+我现在就想知道 edge 那个评测玩了 40 小时没通关打不下去是在干啥</blockquote>
+可能是独狼玩家，拒绝连接
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6053#       发表于 2019-11-12 00:02
+
+
+
+
+QGN属于狗头人对自己体验的主观评价，基本可以理解为和朋友看完电影之后的卧槽真牛逼，能把这个奉为圭臬去对线，只能说不愧是nga脑瘫了
+
+
+
+
+
+
+
+-----
+
+####  神無月悠也  
+##### 6054#       发表于 2019-11-12 00:04
+
+
+
+
+看了缺哥的搁浅 这种懒洋洋的蜜汁淡定感爱了
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6055#       发表于 2019-11-12 01:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45482698&amp;ptid=1712512" target="_blank">misaki_d 发表于 2019-11-11 22:55</a>
+
+我现在就想知道 edge 那个评测玩了 40 小时没通关打不下去是在干啥</blockquote>
+爬雪山，遇bt，就不逃就是干
+
+
+
+
+
+
+
+-----
+
+####  岚绯  
+##### 6056#       发表于 2019-11-12 11:51
+
+
+
+
+雪山的BT区真他妈大。
+
+送旅人过去之前先打了BOSS战（根据状况貌似是能逃，不过刚好手上军火比较足就打了），谁知道血条意外的长，打完整个人都麻了，以致于忘记补GAY，差点就要从雪山带着旅人滚下去了。
+
+
+其实旅人能救吗
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6057#       发表于 2019-11-12 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45482116&amp;ptid=1712512" target="_blank">三谷歩夢 发表于 2019-11-11 21:43</a>
+
+你这幅做派和那帮人又有什么区别呢，那再来讨论一下狗头人打8.5分的3A大作初版FF15？ ...</blockquote>
+ff15 IGN给了8.2分，QGN给8.5分有什么问题
+
+是不是这次ign打分合自己口味就是权威，上次打分不合自己口味就当不存在了？
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6058#       发表于 2019-11-12 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45482635&amp;ptid=1712512" target="_blank">小月亮李再含 发表于 2019-11-11 22:48</a>
+LGA那板块这几天的发言简直社会学实验，反攻倒算后面接着反攻倒算，背后的嘴脸可见一斑。
+
+关键是游戏都发售 ...</blockquote>
+ign声望达到了前所未有的高度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Solid/Liquid  
+##### 6059#       发表于 2019-11-12 17:57
+
+
+
+
+那个数字有什么价值可言...
+
+他作为一个老玩家分享的游戏心得才是可以参考的重点吧
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6060#       发表于 2019-11-12 20:23
+
+
+
+
+突然想起来，QGN 15年的年度游戏是辐射4。
+
+
+
+
+
+
+
+-----
+
+####  ssd  
+##### 6061#       发表于 2019-11-12 20:26
+
+
+
+
+草 岛哥哥现在要靠狗头人来证明了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  raragon  
+##### 6062#       发表于 2019-11-12 22:06
+
+
+
+
+哈哈哈哈哈哈，秦川送货的时候bgm放到星野源立马给换了
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 6063#       发表于 2019-11-13 19:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/13/191644f2k23hh2mtg7kam1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1113.jpg</strong> (45.3 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-13 19:16 上传
+
+
+
+
+
+秦川怒喷云玩家韦天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Release01  
+##### 6064#       发表于 2019-11-13 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45501949&amp;ptid=1712512" target="_blank">椎名mahuyo 发表于 2019-11-13 19:17</a>
+
+秦川怒喷云玩家韦天</blockquote>
+震惊！微软玩家向索尼玩家开炮，原因竟是这个任天堂神作？
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6065#       发表于 2019-11-13 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45501971&amp;ptid=1712512" target="_blank">Release01 发表于 2019-11-13 19:19</a>
+震惊！微软玩家向索尼玩家开炮，原因竟是这个任天堂神作？</blockquote>
+你说谁任天堂呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Release01  
+##### 6066#       发表于 2019-11-13 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45502061&amp;ptid=1712512" target="_blank">percy1234 发表于 2019-11-13 19:31</a>
+
+你说谁任天堂呢？</blockquote>
+出在任天堂的游戏就是任的（不是）
+
+标题不吸引人怎么炸鱼？
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6067#       发表于 2019-11-13 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45501949&amp;ptid=1712512" target="_blank">椎名mahuyo 发表于 2019-11-13 19:17</a>
+
+秦川怒喷云玩家韦天</blockquote>
+
+<img src="https://img.saraba1st.com/forum/201911/13/200233v2pp58ps05zppdd2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2019-11-13_20-02-15.jpg</strong> (56.18 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-13 20:02 上传
+
+
+
+
+
+补个回复更有味道
+
+
+
+
+
+
+
+
+
+-----
+
+####  hyde999  
+##### 6068#       发表于 2019-11-13 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45502346&amp;ptid=1712512" target="_blank">塔奇克马 发表于 2019-11-13 20:02</a>
+
+补个回复更有味道</blockquote>
+国产真能做出个剑盾来，怕不是要被吹成国产最后的希望了
+
+
+
+
+
+
+
+-----
+
+####  saico  
+##### 6069#       发表于 2019-11-13 20:13
+
+
+
+
+主要是原po那视频真的没啥意思，喷不到点子上
+然后又乱用秦先生的话
+秦先生说这句话那时的情况，跟现在看个几十秒视频就喷完全不一样
+断章取义很无耻
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6070#       发表于 2019-11-13 20:27
+
+
+
+
+有一说一，GF在剑盾上的技术力我怎么看着还觉得不如国内某些寨游......
+
+
+
+
+
+
+
+-----
+
+####  NaYo丶  
+##### 6071#       发表于 2019-11-13 20:42
+
+
+
+
+这就是不懂偷懒的问题了
+xb2白虎转向也 不过镜头少
+gf调整下镜头就行了
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6072#       发表于 2019-11-14 21:23
+
+
+
+
+话说秦川的l2d是再次进化了吧，从半身狗头升级为企鹅狗，感觉比之前更肥了
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6073#       发表于 2019-11-14 21:38
+
+
+
+
+竟然换上了司马套装，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“可拉可拉司马型神奇宝贝”这个梗还用上了，今天直播间应该都是宝可梦涩图，可以期待一下
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6074#       发表于 2019-11-14 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">前几天熬夜云搁浅实在撑不住了，“宝可梦系列最好的作品没有之一”还是等录像补了
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6075#       发表于 2019-11-14 22:14
+
+
+
+
+[f:228]狗头人真爱宝可梦,连小智为何没有得到冠军的理由都知道.
+
+坐等给8分以上崩盘.
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6076#       发表于 2019-11-14 22:19
+
+
+
+
+很难想象秦川宝可梦动画都看过，虽然他说他上一个看完的动画是ditf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6077#       发表于 2019-11-14 23:01
+
+
+
+
+草，大道寺机皇nb啊，秦卡丘加卡比天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6078#       发表于 2019-11-14 23:12
+
+
+
+
+"其实这画面还可以,真不敢相信是GF做出来的."
+
+"人家还有滤镜呢"
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lighttt  
+##### 6079#       发表于 2019-11-14 23:40
+
+
+
+
+草主也太难了
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 6080#       发表于 2019-11-15 00:16
+
+
+
+
+完蛋，我现在看到咬咬龟就想到孙红雷，没法驱散这想法了
+
+
+
+
+
+
+
+-----
+
+####  zhhy  
+##### 6081#       发表于 2019-11-15 01:43
+
+
+
+
+这猴哥的画风有种熟悉的感觉，是飞天小女警
+
+
+
+
+
+
+
+-----
+
+####  ebuw  
+##### 6082#       发表于 2019-11-15 04:36
+
+
+
+
+QGN说香。
+
+
+
+
+
+
+
+-----
+
+####  新常态  
+##### 6083#       发表于 2019-11-15 19:17
+
+
+
+
+房房子播星战了～
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6084#       发表于 2019-11-15 20:24
+
+
+
+ 本帖最后由 音无奏 于 2019-11-15 20:29 编辑 
+
+被精灵球百砸不挠的钢之魂，犀利智慧的强者眼神，自带净化对手的处男光线，甚至还会先惊后丢……这鸭子的要素也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kqwert| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6085#       发表于 2019-11-15 20:31
+
+
+
+ 本帖最后由 btts 于 2019-11-15 20:38 编辑 
+
+sgnb！<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  拱猪  
+##### 6086#       发表于 2019-11-15 21:11
+
+
+
+
+这剑盾看起来真香啊，想买了艹
+
+来电汪的造型和狗狗也太雷同了吧，改进化来火汪了
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 6087#       发表于 2019-11-15 21:18
+
+
+
+
+cc直播间可以发图真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6088#       发表于 2019-11-15 22:05
+
+
+
+
+真实jk，打扮的时间比打道馆还要长。。。
+
+
+----发送自 [HMD Global Nokia X7,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6089#       发表于 2019-11-15 23:31
+
+
+
+
+他是不是把网关了啊，宝可梦玩成捡垃圾了
+
+
+
+
+
+
+
+-----
+
+####  居于月上伊莫库  
+##### 6090#       发表于 2019-11-16 01:37
+
+
+
+
+CC有带弹幕的直播回放吗，另外这个PC端真是难用且土味<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6091#       发表于 2019-11-16 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45525875&amp;ptid=1712512" target="_blank">居于月上伊莫库 发表于 2019-11-16 01:37</a>
+
+CC有带弹幕的直播回放吗，另外这个PC端真是难用且土味。</blockquote>
+手机APP的录像有弹幕回放
+
+
+
+
+
+
+
+-----
+
+####  居于月上伊莫库  
+##### 6092#       发表于 2019-11-16 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45526011&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-16 02:18</a>
+
+手机APP的录像有弹幕回放</blockquote>
+多谢解答，还是啤站随便看看好了。
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6093#       发表于 2019-11-16 11:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天那个孙笑川258的微博号头像好像是狗头人.......
+
+双重意义上的狗粉丝吗？
+
+不过也不奇怪就是了，小秦自己一两年前就满口抽象话了。
+
+
+
+
+
+
+
+-----
+
+####  Mr_DECADE  
+##### 6094#       发表于 2019-11-16 11:58
+
+
+
+<blockquote>遥仰苍穹 发表于 2019-11-16 11:28
+昨天那个孙笑川258的微博号头像好像是狗头人.......
+
+双重意义上的狗粉丝吗？
+
+不过也不奇怪就是了， ...</blockquote>
+他微博叫啥，有点意思
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 6095#       发表于 2019-11-16 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45528015&amp;ptid=1712512" target="_blank">Mr_DECADE 发表于 2019-11-16 11:58</a>
+
+他微博叫啥，有点意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道，就是有人贴了张孙笑川和他的聊天图，名字被打马赛克了
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 6096#       发表于 2019-11-16 20:30
+
+
+
+
+秦川现在直播间怎么云玩家这么多，有云游戏还有云电影的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 6097#       发表于 2019-11-16 20:37
+
+
+
+
+这星战动作是不是缺少中间帧的缘故，感觉好僵硬
+
+
+
+
+
+
+
+-----
+
+####  宗汝  
+##### 6098#       发表于 2019-11-16 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45528015&amp;ptid=1712512" target="_blank">Mr_DECADE 发表于 2019-11-16 11:58</a>
+
+他微博叫啥，有点意思</blockquote>
+这谁会把自己信息流出来阿，不怕有内鬼吗.....
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6099#       发表于 2019-11-16 21:14
+
+
+
+
+这女人的脸，形销骨立啊
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6100#       发表于 2019-11-16 21:45
+
+
+
+ 本帖最后由 塔奇克马 于 2019-11-16 21:48 编辑 
+
+我感觉这星战他通不了关了...各种嫌弃.和他玩宝可梦的劲头没法比
+
+
+
+已经掉到7.5分了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6101#       发表于 2019-11-16 22:04
+
+
+
+
+今晚虽然节奏多，但妈妈粉都消失了
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6102#       发表于 2019-11-16 22:05
+
+
+
+
+节奏狗太多了，看了恶心关了
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6103#       发表于 2019-11-16 22:07
+
+
+
+
+今天的云玩家节奏是真的恶心地快看不下去，必须关弹幕
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6104#       发表于 2019-11-16 22:17
+
+
+
+
+草，星战**哥被塞了
+
+
+
+
+
+
+
+-----
+
+####  zhhy  
+##### 6105#       发表于 2019-11-16 22:44
+
+
+
+
+这个风洞走上去无反应一跳立马上天也太怪了，林克靠滑翔伞才能原地起飞，绝地这是离地之后体重骤降还是引力衰减
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 6106#       发表于 2019-11-16 23:38
+
+
+
+
+智障和孙红雷什么仇怨？？
+
+
+
+
+
+
+
+-----
+
+####  鹅大人  
+##### 6107#       发表于 2019-11-16 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45532981&amp;ptid=1712512" target="_blank">zhhy 发表于 2019-11-16 22:44</a>
+这个风洞走上去无反应一跳立马上天也太怪了，林克靠滑翔伞才能原地起飞，绝地这是离地之后体重骤降还是引力 ...</blockquote>
+别问，问就是原力
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6108#       发表于 2019-11-17 00:10
+
+
+
+
+给爷看傻了，这帮人是真把秦川说的话当圣旨了，还一本正经的讨论起来了
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6109#       发表于 2019-11-17 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45533636&amp;ptid=1712512" target="_blank">LilighT 发表于 2019-11-17 00:10</a>
+
+给爷看傻了，这帮人是真把秦川说的话当圣旨了，还一本正经的讨论起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不止,还有人还在尼姑庵发了一帖呢.
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6110#       发表于 2019-11-17 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉自从带圣后节奏就多得不行，真是遗害无穷
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6111#       发表于 2019-11-17 00:20
+
+
+
+ 本帖最后由 btts 于 2019-11-17 00:24 编辑 
+
+草，傀儡妹死透了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6112#       发表于 2019-11-17 00:23
+
+
+
+
+傀——儡——妹——
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6113#       发表于 2019-11-17 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傀儡妹之于3614，就像谷家人之于6655一样，可以连接所有立场不同的人
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6114#       发表于 2019-11-17 00:25
+
+
+
+
+傀儡妹被封了，弹幕和游戏过场cg同时发出了欢呼的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6115#       发表于 2019-11-17 00:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/17/003007ruhndhepgqzfn2vs.png" referrerpolicy="no-referrer">
+
+
+<strong>5dd0231c2786fde0302577faEwDrId8l02.png</strong> (65.03 KB, 下载次数: 0)
+
+下载附件
+
+klm
+2019-11-17 00:30 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白白白  
+##### 6116#       发表于 2019-11-17 00:33
+
+
+
+
+嫌弃了一晚，终于顶不住换宝可梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nianiania  
+##### 6117#       发表于 2019-11-17 00:34
+
+
+
+
+星战看来比大圣更难顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6118#       发表于 2019-11-17 00:34
+
+
+
+
+去上了个厕所回来都在欢呼，没看到现场，傀儡妹被封了多久？
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6119#       发表于 2019-11-17 00:36
+
+
+
+
+换了宝可梦整个人都快乐起来了 话多的一批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  哲学向黑子  
+##### 6120#       发表于 2019-11-17 00:37
+
+
+
+
+星战不能通关，大圣都不如<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+好像把光剑的live2D都删掉了
+
+
+
+
+
+
+
+-----
+
+####  Rary  
+##### 6121#       发表于 2019-11-17 00:45
+
+
+
+
+秦川现在的粉丝越来越有种星宿老怪旗下弟子的感觉了
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6122#       发表于 2019-11-17 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45533783&amp;ptid=1712512" target="_blank">sanxgh571 发表于 2019-11-17 00:34</a>
+
+去上了个厕所回来都在欢呼，没看到现场，傀儡妹被封了多久？</blockquote>
+白天看回放吧，场面超有意思<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6123#       发表于 2019-11-17 01:01
+
+
+
+
+错过了什么？
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6124#       发表于 2019-11-17 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这缝合化石怪冻得发抖的动态效果比单纯看截图更加令人不适
+
+
+
+
+
+
+
+-----
+
+####  hyde999  
+##### 6125#       发表于 2019-11-17 04:49
+
+
+
+
+这个点了小秦还在宝可梦，是真爱了，田尻智真牛逼这个游戏底子太硬怎么做都好玩
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 6126#       发表于 2019-11-17 05:55
+
+
+
+
+秦川喷星战这个是根本没道理，DF都出评测了，他玩到的部分都是稳30帧的,何来掉帧一说
+
+打了一小时给个360时代的定性
+
+这游戏有喷点，但是动作部分本来就是是这游戏最弱的部分，喷都喷不到点子上
+
+
+
+
+
+
+
+-----
+
+####  usoulo  
+##### 6127#       发表于 2019-11-17 07:38
+
+
+
+
+小秦也不是圣经，我看他直播但是最近几个游戏的测评包括抖音那几个我都不是完全赞同，没必要一味吹捧或者无脑踩，谁都有主观和看走眼的时刻。
+
+这次的星战MC均分84，但是你仔细看评价，最高的90，最低的70，各大小媒体普遍给出的80+的分数，如果没有收钱的话，用机核话讲就是极其扎实的游戏。
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6128#       发表于 2019-11-17 07:41
+
+
+
+
+老信这个分数干嘛，人家本来也说了是主观分数
+
+
+当年蛇2U金会员会免的时候他玩了几关弃了给了个3分还是4分，也不妨碍我刷刷刷啊
+
+
+
+
+
+
+
+-----
+
+####  NaYo丶  
+##### 6129#       发表于 2019-11-17 07:54
+
+
+
+
+缺哥哥宝可梦真爱，刚刚还发了条打超极巨化团战的微博
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6130#       发表于 2019-11-17 08:02
+
+
+
+
+有一说一蹭团战就是停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  @lias  
+##### 6131#       发表于 2019-11-17 08:35
+
+
+
+<blockquote>qianoooo 发表于 2019-11-17 05:55
+秦川喷星战这个是根本没道理，DF都出评测了，他玩到的部分都是稳30帧的,何来掉帧一说
+
+打了一小时给个360时 ...</blockquote>
+那这游戏的玩点是啥?解密🐴
+
+
+
+
+
+
+
+-----
+
+####  天堂蜘蛛  
+##### 6132#       发表于 2019-11-17 09:46
+
+
+
+
+说明白丝jk本质二次元
+
+
+
+
+
+
+
+-----
+
+####  すぴぱら  
+##### 6133#       发表于 2019-11-17 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45534501&amp;ptid=1712512" target="_blank">qianoooo 发表于 2019-11-17 05:55</a>
+ 秦川喷星战这个是根本没道理，DF都出评测了，他玩到的部分都是稳30帧的,何来掉帧一说 打了一小时给个360时 ...</blockquote>
+有一说一 在x1x上序章那个画面确实有够土的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  栗悟饭177  
+##### 6134#       发表于 2019-11-17 09:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45535160&amp;ptid=1712512" target="_blank">天堂蜘蛛 发表于 2019-11-17 09:46</a>
+
+说明白丝jk本质二次元</blockquote>
+小心二次元.jpg
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6135#       发表于 2019-11-17 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45534501&amp;ptid=1712512" target="_blank">qianoooo 发表于 2019-11-17 05:55</a>
+
+秦川喷星战这个是根本没道理，DF都出评测了，他玩到的部分都是稳30帧的,何来掉帧一说
+
+打了一小时给个360时 ...</blockquote>
+正在观望没买游戏，请教下，既然动作是最弱的部分，那最强是哪部分呢？剧情吗，画面吗……本游戏中有趣的部分是？
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 6136#       发表于 2019-11-17 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45535269&amp;ptid=1712512" target="_blank">sanxgh571 发表于 2019-11-16 22:04</a>
+
+正在观望没买游戏，请教下，既然动作是最弱的部分，那最强是哪部分呢？剧情吗，画面吗……本游戏中有趣的 ...</blockquote>
+地图探索吧 metroid prime3的味道
+
+
+
+
+
+
+
+-----
+
+####  chenzhi11  
+##### 6137#       发表于 2019-11-17 10:28
+
+
+
+ 本帖最后由 chenzhi11 于 2019-11-17 10:43 编辑 
+
+游戏应该没什么大问题但关键相似类型的玩的太多了难免会乏味，宝可梦虽然别的地方敷衍但抓精灵这套东西趣味性还在。
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6138#       发表于 2019-11-17 11:14
+
+
+
+
+了解小秦的还好，路人看他没通就给分肯定要喷两句的。
+
+
+
+
+
+
+
+-----
+
+####  saico  
+##### 6139#       发表于 2019-11-17 11:32
+
+
+
+
+就昨晚的表现看，老实说，反正给我感觉就是，上次喷带圣火了，有点膨胀了……
+当然，我知道他的本意可能真的只是想赶快玩宝可梦
+
+
+----发送自 [OPPO PCLM10,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6140#       发表于 2019-11-17 11:42
+
+
+
+
+秦川最近又是长微博又是视频测评的，这是想转型游戏自媒体？
+
+
+
+
+
+
+
+-----
+
+####  rt7539515  
+##### 6141#       发表于 2019-11-17 11:50
+
+
+
+
+好歹通关了再给分吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  rak1  
+##### 6142#       发表于 2019-11-17 11:51
+
+
+
+
+也挺正常的 喜欢的话看到的都是优点 不喜欢就全是缺点了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6143#       发表于 2019-11-17 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45535905&amp;ptid=1712512" target="_blank">yxzdr 发表于 2019-11-17 11:42</a>
+
+秦川最近又是长微博又是视频测评的，这是想转型游戏自媒体？</blockquote>
+想多了
+
+只是大圣火了一把，膨胀了心血来潮，恰好最近他玩的游戏扎堆儿
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6144#       发表于 2019-11-17 12:02
+
+
+
+
+只是不懒了而已，在斗鱼那会儿像抖音那种饭他真的随便恰，硬是跑到dead平台才起步干早几百年就该干的事<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 6145#       发表于 2019-11-17 12:02
+
+
+
+
+steam版到泽佛退款了，这游戏真的是普通，光剑玩着有意思，可是更显得这一个动作游戏动作系统却很糙，剧情也不捉人，听说流程还短，想了想还是退了，建议等打折游戏荒的时候到是可以弄来玩玩，话说pc版2080ti我在2k下也会在奇怪的地方掉帧，是d加密又在作孽？
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  thecatnie  
+##### 6146#       发表于 2019-11-17 12:09
+
+
+
+
+这游戏就凭这动作系统顶天也就8分，太粗糙了
+
+
+
+
+
+
+
+-----
+
+####  thecatnie  
+##### 6147#       发表于 2019-11-17 12:10
+
+
+
+
+每次过场切换人物衣服还往上抖一下，是就我这样吗？
+
+
+
+
+
+
+
+-----
+
+####  amigobear  
+##### 6148#       发表于 2019-11-17 13:34
+
+
+
+
+狗头人可能因为带圣归来那件事被盯上了吧，恰饭的自媒体太多了，秦川直接给一巴掌也有点不太圆滑，这段时间感觉带他节奏的人不少，毕竟现在up主分粉圈堪比流量了，有些new ass也喜欢拿着鸡毛当令箭，被人钓鱼就上钩<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+----发送自 [OPPO PBAM00,Android 8.1.0](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  mandora  
+##### 6149#       发表于 2019-11-17 14:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他是该好好谢谢那群刷“评分还得看qgn"这个烂梗的妈粉了
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6150#       发表于 2019-11-17 14:32
+
+
+
+
+说到底这个月的游戏争议太多，IGN又疯狂弱智行为。云玩家们青黑大战又不能说我看视频觉得IGN说得不行，不就拿主播的评价当武器吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6151#       发表于 2019-11-17 14:46
+
+
+
+
+被盯上还行。想多了，评测这东西本身就不是那么好搞的，之前单纯当个主播发个通关感想，路人好感还有些，不认同的也就当口味问题不会细究。但若要正儿八经地搞长文评测，视频评测，观众就不会这么宽容了，你说的东西他们不认同那就是要跟你对喷的。
+
+
+
+
+
+
+
+-----
+
+####  Openglpro  
+##### 6152#       发表于 2019-11-17 15:03
+
+
+
+
+说真的秦川还是少搞这些，就他玩游戏那心不在焉的玩法，我把显示器用硬纸板盖住中间掏个洞看到的东西都比他多
+
+看他玩游戏也就看个弱智和怪话，好游戏给他那样玩真的是糟蹋东西
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 6153#       发表于 2019-11-17 15:35
+
+
+
+
+就直播内容本身来说，今年换了这土平台倒也没啥，至少比18年好看多了，15年开始看，到18年跟斗鱼闹真是偶尔看个慈善直播都看得快脱粉了，毫无乐子。但这两年观众群感觉变化太大，现在这弹幕都什么东西，一天到晚全是节奏，真是觉得迟早还有玩脱的时候，怀念黑楼网战洗粉。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6154#       发表于 2019-11-17 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45537628&amp;ptid=1712512" target="_blank">banjia0815 发表于 2019-11-17 15:35</a>
+
+就直播内容本身来说，今年换了这土平台倒也没啥，至少比18年好看多了，15年开始看，到18年跟斗鱼闹真是偶尔 ...</blockquote>
+现在播什么都洗不了粉了，小秦这有一部分人就不是来看游戏直播的。
+
+我都能想象到玩PC黑楼时的弹幕了，估计大多都是玩那个微博梗的，教父感叹一直刷，哎。
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6155#       发表于 2019-11-17 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45537628&amp;ptid=1712512" target="_blank">banjia0815 发表于 2019-11-17 15:35</a>
+
+就直播内容本身来说，今年换了这土平台倒也没啥，至少比18年好看多了，15年开始看，到18年跟斗鱼闹真是偶尔 ...</blockquote>
+换个平台遛粉洗粉，把斗鱼那边正经看直播关心内容的非死忠路人观众洗掉，剩下跟到这个弟弟平台的观众里恶臭脑残粉追星粉成分自然就很高了
+
+
+而且弟弟平台就是弟弟平台，弹幕终极弟弟自然就靠口水
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6156#       发表于 2019-11-17 15:44
+
+
+
+
+洗不了粉的最大原因我觉得是秦川现在受抽象话影响太深了，17年我还敢电视看直播，现在哪里敢，他嘴里不知道那时候就蹦出个“杀ma”。
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 6157#       发表于 2019-11-17 16:09
+
+
+
+
+秦川还会玩MCC？他不会打吐掉吗，最近基本每年都要打一遍吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 6158#       发表于 2019-11-17 16:12
+
+
+
+
+他今年刚玩通一遍mcc吧，PC出了会再玩一遍吗
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6159#       发表于 2019-11-17 16:17
+
+
+
+<blockquote>燃烧的石头 发表于 2019-11-17 16:12
+他今年刚玩通一遍mcc吧，PC出了会再玩一遍吗</blockquote>
+年初带妹我记得mcc没打完，1代没打，还有一代没通。
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6160#       发表于 2019-11-17 16:21
+
+
+
+
+按照之前x1x出来的时候，pc版出来应该只会打一会看看，不会从头到尾通。就是不知道黑楼无限发售他还有没有当初黑楼5的激情，把黑楼全系列通关。，
+
+
+
+
+
+
+
+-----
+
+####  Mr_NaHCO3  
+##### 6161#       发表于 2019-11-17 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">也别怪观众带节奏，我看某房管带节奏是带的最勤的
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6162#       发表于 2019-11-17 16:24
+
+
+
+
+我感觉他进cc以后他本身倒没什么变化，还变的敬业了，但是观众群体变化太大了。
+
+以前直播间最大的节奏也就是傀儡妹，现在这边都是些什么鬼玩意，特别是其中有部分低智儿童拿着秦川的话当圣旨，秦川玩游戏的口味是非常主观的，结果qgn被这群小鬼拿出去当权威甚至拿出去怼其他媒体，秦川再想低调就难了。
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 6163#       发表于 2019-11-17 16:25
+
+
+
+
+司马CY傀儡只要还有一天在直播间喷屎，就一天不要想什么弹幕环境了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6164#       发表于 2019-11-17 17:01
+
+
+
+
+我寻思傀儡妹以前一直在直播间嘴臭搞事啊，为啥在斗鱼就被当宠物x器调戏无视，直播间的弹幕只要不播某些跟风特别严重的热门游戏就总体没啥问题？
+
+
+无非是弹幕后面的人变了，主播自己也变得恶臭了
+
+
+
+
+
+
+
+-----
+
+####  kuglv  
+##### 6165#       发表于 2019-11-17 17:25
+
+
+
+ 本帖最后由 kuglv 于 2019-11-17 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45538331&amp;ptid=1712512" target="_blank">毛利提督 发表于 2019-11-17 17:01</a>
+
+我寻思傀儡妹以前一直在直播间嘴臭搞事啊，为啥在斗鱼就被当宠物x器调戏无视，直播间的弹幕只要不播某些跟 ...</blockquote>
+斗鱼时期的观众能不能接受CY傀儡和我有什么关系？我和我朋友看几年狗头人直播从斗鱼到现在没一个不恶心这玩意的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6166#       发表于 2019-11-17 17:36
+
+
+
+
+怎么狗不摸了还有人不乐意了，还怀念起斗鱼来了，是不是回到播尼尔2时那种沉闷的气氛才好啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6167#       发表于 2019-11-17 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45538607&amp;ptid=1712512" target="_blank">percy1234 发表于 2019-11-17 17:36</a>
+
+怎么狗不摸了还有人不乐意了，还怀念起斗鱼来了，是不是回到播尼尔2时那种沉闷的气氛才好啊 ...</blockquote>
+他现在玩尼尔2气氛也好不了啊
+
+
+
+
+
+
+
+-----
+
+####  pipaopo  
+##### 6168#       发表于 2019-11-17 17:41
+
+
+
+
+出手又出眼的看到的东西肯定没只出眼的观众多，这都要喷
+
+
+
+
+
+
+
+-----
+
+####  thecatnie  
+##### 6169#       发表于 2019-11-17 17:41
+
+
+
+
+这游戏也就值个7，8分，这分打得也没什么太大问题啊，就一普通的美式动作冒险游戏，也就因为这几年没啥好星战游戏，好不容易出来一个还说的过去的媒体就往死里吹
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6170#       发表于 2019-11-17 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45538646&amp;ptid=1712512" target="_blank">pipaopo 发表于 2019-11-17 17:41</a>
+
+出手又出眼的看到的东西肯定没只出眼的观众多，这都要喷</blockquote>
+这句话不赞同，秦川的游戏操作水平是非常出色的，但是rpg向的文本阅读能力本来就有点偏弱，就说p5里都有好多次对话里都说了的线索他没看到还要咕哝两句，但是我自己玩完全就没明白这为啥会看漏。
+
+看他直播都知道就算是故事向，他也偏爱大量演出代替文字阅读。
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 6171#       发表于 2019-11-17 17:53
+
+
+
+
+秦川玩RPG问题挺大的，感觉他都不仔细看文字的，还喜欢自己脑补设定
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6172#       发表于 2019-11-17 18:00
+
+
+
+
+我觉得nga定性挺精准的：一部分秦川粉丝不是天龙人级云玩家<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyc90716  
+##### 6173#       发表于 2019-11-17 18:14
+
+
+
+
+这游戏画面演出这些方面确实不行啊，确实是没打磨的样子。
+
+
+内容可能看人，秦川大概本来就对这种内容的游戏有点疲倦了，再加上观感和细节方面又比较差，玩不下去正常。
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6174#       发表于 2019-11-17 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">星战这种粉丝向剧情含量较多的游戏，还是要在懂梗的主播那里看有乐子，像星战真爱粉阿天那里，虽然弹幕少他有时候也打得无聊，但能和弹幕讨论系列相关剧情还是挺有乐子的
+
+小秦这种不懂也不想去懂的，再配合上节奏弹幕就真的只剩下气人，昨天感觉和游戏内容比较贴边的发言就那几句评论光剑的了
+
+
+
+
+
+
+
+-----
+
+####  julia黑  
+##### 6175#       发表于 2019-11-17 18:48
+
+
+
+
+弹幕人群变了，主播自己也比较迎合观众心理。包括出秦话盘点啊，转发剪辑丢人视频啊之类的，估计是有了吃人妹以后想认真做事业了。
+
+
+
+
+
+
+
+-----
+
+####  zhacaizn  
+##### 6176#       发表于 2019-11-17 19:21
+
+
+
+
+对于没玩完就评分这个行为，主播粉就不要双重标准了，喷无良媒体没玩透的说辞反过来接着吧。真的不明白这堆人把秦川当成神来拜是干嘛
+
+
+
+
+
+
+
+-----
+
+####  skives  
+##### 6177#       发表于 2019-11-17 19:24
+
+
+
+
+之前播死亡搁浅的时候不是挺好的吗 又怎么了
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6178#       发表于 2019-11-17 19:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45539533&amp;ptid=1712512" target="_blank">skives 发表于 2019-11-17 19:24</a>
+
+之前播死亡搁浅的时候不是挺好的吗 又怎么了</blockquote>
+星战打了一会儿就给了7.5分（
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6179#       发表于 2019-11-17 21:11
+
+
+
+
+天气输出型选手，草
+
+
+
+
+
+
+
+-----
+
+####  甜糯米粥  
+##### 6180#       发表于 2019-11-17 21:36
+
+
+
+
+这个捉师傅真是直播效果拉满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">宁死不屈
+
+
+
+
+
+
+
+-----
+
+####  Rabbitkick  
+##### 6181#       发表于 2019-11-17 22:08
+
+
+
+
+不想玩哪个游戏挺正常的，都没通关干嘛一定要打分呢...不打分的话，好像也不会怎么样吧又不是打分媒体<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不知道在想什么
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6182#       发表于 2019-11-17 22:21
+
+
+
+ 本帖最后由 音无奏 于 2019-11-17 22:23 编辑 
+
+对于这种冠军一句话带过一切本该有的流程的做法不就是：“没有那个必要！”<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxdrtyhn  
+##### 6183#       发表于 2019-11-18 00:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/18/003245n4soby9rf0tsb0xe.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20191118003226.png</strong> (93.95 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-18 00:32 上传
+
+
+
+
+
+
+小秦的这个新live2D太草了
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6184#       发表于 2019-11-18 01:02
+
+
+
+
+大家都是泥潭体面人，批站小鬼看QGN评分这事，只要秦川没上头觉得自己一呼百应那就无所谓呗
+
+
+
+
+
+
+
+-----
+
+####  zyc1629  
+##### 6185#       发表于 2019-11-18 03:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45536048&amp;ptid=1712512" target="_blank">xpisces 发表于 2019-11-17 12:02</a>
+只是不懒了而已，在斗鱼那会儿像抖音那种饭他真的随便恰，硬是跑到dead平台才起步干早几百年就该干的事[f:1 ...</blockquote>
+盲猜是被吃人妹督促的
+
+
+
+
+
+
+
+-----
+
+####  leitingkai  
+##### 6186#       发表于 2019-11-18 09:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45539095&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-17 18:44</a>
+
+星战这种粉丝向剧情含量较多的游戏，还是要在懂梗的主播那里看有乐子，像星战真爱粉阿天那里，虽然 ...</blockquote>
+阿天期待了那么久，在发售前别人都说雷的时候还说“万一不雷呢”
+
+IGN9分了还以为他会吹爆，没想到他给的评价也一般，缺点列了一大堆，觉得IGN9分虚高，唯一列的优点是：这个游戏里的星战内容硬核，没有星战知识储备发现不了→适合星战铁粉（不过他没有通关前打分）
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6187#       发表于 2019-11-18 09:30
+
+
+
+
+nga那楼居然早上又被顶起来了，秦川还是长点心吧，他也是为数不多在几个游戏论坛都有正面风评的大主播了，别饭没恰到多少，风评先没了。
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6188#       发表于 2019-11-18 09:54
+
+
+
+
+QGN当初本来就是神海玩后感的娱乐衍生品   说着玩的  估计也就大圣之后进来的人会当真吧
+
+小秦本来是极少的和各类视频meme都很合的人 其他各种文章和视频提他的梗都很少讨人厌都很和平   因为这种事搞的破功真是…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lygljj  
+##### 6189#       发表于 2019-11-18 09:57
+
+
+
+
+真的牛逼啊
+
+nga都吵了14页了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  焚尘  
+##### 6190#       发表于 2019-11-18 09:59
+
+
+
+
+星战那么土，游戏还是个终极缝合怪，你看一下全程没几个怪，换你憨憨解密+无聊战斗，你难不成给8分以上？什么时候玩新游戏还必须要有情怀的，拿着大IP就是屌，东西做的稀烂你也只能觍着脸说好，不然还被粉丝喷
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6191#       发表于 2019-11-18 10:07
+
+
+
+
+我觉得他可能是想通了
+
+怕被黑是火不了的
+
+这么些年他的那些梗传的比他本人的名气广多了
+
+他当然可以说些车轱辘话，没梗也不会被人拿出来嚼舌根
+
+但是这样也就没有话题性和讨论度了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cedric301| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 6192#       发表于 2019-11-18 11:03
+
+
+
+
+别骂了别骂了，小秦可是一个连大圣都能通关的硬核游戏主播啊，他做什么我都可以原谅！
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  abbccc200  
+##### 6193#       发表于 2019-11-18 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45544328&amp;ptid=1712512" target="_blank">Lygljj 发表于 2019-11-18 09:57</a>
+
+真的牛逼啊
+
+nga都吵了14页了</blockquote>
+没找到帖子，请问有链接吗？想看看
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6194#       发表于 2019-11-18 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45545407&amp;ptid=1712512" target="_blank">abbccc200 发表于 2019-11-18 11:26</a>
+
+没找到帖子，请问有链接吗？想看看</blockquote>
+[https://bbs.nga.cn/read.php?tid=19300331](https://bbs.nga.cn/read.php?tid=19300331)
+
+应该是这个吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| abbccc200| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  leitingkai  
+##### 6195#       发表于 2019-11-18 14:43
+
+
+
+ 本帖最后由 leitingkai 于 2019-11-18 14:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45544349&amp;ptid=1712512" target="_blank">焚尘 发表于 2019-11-18 09:59</a>
+
+星战那么土，游戏还是个终极缝合怪，你看一下全程没几个怪，换你憨憨解密+无聊战斗，你难不成给8分以上？什 ...</blockquote>
+但是NGA这是9.6分游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你给nga9.6分游戏打7.5怎么可能不在NGA被撕个14页
+
+
+
+
+
+
+
+-----
+
+####  abbccc200  
+##### 6196#       发表于 2019-11-18 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45547644&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-18 14:34</a>
+
+https://bbs.nga.cn/read.php?tid=19300331
+
+应该是这个吧</blockquote>
+非常感谢！
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6197#       发表于 2019-11-18 15:32
+
+
+
+ 本帖最后由 btts 于 2019-11-18 15:42 编辑 
+
+所谓的权威评分不还是合自己口味的评分，吹qgn和贬qgn都是这个道理，这次秦川自己的想法暂且不论，nga一群人撕出14页和之前传ign女权编辑大圣评分谣言的原因不都一样吗，最多nga没像之前那样造些让人啼笑皆非的谣言而已
+
+
+
+
+
+
+
+-----
+
+####  kanalis  
+##### 6198#       发表于 2019-11-18 15:44
+
+
+
+ 本帖最后由 kanalis 于 2019-11-18 16:02 编辑 
+
+nga不少人不一直跟某些极端分子一个样，但凡遇到部分观点相异的人士都上纲上线，不整死对方不罢休。
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6199#       发表于 2019-11-18 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45548505&amp;ptid=1712512" target="_blank">kanalis 发表于 2019-11-18 15:44</a>
+
+nga不少人不一直跟某教极端分子一个样，但凡遇到部分观点相异的人士都上纲上线，不整死对方不罢休。 ...</blockquote>
+泥潭就有用秦川评分和别人PVP的,这要怎么说呢?
+
+我觉得饭圈这东西真差不了多少.
+
+
+
+
+
+
+
+-----
+
+####  yiraer  
+##### 6200#       发表于 2019-11-18 15:56
+
+
+
+
+新模型这个姿势好眼熟，这个叉腰的站姿，谁能看出来原型吗
+
+
+
+
+
+
+
+-----
+
+####  焚尘  
+##### 6201#       发表于 2019-11-18 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45547723&amp;ptid=1712512" target="_blank">leitingkai 发表于 2019-11-18 14:43</a>
+
+但是NGA这是9.6分游戏啊你给nga9.6分游戏打7.5怎么可能不在NGA被撕个14页 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">NGA 9.6还行，我是完全没想到NGA可以土到这种程度……好奇NGA只狼几分，这个游戏和只狼大概差1-2个大圣归来的制作态度吧
+
+
+
+
+
+
+
+-----
+
+####  leitingkai  
+##### 6202#       发表于 2019-11-18 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45549080&amp;ptid=1712512" target="_blank">焚尘 发表于 2019-11-18 16:32</a>
+
+NGA 9.6还行，我是完全没想到NGA可以土到这种程度……好奇NGA只狼几分，这个游戏和只狼大概差1-2 ...</blockquote>
+nga只狼9.3
+
+不过我刚刚又去看了一下星战一天多了7个7分，2个1分，1个5分，拉到9.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逸一死吾亦死  
+##### 6203#       发表于 2019-11-18 16:44
+
+
+
+
+星战算一个8分到8.5分的游戏，mc评分也就这个档位。然而硬核玩家主播从E3开始口嗨，玩大圣归来也在口嗨。到最后还要勉为其难逼自己玩，玩一会儿还要口嗨，实属让人感到不解。
+
+
+
+
+
+
+
+-----
+
+####  与你肩并肩  
+##### 6204#       发表于 2019-11-18 16:52
+
+
+
+
+看直播的时候是挺奇怪的，不停地喷，这也不行，那也不行；操作也是漫不经心，一整个提不起精神的模样。
+
+
+
+
+
+
+
+-----
+
+####  岚绯  
+##### 6205#       发表于 2019-11-18 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得是急着想玩宝可梦，等玩够了就可以继续了
+
+
+通异界锁链
+
+
+
+
+
+
+
+-----
+
+####  焚尘  
+##### 6206#       发表于 2019-11-18 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45549387&amp;ptid=1712512" target="_blank">与你肩并肩 发表于 2019-11-18 16:52</a>
+
+看直播的时候是挺奇怪的，不停地喷，这也不行，那也不行；操作也是漫不经心，一整个提不起精神的模样。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就算漫不经心也比天哥打的好，可能我是少数吧，我是觉得秦川喷的都没啥问题……我觉得评分7.5没问题
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6207#       发表于 2019-11-18 17:13
+
+
+
+
+真难呐，既要随性，又要严谨专业。
+
+
+就该有个评测网战站把文字描述也去了然后把这帮人揽一地儿让他们撕个痛快。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贾科梅蒂  
+##### 6208#       发表于 2019-11-18 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45549387&amp;ptid=1712512" target="_blank">与你肩并肩 发表于 2019-11-18 16:52</a>
+看直播的时候是挺奇怪的，不停地喷，这也不行，那也不行；操作也是漫不经心，一整个提不起精神的模样。 ...</blockquote>
++1 从头骂到尾，感觉真不至于
+
+
+
+
+
+
+
+-----
+
+####  小奥塔肯  
+##### 6209#       发表于 2019-11-18 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">主要系统直球借鉴和整合这几年最近当造的热门游戏。
+
+还是大公司名开发室搞的，7.5是低了，但你还想要多少分？
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6210#       发表于 2019-11-18 20:16
+
+
+
+
+今天声音有点不对，感觉有点像哭过一场？或上火了？
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6211#       发表于 2019-11-18 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45551599&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2019-11-18 21:16</a>
+
+今天声音有点不对，感觉有点像哭过一场？或上火了？</blockquote>
+这几天都下播了偷偷肝口袋妖怪呢！
+
+
+
+
+
+
+
+-----
+
+####  Ashice  
+##### 6212#       发表于 2019-11-18 20:26
+
+
+
+
+所以说秦川会播育碧的罐头吗？播罐头的时候评价怎么样?
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6213#       发表于 2019-11-18 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45551724&amp;ptid=1712512" target="_blank">Ashice 发表于 2019-11-18 20:26</a>
+
+所以说秦川会播育碧的罐头吗？播罐头的时候评价怎么样?</blockquote>
+刺客信条这几作都玩了吧，奥德赛玩到一半摸了
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 6214#       发表于 2019-11-18 20:33
+
+
+
+
+话说剑盾新人入坑合适吗，看秦川直播手痒了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6215#       发表于 2019-11-18 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45551793&amp;ptid=1712512" target="_blank">yxzdr 发表于 2019-11-18 20:33</a>
+
+话说剑盾新人入坑合适吗，看秦川直播手痒了。</blockquote>
+优先考虑游戏时间成本的话，是最适合入坑的。
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6216#       发表于 2019-11-18 22:02
+
+
+
+
+流程评分：5分（4分+1分给色人设）/10分
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6217#       发表于 2019-11-18 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45551724&amp;ptid=1712512" target="_blank">Ashice 发表于 2019-11-18 20:26</a>
+
+所以说秦川会播育碧的罐头吗？播罐头的时候评价怎么样?</blockquote>
+玩奥德赛是老说男主性感来性感去的，害照片模式拍下，然后没打通。我都怀疑收了推广费，但又不像。
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6218#       发表于 2019-11-18 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45552635&amp;ptid=1712512" target="_blank">四氢化钠 发表于 2019-11-18 22:06:07</a>
+玩奥德赛是老说男主性感来性感去的，害照片模式拍下，然后没打通。我都怀疑收了推广费，但又不像。 ...</blockquote>药系道馆主太草了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6219#       发表于 2019-11-18 22:20
+
+
+
+
+他育碧罐头没几个玩下去的吧 尤其刺客这两作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥德赛从去年e3公布到今年e3 讨论的时候都透着股一言难尽的调调
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6220#       发表于 2019-11-18 22:21
+
+
+
+
+猴哥丝血顶住对面喷火 结果被环境伤烫死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  鹅大人  
+##### 6221#       发表于 2019-11-18 22:57
+
+
+
+
+不刷了(指下播后偷偷刷)，今晚三点左右应该可以看到秦川微博晒闪光小火龙了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6222#       发表于 2019-11-19 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45552745&amp;ptid=1712512" target="_blank">YoungYiba 发表于 2019-11-18 22:20</a>
+
+他育碧罐头没几个玩下去的吧 尤其刺客这两作奥德赛从去年e3公布到今年e3 讨论的时候都透着股一言难 ...</blockquote>
+刺客起源津津有味玩通关了的啊，四十个小时貌似。
+
+奥德赛是有点勉强，后面大表哥出了就不存在了
+
+
+
+
+
+
+
+-----
+
+####  Lygljj  
+##### 6223#       发表于 2019-11-19 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45545407&amp;ptid=1712512" target="_blank">abbccc200 发表于 2019-11-18 11:26</a>
+
+没找到帖子，请问有链接吗？想看看</blockquote>
+[http://nga.178.com/read.php?tid=19300331](http://nga.178.com/read.php?tid=19300331)
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6224#       发表于 2019-11-19 01:27
+
+
+
+
+破壳梦7.5分<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诸君何弃疗  
+##### 6225#       发表于 2019-11-19 02:58
+
+
+
+
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 6226#       发表于 2019-11-19 10:09
+
+
+
+
+7.5，有一说一，确实
+
+
+
+
+
+
+
+-----
+
+####  某雷  
+##### 6227#       发表于 2019-11-19 10:16
+
+
+
+
+有一说一，和nga星战9.6比，我觉得qgn可以算严肃媒体
+
+
+
+
+
+
+
+-----
+
+####  逸一死吾亦死  
+##### 6228#       发表于 2019-11-19 12:58
+
+
+
+
+害在屎黄色论坛9.6呢，硬核粉丝upup
+
+
+
+
+
+
+
+-----
+
+####  johan·liebert  
+##### 6229#       发表于 2019-11-19 13:16
+
+
+
+
+QGN宝可梦7.5分，星战7.5-7.8，死亡搁浅9分，岛哥哥恐成最大赢家
+
+
+
+
+
+
+
+-----
+
+####  cayon  
+##### 6230#       发表于 2019-11-19 13:20
+
+
+
+
+nga那位可真是复读机型黑粉，专门搬qgn评分引战
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6231#       发表于 2019-11-19 13:22
+
+
+
+
+整乐了，nga那个上次发秦川星战评测钓鱼的货又单独开贴转了宝可梦评测<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6232#       发表于 2019-11-19 13:35
+
+
+
+ 本帖最后由 毛利提督 于 2019-11-19 13:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558122&amp;ptid=1712512" target="_blank">btts 发表于 2019-11-19 13:22</a>
+
+整乐了，nga那个上次发秦川星战评测钓鱼的货又单独开贴转了宝可梦评测 ...</blockquote>
+为什么发qgn帖的就一定是钓鱼，就不能是缺哥哥的脑残粉吗？你缺哥哥不能有脑残粉啊？
+
+
+虽然现在nga冲水严重，但看了人家过往发帖记录里天外世界的内容，说是脑残粉不过分吧
+
+
+秦国猛男那些在直播间外面丢人的事永远是二五仔干的，这话说了这么多年了心里不虚吗
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6233#       发表于 2019-11-19 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558238&amp;ptid=1712512" target="_blank">毛利提督 发表于 2019-11-19 13:35</a>
+
+为什么发qgn帖的就一定是钓鱼，就不能是缺哥哥的脑残粉吗？你缺哥哥不能有脑残粉啊？
+
+
+虽然现在nga冲水严 ...</blockquote>
+有一说一，确实，换个说法，qgn信徒行了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DeepRed  
+##### 6234#       发表于 2019-11-19 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558238&amp;ptid=1712512" target="_blank">毛利提督 发表于 2019-11-19 13:35</a>
+
+为什么发qgn帖的就一定是钓鱼，就不能是缺哥哥的脑残粉吗？你缺哥哥不能有脑残粉啊？
+
+
+虽然现在nga冲水严 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">脑残粉和二五仔有什么区别吗
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6235#       发表于 2019-11-19 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558409&amp;ptid=1712512" target="_blank">DeepRed 发表于 2019-11-19 13:52</a>
+
+脑残粉和二五仔有什么区别吗</blockquote>
+本意不同，做出来的事情相同<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6236#       发表于 2019-11-19 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558409&amp;ptid=1712512" target="_blank">DeepRed 发表于 2019-11-19 13:52</a>
+
+脑残粉和二五仔有什么区别吗</blockquote>
+所谓二五仔本质就是粉圈开除粉籍那套换种说法……
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6237#       发表于 2019-11-19 16:46
+
+
+
+
+说个牢骚话,这也算我挺喜欢的设计,对比了那么长时间颤弦蝾螈两个形态,看不出一个cos吉他手一个cos贝斯手,ed动画凑了个宝可梦乐队还要被说放两个颤弦蝾螈敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诗人邪廷  
+##### 6238#       发表于 2019-11-19 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45558409&amp;ptid=1712512" target="_blank">DeepRed 发表于 2019-11-19 13:52</a>
+脑残粉和二五仔有什么区别吗</blockquote>
+大概就是纯粹的弱智和纯粹的坏【我想
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6239#       发表于 2019-11-19 21:27
+
+
+
+ 本帖最后由 btts 于 2019-11-19 21:41 编辑 
+
+偷玩帝国时代2，又寄生韦天直播间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6240#       发表于 2019-11-19 21:57
+
+
+
+
+很好奇秦川的思路玩这种老rts会选择怎么发展<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+记得雪山狼人杀和吃鸡都是单人闷声贴边发大财
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6241#       发表于 2019-11-19 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看直播，感觉原先那些技能动作问题还不是主要的，甚至比想象中好很多
+
+
+然鹅<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6242#       发表于 2019-11-19 23:05
+
+
+
+
+玩帝国时代也能狂摸，真有你的啊秦川
+
+
+
+
+
+
+
+-----
+
+####  a8778700  
+##### 6243#       发表于 2019-11-19 23:28
+
+
+
+
+还以为今天会播莎木的白等了
+
+—— 来自 samsung SM-G9650, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  屌拿星人  
+##### 6244#       发表于 2019-11-20 16:33
+
+
+
+
+小秦又开始送快递了，真实米尔人
+
+—— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6245#       发表于 2019-11-20 16:57
+
+
+
+
+说起来小秦爱的是黑魂不是宫崎吧，血源、只狼和恶魂都没有认真玩。
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6246#       发表于 2019-11-20 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45571453&amp;ptid=1712512" target="_blank">缺德猫 发表于 2019-11-20 16:57</a>
+说起来小秦爱的是黑魂不是宫崎吧，血源、只狼和恶魂都没有认真玩。</blockquote>
+只狼挺认真了吧，打boss无数次落命看得我都有点感动
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6247#       发表于 2019-11-20 17:05
+
+
+
+
+血源和只狼纯粹是懒没出攻略
+
+恶魔之魂也是因为必须刷补给品所以才没玩下去
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6248#       发表于 2019-11-20 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45571453&amp;ptid=1712512" target="_blank">缺德猫 发表于 2019-11-20 16:57</a>
+
+说起来小秦爱的是黑魂不是宫崎吧，血源、只狼和恶魂都没有认真玩。</blockquote>
+小秦血源记得打了四五遍，攻略都做好了，最后包装的时候好像出了问题，然后就不存在了。
+
+恶魂很早以前就玩过，刚打了开头ps3就黄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来打的时候已经变成了魂3的形状，不带远程武器，在火焰潜伏者疯狂吃瘪，也就不存在了
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6249#       发表于 2019-11-20 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45571659&amp;ptid=1712512" target="_blank">percy1234 发表于 2019-11-20 17:15</a>
+
+小秦血源记得打了四五遍，攻略都做好了，最后包装的时候好像出了问题，然后就不存在了。
+
+恶魂很早以前就 ...</blockquote>
+是直播打了几遍一周目，是说攻略彩排......最后不了了之
+
+
+
+
+
+
+
+-----
+
+####  nianiania  
+##### 6250#       发表于 2019-11-20 18:33
+
+
+
+
+宁愿送货也不愿玩星战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6251#       发表于 2019-11-20 20:27
+
+
+
+
+估计是QGN年度游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6252#       发表于 2019-11-20 20:35
+
+
+
+
+惊了，小秦竟然买了莎木3<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">等一个评价
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6253#       发表于 2019-11-20 20:35
+
+
+
+
+还以为莎木要不存在了
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6254#       发表于 2019-11-20 20:49
+
+
+
+
+这个二周目小秦玩起来怎么那么怪啊
+
+
+
+
+
+
+
+-----
+
+####  冀人燕南天  
+##### 6255#       发表于 2019-11-20 20:54
+
+
+
+
+这么喜欢搁浅的吗……
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6256#       发表于 2019-11-20 21:23
+
+
+
+
+好吧，QGN年度游戏——Kenshi
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好像kenshi的制作组在做kenshi2了
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6257#       发表于 2019-11-20 21:56
+
+
+
+
+这莎木3怕是下载到22%，自动停止了吧
+
+
+----发送自 [HMD Global Nokia X7,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6258#       发表于 2019-11-20 23:58
+
+
+
+
+所以傀儡妹一直都这么讨人嫌吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6259#       发表于 2019-11-21 00:15
+
+
+
+
+草龟龟赛跑太逗了，赌狗的最期
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6260#       发表于 2019-11-21 00:15
+
+
+
+
+赌龟这环节太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a8778700  
+##### 6261#       发表于 2019-11-21 00:18
+
+
+
+
+直播效果太好了吧
+
+—— 来自 samsung SM-G9650, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6262#       发表于 2019-11-21 00:32
+
+
+
+
+好香啊（虽然自己玩可能不一定坚持的住）
+
+
+
+
+
+
+
+-----
+
+####  格雷殿下  
+##### 6263#       发表于 2019-11-21 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">乌龟赛跑
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6264#       发表于 2019-11-21 00:54
+
+
+
+
+真的是原汁原味的，现代科技做的老游戏的感觉
+
+
+这是不是也算某种朋克呢“有土星内味儿了”
+
+
+
+
+
+
+
+-----
+
+####  MikePJ  
+##### 6265#       发表于 2019-11-21 01:13
+
+
+
+
+爷爷就是不上套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6266#       发表于 2019-11-21 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桂林风云
+
+
+
+
+
+
+
+-----
+
+####  哲学向黑子  
+##### 6267#       发表于 2019-11-21 01:14
+
+
+
+
+千王之王 和爷爷的赌狗对决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6268#       发表于 2019-11-21 01:14
+
+
+
+
+疯狂套路老年人还行
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6269#       发表于 2019-11-21 01:19
+
+
+
+
+眼泪都笑出来了，这段太经典了
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6270#       发表于 2019-11-21 01:22
+
+
+
+
+进入赌狗模拟器时间惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6271#       发表于 2019-11-21 01:24
+
+
+
+
+为什么一股子全员棒读的感觉啊艹，我还以为在做日语听力考试，发言真是端正，连点感情都没
+
+
+
+
+
+
+
+-----
+
+####  普通哈尼  
+##### 6272#       发表于 2019-11-21 01:29
+
+
+
+
+看小秦玩好有乐子
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6273#       发表于 2019-11-21 01:29
+
+
+
+
+莎木香了「指赌钱」
+
+
+
+
+
+
+
+-----
+
+####  wd54w8  
+##### 6274#       发表于 2019-11-21 01:30
+
+
+
+
+哈哈哈哈哈哈，算计老年人绝了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  MikePJ  
+##### 6275#       发表于 2019-11-21 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45575788&amp;ptid=1712512" target="_blank">reficul 发表于 2019-11-21 01:24</a>
+ 为什么一股子全员棒读的感觉啊艹，我还以为在做日语听力考试，发言真是端正，连点感情都没 ...</blockquote>
+因为一二代就这样，包括美版日版配音都是完美还原，一张嘴真的梦回十八年前
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6276#       发表于 2019-11-21 02:02
+
+
+
+
+小秦在微博香了，希望能多吸引几个猛男购买<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lubu  
+##### 6277#       发表于 2019-11-21 05:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45575788&amp;ptid=1712512" target="_blank">reficul 发表于 2019-11-20 12:24</a>
+为什么一股子全员棒读的感觉啊艹，我还以为在做日语听力考试，发言真是端正，连点感情都没 ...</blockquote>
+要的就是那个味儿 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6278#       发表于 2019-11-21 10:30
+
+
+
+<blockquote>lubu 发表于 2019-11-21 05:00
+要的就是那个味儿 我玩的美版 还担心配音不会变好了吧 一玩上太完美了 然后上youtube 原来大家都 ...</blockquote>
+新玩家不懂这种情怀，但感觉真是太怪了…
+
+
+
+
+
+
+
+-----
+
+####  里村紅葉  
+##### 6279#       发表于 2019-11-21 12:23
+
+
+
+
+小秦今年是不是香了一整年<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6280#       发表于 2019-11-21 12:33
+
+
+
+
+除了大圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6281#       发表于 2019-11-21 12:36
+
+
+
+
+他去年就没播多少游戏
+
+大部分时间在MHW，剩下的也主要是播一些名声在外的系列作品
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6282#       发表于 2019-11-21 12:40
+
+
+
+
+星战也不香啊
+
+
+
+
+
+
+
+-----
+
+####  DMMAX  
+##### 6283#       发表于 2019-11-21 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45577611&amp;ptid=1712512" target="_blank">reficul 发表于 2019-11-21 11:30</a>
+
+新玩家不懂这种情怀，但感觉真是太怪了…</blockquote>
+想象一下唐山大兄，莎木当时就是那种感觉
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6284#       发表于 2019-11-21 12:45
+
+
+
+<blockquote>reficul 发表于 2019-11-21 12:40
+星战也不香啊</blockquote>
+星战是之前就觉得不咋地，大圣是真吃到屎了
+
+
+
+
+
+
+
+-----
+
+####  春哥亲自  
+##### 6285#       发表于 2019-11-21 13:13
+
+
+
+ 本帖最后由 春哥亲自 于 2019-11-21 14:22 编辑 
+
+网易暗黑24小时貌似拉来了秦川<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://t.bilibili.com/324159224 ... 1f25e&amp;ts=1574313206](https://t.bilibili.com/324159224990061562?share_source=copy_link&amp;share_medium=iphone&amp;bbid=619090fe3ff7d064d05210ecd7f1f25e&amp;ts=1574313206)
+
+<img src="https://img.saraba1st.com/forum/201911/21/142140g1ezmt388we8e8ms.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20191121141715.jpg</strong> (28.91 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-21 14:21 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuusuke  
+##### 6286#       发表于 2019-11-21 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45579463&amp;ptid=1712512" target="_blank">春哥亲自 发表于 2019-11-21 13:13</a>
+
+网易暗黑24小时貌似拉来了秦川
+
+
+https://t.bilibili.com/324159224990061562?share_source=copy_lin ...</blockquote>
+喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6287#       发表于 2019-11-21 13:22
+
+
+
+ 本帖最后由 Mr.BBWoLf 于 2019-11-21 13:28 编辑 
+
+有了老婆后开始敬业了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不对啊，应该是Mr.Quin或Quin33啊
+
+
+
+
+
+
+
+-----
+
+####  臭P遇上臭脚  
+##### 6288#       发表于 2019-11-21 13:28
+
+
+
+
+挺好的，敬业的心不再隐藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  a2042312  
+##### 6289#       发表于 2019-11-21 13:28
+
+
+
+
+擅长猎魔人和武僧可还行，这是要高强度敬业。
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6290#       发表于 2019-11-21 14:24
+
+
+
+
+同名主播吧，看这个宣传还需要露脸的，而且他也没怎么玩过暗黑，这里面看上去都是经常玩的玩家
+
+
+
+
+
+
+
+-----
+
+####  春哥亲自  
+##### 6291#       发表于 2019-11-21 14:26
+
+
+
+
+不晓得，如果是同名的话只能说真有你的啊猪场
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6292#       发表于 2019-11-21 14:33
+
+
+
+
+叫秦川这个名字的人还蛮多的吧，也算常见名了
+
+
+
+
+
+
+
+-----
+
+####  帕林马哲理  
+##### 6293#       发表于 2019-11-21 14:37
+
+
+
+
+八百里秦川指的是关中地区，秦先生却是台湾南昌人，这其中蕴含着什么样的神秘呢？
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6294#       发表于 2019-11-21 14:57
+
+
+
+
+应该是同名主播吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6295#       发表于 2019-11-21 16:38
+
+
+
+
+这莎木3一通狂吹啊，这么香？
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6296#       发表于 2019-11-21 17:00
+
+
+
+
+cc秦川应该就狗头人了吧
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 6297#       发表于 2019-11-21 17:11
+
+
+
+
+CC有个9000多关注的秦川 不知道是不是
+
+我真不信秦川要干24小时活动
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6298#       发表于 2019-11-21 17:26
+
+
+
+
+善于猎魔人-杰洛特，武僧-大圣，感觉也没什么问题
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6299#       发表于 2019-11-21 17:30
+
+
+
+
+秦川的网名又不是秦川
+
+
+
+
+
+
+
+-----
+
+####  DMMAX  
+##### 6300#       发表于 2019-11-21 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45581687&amp;ptid=1712512" target="_blank">马僧虔 发表于 2019-11-21 17:38</a>
+
+这莎木3一通狂吹啊，这么香？</blockquote>
+赌狗狂欢
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 6301#       发表于 2019-11-21 18:22
+
+
+
+
+神他妈秦川，喷了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6302#       发表于 2019-11-21 18:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/21/182447h6kkdd00jdkzjjm0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>批注 2019-11-21 152724.jpg</strong> (9.56 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-21 18:24 上传
+
+
+
+
+
+
+网易的秦川应该是这个啦
+
+CC的staff当年可是拍着胸脯跟大伙保证说给缺哥哥最舒适的直播环境的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6303#       发表于 2019-11-21 20:36
+
+
+
+
+韦琴草
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6304#       发表于 2019-11-21 20:38
+
+
+
+ 本帖最后由 音无奏 于 2019-11-21 20:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“韦qin！”（超大声超喜悦）
+
+
+徐师傅是一名雕刻师，门房的好兄弟徐晓也姓徐，也爱好雕刻，答案已经很明朗了
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6305#       发表于 2019-11-21 21:58
+
+
+
+ 本帖最后由 zxlice 于 2019-11-21 22:01 编辑 
+
+连丢三回 终于有点样子了
+
+打韦珍的时候居然出现了三格血绕后出一闪
+
+
+
+
+
+
+
+-----
+
+####  kugayama1369  
+##### 6306#       发表于 2019-11-21 22:09
+
+
+
+
+开始钓鱼了艹，看起来香疯了
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6307#       发表于 2019-11-21 22:17
+
+
+
+
+被复仇耽误了的天才赌神
+
+
+
+
+
+
+
+-----
+
+####  lkjh  
+##### 6308#       发表于 2019-11-21 22:19
+
+
+
+
+真实赌狗哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 6309#       发表于 2019-11-21 22:25
+
+
+
+
+今晚这赌狗TV效果爆炸
+
+
+
+
+
+
+
+-----
+
+####  逍遥周郎  
+##### 6310#       发表于 2019-11-21 22:25
+
+
+
+
+赌神狗太TM牛逼了，服了
+
+
+
+
+
+
+
+-----
+
+####  jy02394668  
+##### 6311#       发表于 2019-11-21 22:25
+
+
+
+
+喷了，真的一发入魂
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 6312#       发表于 2019-11-21 22:25
+
+
+
+
+重庆千王上线
+
+
+
+
+
+
+
+-----
+
+####  shushi  
+##### 6313#       发表于 2019-11-21 22:25
+
+
+
+
+卧槽绝了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  275042314  
+##### 6314#       发表于 2019-11-21 22:26
+
+
+
+
+膨胀了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6315#       发表于 2019-11-21 22:26
+
+
+
+
+赌疯了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6316#       发表于 2019-11-21 22:29
+
+
+
+
+草赌狗直播间太有乐子了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6317#       发表于 2019-11-21 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">小秦这套飞腿打拳看得我也跃跃欲试……不知道买了游戏抄他的攻（录）略（像）能不能打得一样好
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6318#       发表于 2019-11-22 00:09
+
+
+
+
+真实赌狗
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6319#       发表于 2019-11-22 00:18
+
+
+
+
+草，抽扭蛋也能上瘾，秦川玩二次元手游必氪掉内裤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6320#       发表于 2019-11-22 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45585481&amp;ptid=1712512" target="_blank">btts 发表于 2019-11-22 00:18</a>
+
+草，抽扭蛋也能上瘾，秦川玩二次元手游必氪掉内裤</blockquote>
+还记得天鹅绒房间的奇迹交换和xb2的尼哥collection吗
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6321#       发表于 2019-11-22 00:23
+
+
+
+
+这游戏叫人中赌狗，简称如狗
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6322#       发表于 2019-11-22 00:32
+
+
+
+
+桂林-中国拉斯维加斯
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6323#       发表于 2019-11-22 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45585574&amp;ptid=1712512" target="_blank">阿库鲁艾特 发表于 2019-11-22 00:32:25</a>
+桂林-中国拉斯维加斯</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，抓赌了啊！
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6324#       发表于 2019-11-22 00:36
+
+
+
+
+赛青蛙的bgm是二胡赛马 绝了
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6325#       发表于 2019-11-22 00:38
+
+
+
+
+整个村子组成了一个诈骗网络
+
+
+
+
+
+
+
+-----
+
+####  bad_alloc  
+##### 6326#       发表于 2019-11-22 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45585515&amp;ptid=1712512" target="_blank">sanxgh571 发表于 2019-11-22 00:22</a>
+
+还记得天鹅绒房间的奇迹交换和xb2的尼哥collection吗</blockquote>
+这个比随手抽kosmos啊
+
+
+
+
+
+
+
+-----
+
+####  h1r0  
+##### 6327#       发表于 2019-11-22 00:50
+
+
+
+
+赌狗狂怒
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6328#       发表于 2019-11-22 00:51
+
+
+
+
+戒赌中心，成了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6329#       发表于 2019-11-22 00:51
+
+
+
+
+气急败坏下播，赌狗的最期<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6330#       发表于 2019-11-22 00:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戒赌直播间，向大家生动形象地展示赌狗的下场
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6331#       发表于 2019-11-22 00:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个明明赌起来不核算啊，狗头人怎么选择赌这个？
+
+
+
+
+
+
+
+-----
+
+####  电风扇  
+##### 6332#       发表于 2019-11-22 01:06
+
+
+
+
+这村子绝了，到处都在赌
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 6333#       发表于 2019-11-22 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45585114&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-21 23:22</a>
+
+小秦这套飞腿打拳看得我也跃跃欲试……不知道买了游戏抄他的攻（录）略（像）能不能打得一样好 ...</blockquote>
+他玩的是普通难度
+
+
+
+
+
+
+
+-----
+
+####  lubu  
+##### 6334#       发表于 2019-11-22 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45587145&amp;ptid=1712512" target="_blank">yanghuangu 发表于 2019-11-21 20:29</a>
+他玩的是普通难度</blockquote>
+我怎么记得一开始选的是简单（丢人）难度吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 6335#       发表于 2019-11-22 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45588906&amp;ptid=1712512" target="_blank">lubu 发表于 2019-11-22 12:16</a>
+
+我怎么记得一开始选的是简单（丢人）难度吗？</blockquote>
+玩了一会说简单，改成极难试了下就怂了，最后改成普通<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6336#       发表于 2019-11-22 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45588962&amp;ptid=1712512" target="_blank">yanghuangu 发表于 2019-11-22 12:21</a>
+玩了一会说简单，改成极难试了下就怂了，最后改成普通</blockquote>
+这就是普通人阿秦吗?真够好笑de喏～[c:247]
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6337#       发表于 2019-11-22 16:30
+
+
+
+
+今天要摸？
+
+
+
+
+
+
+
+-----
+
+####  不是摸鱼是捕鲸  
+##### 6338#       发表于 2019-11-22 18:03
+
+
+
+[https://www.bilibili.com/video/av76541865?p=1](https://www.bilibili.com/video/av76541865?p=1)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱智到我了，太草了
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6339#       发表于 2019-11-22 21:01
+
+
+
+
+今天是不存在的一天，当然要摸了（暴言
+
+
+
+
+
+
+
+-----
+
+####  Mr_DECADE  
+##### 6340#       发表于 2019-11-22 21:22
+
+
+
+
+青橙还是厉害啊
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6341#       发表于 2019-11-22 21:44
+
+
+
+
+我上别的网站都没问题，唯独cc会卡的不行根本显示不了画面。谁知道为啥
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6342#       发表于 2019-11-23 19:40
+
+
+
+
+和美女约会了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6343#       发表于 2019-11-23 20:10
+
+
+
+
+两天没桂林风云看，快产生戒断了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6344#       发表于 2019-11-24 21:56
+
+
+
+
+赌狗又开始了
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6345#       发表于 2019-11-24 21:58
+
+
+
+
+现在来看要是小秦来开发莎木4不得把故事放在澳门（（
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6346#       发表于 2019-11-24 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45610699&amp;ptid=1712512" target="_blank">GrayishWh0 发表于 2019-11-24 21:58</a>
+现在来看要是小秦来开发莎木4不得把故事放在澳门（（</blockquote>
+拉斯维加斯的中国城比较好
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6347#       发表于 2019-11-24 22:16
+
+
+
+
+全村人都知道凉被揍了，太丢人了233
+
+
+
+
+
+
+
+-----
+
+####  屌拿星人  
+##### 6348#       发表于 2019-11-24 22:17
+
+
+
+
+世纪末桂林传说[f:209]
+
+—— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6349#       发表于 2019-11-24 22:17
+
+
+
+
+你被流氓揍了2次的事情啊，我们全村都知道了
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6350#       发表于 2019-11-24 22:22
+
+
+
+
+想变强就要吃禁果啊，凉！233
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6351#       发表于 2019-11-24 22:34
+
+
+
+
+80年代的2000块老酒，奢侈品啊
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6352#       发表于 2019-11-24 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">"垃圾游戏"了
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6353#       发表于 2019-11-24 23:10
+
+
+
+
+小球卡住了可还行
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6354#       发表于 2019-11-24 23:10
+
+
+
+
+动啊铁奥你为什么不动<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6355#       发表于 2019-11-24 23:11
+
+
+
+
+这小钢珠怎么这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也要去日本桂林当毒狗
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6356#       发表于 2019-11-24 23:15
+
+
+
+
+初速度和角度有随机，应该是每次有一个范围是可以中的，看你搞对没
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6357#       发表于 2019-11-24 23:27
+
+
+
+
+狗头人迷惑发言，该家暴了233
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6358#       发表于 2019-11-24 23:38
+
+
+
+
+这游戏打拳到底是什么判定，云玩家表示疑惑，根本看不懂在打什么，以及成功攻击到对面没有
+
+
+
+
+
+
+
+-----
+
+####  セト  
+##### 6359#       发表于 2019-11-24 23:43
+
+
+
+
+这游戏可太怪了
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6360#       发表于 2019-11-24 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"没啥意思了"
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6361#       发表于 2019-11-24 23:50
+
+
+
+
+非困难难度的确几下就打过武功馆了。
+然后游戏没推进一次或者睡一天第一次对话都不能跳过去的很迷惑，对话取消再对话就可以跳了，怀疑Bug
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6362#       发表于 2019-11-24 23:52
+
+
+
+
+肉灵芝艹，和天哥同款，一起做云穴兄弟233
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6363#       发表于 2019-11-25 00:22
+
+
+
+ 本帖最后由 Mr.BBWoLf 于 2019-11-25 00:23 编辑 
+
+原来昨天有在播啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+点进去又在抽扭蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6364#       发表于 2019-11-25 00:24
+
+
+
+
+卧槽声控出斧
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6365#       发表于 2019-11-25 00:24
+
+
+
+
+艹，扭蛋环节这么快结束，没意思
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6366#       发表于 2019-11-25 00:31
+
+
+
+
+艹，好感负数
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6367#       发表于 2019-11-25 00:32
+
+
+
+ 本帖最后由 今天不守尸 于 2019-11-25 00:34 编辑 
+
+狗头人又说怪话了，单纯漂亮的村姑她不香吗💩！
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6368#       发表于 2019-11-25 01:00
+
+
+
+
+这段真的怪，终极羞辱啊
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6369#       发表于 2019-11-25 01:02
+
+
+
+
+莎花是粉切黑吗😱
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6370#       发表于 2019-11-25 01:14
+
+
+
+
+大和抚子的终极秘术<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6371#       发表于 2019-11-25 01:30
+
+
+
+
+这尬聊技术加+soga三连，真的太草了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6372#       发表于 2019-11-25 02:02
+
+
+
+
+草，看饿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6373#       发表于 2019-11-25 02:16
+
+
+
+
+天啊，这个游戏真的说的上漂亮的就莎花了。其他建模都太丑了，都是刻意夸张的那种，为啥呀
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 6374#       发表于 2019-11-25 02:46
+
+
+
+
+为啥星战的动作设计和关卡玩不下去，一个简单的扔球扔骰子这么上瘾，就像不玩大作去玩糞手游一样，秦先生是不是作为玩家的纯度降低了
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6375#       发表于 2019-11-25 03:00
+
+
+
+
+莎木3看下来观感是真的不错 难以想象5.9是怎么评出来的
+
+
+
+
+
+
+
+-----
+
+####  lubu  
+##### 6376#       发表于 2019-11-25 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45612402&amp;ptid=1712512" target="_blank">modkingr 发表于 2019-11-24 14:00</a>
+
+莎木3看下来观感是真的不错 难以想象5.9是怎么评出来的</blockquote>
+本身这游戏就同搁浅一样很挑人 让一个没“爱”的路人同时赶火车一样的交任务来评测 当然分数不会高，ign那位光qte就玩的十分火大 你说能给高分吗？隔壁本部的宝可梦同ign日本都是粉丝来评测当然分数会虚高了点。5,9很明显有点巨魔加上故意恶心人的，如果给个6.5~7.5 我觉得大部分粉丝同路人都觉得很合理。（讲个笑话 隔壁edfc大部分人觉得5.9太高了 该给个2~3 然后又在破解区感谢）
+
+
+
+
+
+
+
+-----
+
+####  lyc90716  
+##### 6377#       发表于 2019-11-25 05:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45612389&amp;ptid=1712512" target="_blank">kuhailz 发表于 2019-11-25 02:46</a>
+
+为啥星战的动作设计和关卡玩不下去，一个简单的扔球扔骰子这么上瘾，就像不玩大作去玩糞手游一样，秦先生是 ...</blockquote>
+返璞归真啊（，现在主流大作的路子都腻了，星战就是个各种大作的缝合怪，除非各方面质量都拔尖不然确实不如玩点不一样的纯粹的乐子（比如赌博），我非常理解，再说看着也开心多了。
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6378#       发表于 2019-11-25 08:40
+
+
+
+
+狗头人评价挺不错，其实一旦适应一开始操控不适和画面（人脑挺强），还真的挺好玩的。就希望可以多点打架的地方<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AdoringBeast  
+##### 6379#       发表于 2019-11-25 08:41
+
+
+
+
+这两天回看秦川的如龙录像，那会儿还是黄赌毒我们都不沾的，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6380#       发表于 2019-11-25 11:18
+
+
+
+
+秦川每次莎木三下播都要发条微博，qgn还连吹了两次，属实真爱<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6381#       发表于 2019-11-25 13:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">小秦真的好惦记钓鱼的那个胖哥哥啊，钓鱼的唯一动力就是为了获得和他说话的资格
+
+
+
+
+
+
+
+-----
+
+####  lubu  
+##### 6382#       发表于 2019-11-25 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45614695&amp;ptid=1712512" target="_blank">btts 发表于 2019-11-24 22:18</a>
+秦川每次莎木三下播都要发条微博，qgn还连吹了两次，属实真爱</blockquote>
+不知道玩完3之后 秦会不会玩回2 （1记的好像没有赌狗会所，没有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CJkingmaker  
+##### 6383#       发表于 2019-11-25 13:26
+
+
+
+
+小秦在无主3里 就已经是标准赌狗了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6384#       发表于 2019-11-25 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45616222&amp;ptid=1712512" target="_blank">CJkingmaker 发表于 2019-11-25 13:26</a>
+
+小秦在无主3里 就已经是标准赌狗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">“我不是，我没有，爱慕clean，我是个干净的人”
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6385#       发表于 2019-11-25 20:15
+
+
+
+
+莎木的芭月凉怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊天尬笑soga三连，拿起电话秒成情圣
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6386#       发表于 2019-11-25 23:35
+
+
+
+ 本帖最后由 ACGN若翼 于 2019-11-25 23:37 编辑 
+
+玩莎木3狂喷剑盾还行
+
+“屎 傻中傻”
+
+
+
+
+
+
+
+-----
+
+####  DeepRed  
+##### 6387#       发表于 2019-11-25 23:35
+
+
+
+
+现在秦川微博下都是些什么怪评论，太弱智了吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6388#       发表于 2019-11-25 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45622348&amp;ptid=1712512" target="_blank">DeepRed 发表于 2019-11-25 23:35</a>
+
+现在秦川微博下都是些什么怪评论，太弱智了吧</blockquote>
+秦川现在b博下面全是脑残翻译怪
+
+cc直播间除了**哥复读机就是节奏狗（播新作尤其明显）
+
+相比之下微博正常评论算多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6389#       发表于 2019-11-26 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大城市的都是花架子，不如乡下踏实练功的有真才实学
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6390#       发表于 2019-11-26 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45630821&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-26 20:41:22</a>
+大城市的都是花架子，不如乡下踏实练功的有真才实学</blockquote>一脚分胜负！
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6391#       发表于 2019-11-26 21:19
+
+
+
+
+勤劳致不了富，社会把好人变成赌🐶
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6392#       发表于 2019-11-26 23:04
+
+
+
+
+桂林聂风笑死我了
+
+
+
+
+
+
+
+-----
+
+####  lubu  
+##### 6393#       发表于 2019-11-27 00:51
+
+
+
+
+黄龙一丝血反杀狗头人 太艹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 笑死我了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6394#       发表于 2019-11-27 01:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真功夫害得看白鹿村父老乡亲，看弹幕才想起来是那个一直在跳梅花桩的老哥，细节真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6395#       发表于 2019-11-27 02:12
+
+
+
+ 本帖最后由 btts 于 2019-11-27 02:19 编辑 
+
+这游戏沉浸感好强，听着晚上背景音里的狗叫猫叫蟋蟀声梦回童年老家啊
+
+
+
+
+
+
+
+-----
+
+####  zxlice  
+##### 6396#       发表于 2019-11-27 08:13
+
+
+
+
+狗头人挺能带入这游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 一开始还以为粪游戏，现在播完发一条微博
+
+
+
+
+
+
+
+-----
+
+####  三千院飒  
+##### 6397#       发表于 2019-11-28 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">秦川竟然把死亡搁浅白金了
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  lyc90716  
+##### 6398#       发表于 2019-11-28 04:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45642870&amp;ptid=1712512" target="_blank">三千院飒 发表于 2019-11-28 00:48</a>
+
+秦川竟然把死亡搁浅白金了
+
+
+—— 来自 vivo NEX S, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+感觉他很少有白金游戏，看来对送快递是真爱
+
+
+
+
+
+
+
+-----
+
+####  三千院飒  
+##### 6399#       发表于 2019-11-28 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45643351&amp;ptid=1712512" target="_blank">lyc90716 发表于 2019-11-28 04:02</a>
+感觉他很少有白金游戏，看来对送快递是真爱</blockquote>
+就三款
+次子 土命2本体 死亡搁浅
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  suzumiya123  
+##### 6400#       发表于 2019-11-28 19:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/28/194529gxtxhp9gdpskdkpm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A8B8B84C-0ADB-449C-BC19-A88F7AD11594.jpeg</strong> (118.57 KB, 下载次数: 0)
+
+下载附件
+
+2019-11-28 19:45 上传
+
+
+
+
+
+
+狗狗成百万大v了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6401#       发表于 2019-11-28 20:28
+
+
+
+<blockquote>suzumiya123 发表于 2019-11-28 19:45
+狗狗成百万大v了</blockquote>
+草，评论转发全是催22的
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6402#       发表于 2019-11-28 20:52
+
+
+
+
+是不是该催他回归初心来期伊丽莎白啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6403#       发表于 2019-11-28 21:08
+
+
+
+
+草，真就桂林聂风啊。一招风神腿踢遍天下。
+
+
+
+
+
+
+
+-----
+
+####  笑眼枫子  
+##### 6404#       发表于 2019-11-28 21:47
+
+
+
+
+万能的泥潭
+
+我想求一下莎花T恤上的Q版莎花图不知道有没有人理我
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6405#       发表于 2019-11-28 21:54
+
+
+
+
+我要打三个！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6406#       发表于 2019-11-28 22:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">3，这是要输啊？新用户优惠啊！3！
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6407#       发表于 2019-11-28 22:54
+
+
+
+ 本帖最后由 今天不守尸 于 2019-11-28 22:55 编辑 
+
+八月凉也太渣男了吧
+
+工作干活都是三天打鱼两天晒网
+
+整天就知道打拳赌博玩柏青哥
+
+晚上回家就只会给老婆甩臭脸，上了床倒头就呼呼大睡
+
+发到微博上就该拳法警告了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莉洁莉特  
+##### 6408#       发表于 2019-11-28 23:12
+
+
+
+
+赌狗的末路。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6409#       发表于 2019-11-28 23:18
+
+
+
+
+赌到迷茫寻求大仙的占卜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 6410#       发表于 2019-11-28 23:19
+
+
+
+
+卧槽太真实了这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 6411#       发表于 2019-11-28 23:20
+
+
+
+
+看到的弹幕，赌狗赌光了怎么办，叫莎花养啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6412#       发表于 2019-11-28 23:26
+
+
+
+
+气急败坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dneo  
+##### 6413#       发表于 2019-11-28 23:30
+
+
+
+
+大师NB
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 6414#       发表于 2019-11-28 23:31
+
+
+
+
+连续三把<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6415#       发表于 2019-11-28 23:33
+
+
+
+
+四连超神
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6416#       发表于 2019-11-29 00:08
+
+
+
+
+这计算能力太强了吧，吃了没文化的亏
+
+
+
+
+
+
+
+-----
+
+####  casle  
+##### 6417#       发表于 2019-11-29 01:44
+
+
+
+
+这毒勃也太有乐子了
+
+我光是听毒狗在那一通分析就笑得书都看不进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風舞雪  
+##### 6418#       发表于 2019-11-29 01:45
+
+
+
+
+我觉得小秦是真喜欢赌...
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6419#       发表于 2019-11-29 01:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赌徒搁浅：桂林默示录
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6420#       发表于 2019-11-29 01:48
+
+
+
+
+大家要是去老实打几天工，也会想赌d……
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6421#       发表于 2019-11-29 01:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45651555&amp;ptid=1712512" target="_blank">笑眼枫子 发表于 2019-11-28 21:47</a>
+
+万能的泥潭
+
+我想求一下莎花T恤上的Q版莎花图不知道有没有人理我</blockquote>
+[https://www.bilibili.com/video/av76889497](https://www.bilibili.com/video/av76889497)
+
+典藏版送的贴纸上面有，不知道外网有没有人弄扫描版<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有钱多买小人  
+##### 6422#       发表于 2019-11-29 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45653172&amp;ptid=1712512" target="_blank">風舞雪 发表于 2019-11-29 01:45</a>
+我觉得小秦是真喜欢赌...</blockquote>
+懒是这样的
+
+
+
+
+
+
+
+-----
+
+####  笑眼枫子  
+##### 6423#       发表于 2019-11-29 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45653191&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-11-29 01:49</a>
+
+https://www.bilibili.com/video/av76889497
+
+典藏版送的贴纸上面有，不知道外网有没有人弄扫描版 ...</blockquote>
+SODANA
+
+原来在典藏版里
+
+
+
+
+
+
+
+-----
+
+####  MikePJ  
+##### 6424#       发表于 2019-11-29 10:21
+
+
+
+
+秦川是爱赌，玩啥都赌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 6425#       发表于 2019-11-29 22:04
+
+
+
+
+欸这里能劈柴。
+
+算了小钱看不上
+
+真实赌狗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6426#       发表于 2019-11-29 22:17
+
+
+
+
+Kenshi真爱粉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+2019年个人最佳游戏TOP5
+
+第一名《死亡搁浅》&amp;《Kenshi》并列，不分先后
+
+第二名《只狼:影逝二度》
+
+第三名《莎木3》
+
+第四名《鬼泣5》&amp;《生化危机2重制版》并列，不分先后
+
+《天外世界》和《异界锁链》都没怎么玩，不知道该怎么定位。
+
+第五名《7.5-8.5分的优秀游戏》
+
+今年游戏没啥尖子生，就那种特别完美牛批的。不如2018巅峰，但今年让人沉迷的游戏不少
+
+
+
+
+
+
+
+-----
+
+####  saevey  
+##### 6427#       发表于 2019-11-29 22:48
+
+
+
+
+微博底下的人怎么还在嘲剑盾，忘了秦川给剑盾7.5分吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6428#       发表于 2019-11-29 22:54
+
+
+
+
+冰原玩的时间最久，按他之前直播的说法是200小时还是近千小时，但没的排面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6429#       发表于 2019-11-29 23:01
+
+
+
+
+kenshi确实不错，今年最大的惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6430#       发表于 2019-11-29 23:18
+
+
+
+
+给我每周40个小时的打电动时间，我估计也是这种排名思路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  julia黑  
+##### 6431#       发表于 2019-11-29 23:26
+
+
+
+
+死亡搁浅预期放低了玩得感受确实还不错，但我还是只狼top1
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6432#       发表于 2019-11-29 23:42
+
+
+
+
+能SL的赌博游戏到底有什么意思？
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6433#       发表于 2019-11-30 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45662946&amp;ptid=1712512" target="_blank">缺德猫 发表于 2019-11-29 23:42</a>
+
+能SL的赌博游戏到底有什么意思？</blockquote>
+这种小游戏的本质就是探索套路然后厌恶啊
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 6434#       发表于 2019-11-30 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45662946&amp;ptid=1712512" target="_blank">缺德猫 发表于 2019-11-29 23:42:12</a>
+能SL的赌博游戏到底有什么意思？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赚钱啊，难道真要劈上几十个小时的柴吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6435#       发表于 2019-11-30 01:02
+
+
+
+
+看来打猎已经是生活了，不算游戏<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6436#       发表于 2019-11-30 19:26
+
+
+
+
+艹这什么游戏，还有狗头人联动卡。不过这背景的莱莱在游戏里有什么意义么
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6437#       发表于 2019-11-30 21:19
+
+
+
+
+联通之子又输了
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6438#       发表于 2019-12-1 20:49
+
+
+
+
+小秦还在掌机模式偷玩剑盾，开始打对战塔了，图里美纳斯满个体252HP，暴鲤龙满个体4HP，以自组来说有点pro，应该是租借队
+
+
+
+
+
+
+
+-----
+
+####  野驴的逆袭  
+##### 6439#       发表于 2019-12-2 21:23
+
+
+
+
+蒜本位经济草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6440#       发表于 2019-12-2 21:26
+
+
+
+
+“来两万个蒜”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  血狂毘沙门  
+##### 6441#       发表于 2019-12-2 23:00
+
+
+
+
+这屎游戏 每次点进秦川直播间都在玩钢珠<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6442#       发表于 2019-12-2 23:26
+
+
+
+
+这盘子弄得像烤囊
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6443#       发表于 2019-12-3 00:01
+
+
+
+
+艹，游戏时间五十个小时有一半时间是在赌。。。
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6444#       发表于 2019-12-3 00:06
+
+
+
+
+“岁月催人老，但是不管怎么老，都是老不过皇帝的。”
+
+
+
+
+
+
+
+-----
+
+####  yufeng029  
+##### 6445#       发表于 2019-12-3 00:06
+
+
+
+
+又感慨人生了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6446#       发表于 2019-12-3 00:09
+
+
+
+
+十年前，十年后，真是令人感叹
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6447#       发表于 2019-12-3 00:11
+
+
+
+
+唐突人生感悟，光速下播
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6448#       发表于 2019-12-3 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一切话题都能转进到乳天/乳黄
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6449#       发表于 2019-12-3 08:37
+
+
+
+
+今天晚上十有八九是黑楼瑞驰吧
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6450#       发表于 2019-12-3 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45700861&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2019-12-3 08:37</a>
+今天晚上十有八九是黑楼瑞驰吧</blockquote>
+reach要4号凌晨2点。
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6451#       发表于 2019-12-3 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45701971&amp;ptid=1712512" target="_blank">空罐子 发表于 2019-12-3 10:26</a>
+
+reach要4号凌晨2点。</blockquote>
+小秦不是玩X1X版嘛，大概可以当新西兰人吧
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6452#       发表于 2019-12-3 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45701980&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2019-12-3 10:27</a>
+小秦不是玩X1X版嘛，大概可以当新西兰人吧</blockquote>
+不能，这次全球统一解锁，没有新西兰人。
+
+
+
+
+
+
+
+-----
+
+####  一见大吉  
+##### 6453#       发表于 2019-12-3 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45693560&amp;ptid=1712512" target="_blank">YoungYiba 发表于 2019-12-2 21:26</a>
+
+“来两万个蒜”
+
+
+—— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v1.3.3.2-play ...</blockquote>
+莎花，上蒜菜。
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6454#       发表于 2019-12-3 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45694585&amp;ptid=1712512" target="_blank">血狂毘沙门 发表于 2019-12-02 23:00:49</a>
+这屎游戏 每次点进秦川直播间都在玩钢珠</blockquote>昨天晚上八点多看狗头人玩钢珠直接昏睡，醒来一看快十二点了还在赌。我佛了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6455#       发表于 2019-12-3 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么steam那个大奖没法提名halo，点了没反应
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6456#       发表于 2019-12-3 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45706230&amp;ptid=1712512" target="_blank">搞不好是洗衣粉 发表于 2019-12-3 17:10</a>
+为什么steam那个大奖没法提名halo，点了没反应</blockquote>
+没发售的不能提名
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6457#       发表于 2019-12-3 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45706300&amp;ptid=1712512" target="_blank">空罐子 发表于 2019-12-3 17:16</a>
+
+没发售的不能提名</blockquote>
+害，也就差一天的事儿<img src="https://static.saraba1st.com/image/smiley/device2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6458#       发表于 2019-12-3 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45706328&amp;ptid=1712512" target="_blank">搞不好是洗衣粉 发表于 2019-12-3 17:19</a>
+
+害，也就差一天的事儿</blockquote>
+不只是这样，那些有商店页面但steam还没解锁的也不能提名，比如Control
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6459#       发表于 2019-12-4 18:31
+
+
+
+
+致远星了，猛男落泪，还缺一个门房
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6460#       发表于 2019-12-4 18:40
+
+
+
+
+很久没看到门房了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6461#       发表于 2019-12-4 18:42
+
+
+
+
+艹，高强度复刻，甚至把伟天没法连上第一章都复刻了
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6462#       发表于 2019-12-4 18:52
+
+
+
+
+秦川这枪法变差了.是我错觉吗?
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6463#       发表于 2019-12-4 19:53
+
+
+
+<blockquote>塔奇克马 发表于 2019-12-4 18:52
+秦川这枪法变差了.是我错觉吗?</blockquote>
+好像是手柄吸力变低了
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6464#       发表于 2019-12-4 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45722690&amp;ptid=1712512" target="_blank">搞不好是洗衣粉 发表于 2019-12-4 19:53</a>
+
+好像是手柄吸力变低了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">就是那个halo辅助吸附圈变了?
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6465#       发表于 2019-12-4 22:57
+
+
+
+
+和韦天蹲一起拉屎笑死我了
+
+
+
+
+
+
+
+-----
+
+####  搞不好是洗衣粉  
+##### 6466#       发表于 2019-12-4 23:02
+
+
+
+
+这剧情隔这么多年还是令猛男落泪，当年最后一关射爆飞船然后任务改为活下去真是震撼到了我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6467#       发表于 2019-12-4 23:52
+
+
+
+
+我是真的很想知道手柄甩狙到底是怎么操作出来的
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6468#       发表于 2019-12-4 23:59
+
+
+
+
+缺哥这意识和跟枪是真的强。
+
+为什么明天不继续黑楼了，哭了。
+
+
+
+
+
+
+
+-----
+
+####  AyaneLin  
+##### 6469#       发表于 2019-12-4 23:59
+
+
+
+
+狗狗pvp还是可以 不愧是cn第二
+
+
+
+
+
+
+
+-----
+
+####  NameLess2501  
+##### 6470#       发表于 2019-12-5 00:03
+
+
+
+
+缺哥荣耀下播！
+
+看小秦打黑楼PVP，感觉就像回到了大学时光，想起了曾经利落的报点，令人感叹。
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6471#       发表于 2019-12-5 00:13
+
+
+
+
+这几年每次他播halo我都不由得感慨一下
+
+他如果是美国人可能已经做了职业选手扬名立万了
+
+国内主机FPS的话圈子很小也很散
+
+当年Halo5国区预选貌似就来了一个算得上是职业选手的队伍，当然最后也是决赛赢了quin所在的队
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6472#       发表于 2019-12-5 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">感觉今天的视频不会传睿站了，只能直接保存下cc的录像地址回味了
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6473#       发表于 2019-12-5 00:22
+
+
+
+
+希望343给点力，无限不要再让小秦失望了。
+
+
+
+
+
+
+
+-----
+
+####  AyaneLin  
+##### 6474#       发表于 2019-12-5 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45725104&amp;ptid=1712512" target="_blank">NameLess2501 发表于 2019-12-5 00:03</a>
+缺哥荣耀下播！
+
+看小秦打黑楼PVP，感觉就像回到了大学时光，想起了曾经利落的报点，令人感叹。 ...</blockquote>
+利落的报点-指牛排屋集合跳舞
+
+
+
+
+
+
+
+-----
+
+####  blz436  
+##### 6475#       发表于 2019-12-5 01:08
+
+
+
+ 本帖最后由 blz436 于 2019-12-5 01:11 编辑 
+
+该回味当年牛排屋了,坐标208分,CUP1部分录像在imbaTV; 当年临时组建+训练的散兵游勇对上Xbox Skyer这帮黑楼精锐直接被打出屎来只能跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[Halo5世界锦标赛ESL中国区CUP2 直播录像](https://v.youku.com/v_show/id_XMTQ0NzM4NzMwMA==.html)
+
+
+
+
+
+
+
+-----
+
+####  一个过路的  
+##### 6476#       发表于 2019-12-5 05:03
+
+
+
+
+看莎木的录像，这不就是贫困山区某些懒汉的真实写照吗。睡醒就是出门赌博打架，回家倒头就睡。铃木终究是外国人，只有真正的中国人才能赋予这个游戏灵魂。
+
+
+
+
+
+
+
+-----
+
+####  看别人玩游戏  
+##### 6477#       发表于 2019-12-5 07:45
+
+
+
+ 本帖最后由 看别人玩游戏 于 2019-12-5 07:56 编辑 
+<blockquote>qiyu1234 发表于 2019-12-5 00:13
+这几年每次他播halo我都不由得感慨一下
+
+他如果是美国人可能已经做了职业选手扬名立万了
+
+国内主机FPS的话圈 ...</blockquote>
+
+先不说能不能成为职业（其实我觉得他本身就缺乏心气），想要扬名立万，对智障来说也太难了，不开玩笑的说，职业选手里最不缺的就是天赋，而且是很高的天赋。欧美那边路人王不要太多（一眼就能看出来有那种实力的），真正转进职业圈的也没多少（还有转了一圈出来的），一般路人王跟职业也是差了很多档次，排位跟比赛本身就是两个概念的事了。如果不是真的想追求荣誉（其实我觉得美国那边很多选手相比欧洲而言真的仅仅是想挣钱），就干脆好好直播，节目效果弄弄好，来的钱并不少，还轻松（相比职业而言）
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6478#       发表于 2019-12-5 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45726991&amp;ptid=1712512" target="_blank">看别人玩游戏 发表于 2019-12-5 07:45</a>
+先不说能不能成为职业（其实我觉得他本身就缺乏心气），想要扬名立万，对智障来说也太难了，不开玩笑的说 ...</blockquote>
+心气这些跟客观环境有至关重要的联系，要知道现在他的水平和成绩也是在一个几乎没有任何主机FPS土壤的大环境下成长起来的，虽然也不能说他如果在欧美一定能怎样，但如果他还是选择玩halo的话，成为职业选手的可能性还是不小
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 6479#       发表于 2019-12-5 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45725175&amp;ptid=1712512" target="_blank">qiyu1234 发表于 2019-12-5 00:13</a>
+这几年每次他播halo我都不由得感慨一下
+
+他如果是美国人可能已经做了职业选手扬名立万了
+
+国内主机FPS的话圈 ...</blockquote>
+halo的电竞也就那样了，忍者当年也是不打halo了直播其它的才能搞得这么红火吧
+
+
+
+
+
+
+
+-----
+
+####  有钱多买小人  
+##### 6480#       发表于 2019-12-5 09:37
+
+
+
+ 本帖最后由 有钱多买小人 于 2019-12-5 09:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45722690&amp;ptid=1712512" target="_blank">搞不好是洗衣粉 发表于 2019-12-4 19:53</a>
+好像是手柄吸力变低了</blockquote>
+手柄吸力有现代和经典，缺选了现代，吸附低
+
+
+
+
+
+
+
+-----
+
+####  kiralzb  
+##### 6481#       发表于 2019-12-5 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45725222&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-12-5 00:20</a>
+
+感觉今天的视频不会传睿站了，只能直接保存下cc的录像地址回味了</blockquote>
+传了
+
+
+
+
+
+
+
+-----
+
+####  看别人玩游戏  
+##### 6482#       发表于 2019-12-5 15:44
+
+
+
+<blockquote>qiyu1234 发表于 2019-12-5 08:37
+心气这些跟客观环境有至关重要的联系，要知道现在他的水平和成绩也是在一个几乎没有任何主机FPS土壤的大 ...</blockquote>
+
+智障是搭上了直播行业最早的那批顺风车的，比他晚起步的大有人在，当初做主机这块就是靠优酷等视频网站的用户积累（他具备条件），然后把这帮用户转进到自己的直播间里。但自从兼顾直播后就彻底摸了，视频质量也下降了，用他的话讲，用心做的播放量和自己随便糊一下的也差不多。播黑魂3的时候在斗鱼人气是有明显爬升的，但依旧三天两头摸一下，依旧不够“肝”，他直播玩游戏早期是不太注重节目效果的，和观众互动也很少，自己玩自己的。好处是直播间够清净，没什么弱智节奏，坏处是人气半死不活。从看他录黑楼开始，我就觉得他是那种纯粹的“玩家”，足够主观，无所谓别人的看法和期待。所以我觉得他压根没什么心气…
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6483#       发表于 2019-12-5 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45732455&amp;ptid=1712512" target="_blank">看别人玩游戏 发表于 2019-12-05 15:44:57</a>
+智障是搭上了直播行业最早的那批顺风车的，比他晚起步的大有人在，当初做主机这块就是靠优酷等视频网站的 ...</blockquote>以前厕所群没炸掉，而且还能正经讨论游戏的时候就云P过这话题了，反正结论就是秦川只想混着过过自己的小日子
+
+以前有过火一把的机会，但他自己选择放弃了，从他平时的态度来看也能理解
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  DKAAA  
+##### 6484#       发表于 2019-12-6 20:31
+
+
+
+
+怎么想当训练师了
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6485#       发表于 2019-12-6 21:22
+
+
+
+
+莎木完结了 不舍
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6486#       发表于 2019-12-7 11:07
+
+
+
+
+服了，这人打对战不播
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6487#       发表于 2019-12-7 11:20
+
+
+
+
+大概是在打官方大赛吧，不播也正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹幕肯定全是指点江山
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6488#       发表于 2019-12-7 12:11
+
+
+
+
+Mr_Quin
+
+5分钟前 来自 HUAWEI P20 Pro
+
+宝可梦好难，被太君虐成傻逼了 ​​​​
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大赛每天15把，小秦能不能赢到5把都是个问题
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6489#       发表于 2019-12-7 12:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看小秦玩pvp不得气死
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6490#       发表于 2019-12-7 12:54
+
+
+
+
+对战怕是围巾都被对面给扬了
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 6491#       发表于 2019-12-7 14:29
+
+
+
+
+当你的通关党朋友突然想要打对战
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  藤宫彩  
+##### 6492#       发表于 2019-12-7 15:16
+
+
+
+
+从狗头人的剑盾测评就能看出来他懂个锤子的宝可梦.jpg，这次被对战党教育了也算是上了一课<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6493#       发表于 2019-12-7 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+爽到
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6494#       发表于 2019-12-7 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">瞧他这吃瘪的样子，看来是没有排位直播看了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6495#       发表于 2019-12-7 18:52
+
+
+
+
+秦国春晚开始了
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6496#       发表于 2019-12-7 19:06
+
+
+
+
+天之大，一房塞不下
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 6497#       发表于 2019-12-7 19:07
+
+
+
+
+门房开播了
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 6498#       发表于 2019-12-7 19:23
+
+
+
+
+门房今天跑团
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6499#       发表于 2019-12-7 19:25
+
+
+
+
+是门房！
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6500#       发表于 2019-12-7 19:26
+
+
+
+
+有人录播吗有人录播吗
+
+
+
+
+
+
+
+-----
+
+####  AyaneLin  
+##### 6501#       发表于 2019-12-7 19:44
+
+
+
+
+萌房回来了，瓜哥电脑专精只会百度搜索<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kugayama1369  
+##### 6502#       发表于 2019-12-7 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45762704&amp;ptid=1712512" target="_blank">AyaneLin 发表于 2019-12-7 19:44</a>
+萌房回来了，瓜哥电脑专精只会百度搜索</blockquote>
+企业级黑客哈哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  AyaneLin  
+##### 6503#       发表于 2019-12-7 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45762746&amp;ptid=1712512" target="_blank">kugayama1369 发表于 2019-12-7 19:46</a>
+
+企业级黑客哈哈哈哈哈哈哈</blockquote>
+黑客？批客！
+
+门房直播真的挺好玩的，花活也多，战地电台，土味daisuke，连麦解麻，记得他刚直播还每天装修直播间
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6504#       发表于 2019-12-7 22:58
+
+
+
+
+看秦川玩rts实属<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6505#       发表于 2019-12-7 22:59
+
+
+
+
+是真的摸
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6506#       发表于 2019-12-7 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大秦铁骑的荣耀
+
+
+
+
+
+
+
+-----
+
+####  爱护动物抓根宝  
+##### 6507#       发表于 2019-12-8 21:53
+
+
+
+
+其实秦智障玩aoe2感觉还是有节目效果的，游戏速度刚刚好。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6508#       发表于 2019-12-8 22:12
+
+
+
+
+昨天人类一败涂地里的那个sam是谁啊。。。。
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6509#       发表于 2019-12-8 22:14
+
+
+
+<blockquote>GrayishWh0 发表于 2019-12-8 22:12
+昨天人类一败涂地里的那个sam是谁啊。。。。</blockquote>
+jk吧
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6510#       发表于 2019-12-8 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">房哥直播总是错过，wsl
+
+
+
+
+
+
+
+-----
+
+####  CJkingmaker  
+##### 6511#       发表于 2019-12-9 00:28
+
+
+
+
+今晚直播小秦重现了君堡陷落 节目效果可以的
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6512#       发表于 2019-12-9 01:14
+
+
+
+ 本帖最后由 GrayishWh0 于 2019-12-9 01:19 编辑 
+
+jk是谁啊，又是新的小伙伴吗?
+
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6513#       发表于 2019-12-9 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45777505&amp;ptid=1712512" target="_blank">GrayishWh0 发表于 2019-12-9 01:14</a>
+
+又是新的小伙伴吗
+
+
+----发送自 HMD Global Nokia X7,Android 9</blockquote>
+你说JK？不是一直都在的吗（至少打猛汉王经常有），只是存在感不如韦天肯尼机皇
+
+
+
+
+
+
+
+-----
+
+####  zzf111  
+##### 6514#       发表于 2019-12-9 02:21
+
+
+
+
+其实我听声音总是分不清jk和傀儡妹，每次听到声音总以为是一号人物
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6515#       发表于 2019-12-9 11:57
+
+
+
+<blockquote>zzf111 发表于 2019-12-9 02:21
+其实我听声音总是分不清jk和傀儡妹，每次听到声音总以为是一号人物</blockquote>
+jk声音更清澈，语速偏快，傀儡妹声音较低沉，语速也慢一点，还是很好分的
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6516#       发表于 2019-12-9 12:23
+
+
+
+
+看的录像，黄帝突然一换麦有点不太适应，真的好像年轻了几岁的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CJkingmaker  
+##### 6517#       发表于 2019-12-9 12:56
+
+
+
+
+小秦要直播tga了 联通到时候又要拉跨
+
+
+
+
+
+
+
+-----
+
+####  黑椒泡面  
+##### 6518#       发表于 2019-12-9 13:21
+
+
+
+
+我分不清皇帝和机皇，，
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6519#       发表于 2019-12-9 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45784678&amp;ptid=1712512" target="_blank">黑椒泡面 发表于 2019-12-09 13:21:34</a>
+我分不清皇帝和机皇，，</blockquote>皇帝口音更重些吧，机皇北京人来着，京腔。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6520#       发表于 2019-12-9 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45783542&amp;ptid=1712512" target="_blank">btts 发表于 2019-12-09 11:57:26</a>
+jk声音更清澈，语速偏快，傀儡妹声音较低沉，语速也慢一点，还是很好分的 ...</blockquote>我也是不太能分辨出来，主要我也是一看秦川打猛汉我就不看了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 6521#       发表于 2019-12-9 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45784678&amp;ptid=1712512" target="_blank">黑椒泡面 发表于 2019-12-9 13:21</a>
+我分不清皇帝和机皇，，</blockquote>
+老态龙钟的是皇帝，自带嘲讽的是机皇，骚话连篇的是门房，阴阳怪气的是肯尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 6522#       发表于 2019-12-9 14:05
+
+
+
+
+天天被欺负的是皇帝
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6523#       发表于 2019-12-9 14:09
+
+
+
+
+皇帝说话很慵懒，机皇还有点活力。
+
+骚话王只认房哥（
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6524#       发表于 2019-12-9 14:10
+
+
+
+
+看来秦川年少时还是主机玩家，没有经历过网吧打帝国时代的青春，现在玩到决定版才这么惊喜。
+
+不过帝国时代确实老而弥坚，毕业这些年了听说要出重制决定版，那几个大学室友甚至有些孩子都有了现在也在联系我一块买了决定版，这段时间周末一起联机玩真是畅快
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6525#       发表于 2019-12-9 16:11
+
+
+
+
+人类一败涂地真实保留节目，看一次笑一次
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6526#       发表于 2019-12-9 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">秦国春晚之前蒸汽图那次没传，有点可惜，一堆邪神宝可梦模型生草效果拉满，想起他们拉门那里小秦大喊“宝可梦集结！！！”就忍不住想笑
+
+
+
+
+
+
+
+-----
+
+####  zhhy  
+##### 6527#       发表于 2019-12-9 17:24
+
+
+
+
+网易cc这个直播录像怎么回事，只保存几天的?
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 6528#       发表于 2019-12-9 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45784317&amp;ptid=1712512" target="_blank">CJkingmaker 发表于 2019-12-9 12:56</a>
+小秦要直播tga了 联通到时候又要拉跨</blockquote>
+tga在哪里直播，又是油管和图奇的话，那就没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6529#       发表于 2019-12-9 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45788124&amp;ptid=1712512" target="_blank">zhhy 发表于 2019-12-9 17:24</a>
+
+网易cc这个直播录像怎么回事，只保存几天的?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">pc端点主播头像进到的录像页挺完整的呀，手机端不清楚
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6530#       发表于 2019-12-9 19:09
+
+
+
+[批站直达](https://space.bilibili.com/5516209)
+
+偶然发现这个UP做了小秦的剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然还有门房怪话王和小秦聊屎的视频
+
+
+
+
+
+
+
+-----
+
+####  ACGN若翼  
+##### 6531#       发表于 2019-12-9 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45789563&amp;ptid=1712512" target="_blank">lesson 发表于 2019-12-9 19:09</a>
+
+批站直达
+
+偶然发现这个UP做了小秦的剪辑居然还有门房怪话王和小秦聊屎的视频 ...</blockquote>
+西鸡弗斯那个儿童邪典ed真是绝了
+
+每次看都坚持到最后
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6532#       发表于 2019-12-9 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45790893&amp;ptid=1712512" target="_blank">ACGN若翼 发表于 2019-12-9 21:10</a>
+
+西鸡弗斯那个儿童邪典ed真是绝了
+
+每次看都坚持到最后</blockquote>
+剪片带师！希望西鸡弗斯能多整点门房的，之前看滴滴拉屎那乐死了~
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6533#       发表于 2019-12-10 13:22
+
+
+
+ 本帖最后由 btts 于 2019-12-10 19:33 编辑 
+
+编辑
+
+
+
+
+
+
+5170f26ely1g99ez870imj211c0kznpd.jpg
+(99.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2019-11-24 21:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201911/24/212141ejfv4gipgmiigdej.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6534#       发表于 2019-12-10 18:52
+
+
+
+
+怎么今天有旅人的
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6535#       发表于 2019-12-10 19:04
+
+
+
+
+居然带三三老师玩帝国2，爱了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6536#       发表于 2019-12-10 22:52
+
+
+
+
+CC是真的不行
+
+
+
+
+
+
+
+-----
+
+####  2011_4  
+##### 6537#       发表于 2019-12-10 23:20
+
+
+
+
+草，三合一，建议四个人选拜占庭四帝共治
+
+
+
+
+
+
+
+-----
+
+####  不是摸鱼是捕鲸  
+##### 6538#       发表于 2019-12-10 23:48
+
+
+
+[https://www.weibo.com/3189089501 ... me&amp;type=comment](https://www.weibo.com/3189089501/Ik7bN7aDv?from=page_1005053189089501_profile&amp;wvr=6&amp;mod=weibotime&amp;type=comment)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首页上看到小秦转这个
+
+的确和阿天有点像啊............
+
+顺便说下右边的女的有点像高桥李依......
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6539#       发表于 2019-12-11 00:14
+
+
+
+
+现在这解说局必进集锦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6540#       发表于 2019-12-11 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">看昏迷了
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6541#       发表于 2019-12-11 01:17
+
+
+
+
+草 这一局真的漫长 血压拉满 最后又赢了 还挺开心的 看一个RTS新手玩 真的很有小时候玩war3的感觉
+
+
+
+
+
+
+
+-----
+
+####  普通哈尼  
+##### 6542#       发表于 2019-12-11 01:21
+
+
+
+
+草笑死我了，霸凌小秦环节再多来点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6543#       发表于 2019-12-11 21:59
+
+
+
+
+这GTFO的直播效果不错
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6544#       发表于 2019-12-11 23:40
+
+
+
+
+不敢信，这把秦川居然排第一
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6545#       发表于 2019-12-12 20:11
+
+
+
+
+韦天竟然真直播健身环？
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6546#       发表于 2019-12-12 20:28
+
+
+
+
+天哥玩得好艰难
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6547#       发表于 2019-12-12 20:35
+
+
+
+
+网易是二五仔么，怎么把秦川的报价都发出来了。。。。所以现在cc算秦川的经纪人？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6548#       发表于 2019-12-12 20:41
+
+
+
+
+狗狗接商务才几万块，比我想的便宜
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6549#       发表于 2019-12-12 20:43
+
+
+
+
+北极熊今天人气好高啊
+
+
+
+
+
+
+
+-----
+
+####  minatoaqua  
+##### 6550#       发表于 2019-12-12 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45837340&amp;ptid=1712512" target="_blank">GrayishWh0 发表于 2019-12-12 20:35</a>
+
+网易是二五仔么，怎么把秦川的报价都发出来了。。。。所以现在cc算秦川的经纪人？
+
+
+----发送自 STAGE1 App  ...</blockquote>
+当时点开图细看看见下面的报价部分把我看喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一股老鸨把头牌的各项服务明码标价挂出来的并感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6551#       发表于 2019-12-12 20:45
+
+
+
+
+草，网易又编辑掉了，所以是放错图了吗，真实业余
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 6552#       发表于 2019-12-12 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45837340&amp;ptid=1712512" target="_blank">GrayishWh0 发表于 2019-12-12 20:35</a>
+
+网易是二五仔么，怎么把秦川的报价都发出来了。。。。所以现在cc算秦川的经纪人？
+
+
+----发送自 STAGE1 App  ...</blockquote>
+啥？我要康康
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6553#       发表于 2019-12-12 21:06
+
+
+
+
+草，小秦还上舰长了
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6554#       发表于 2019-12-12 21:09
+
+
+
+
+又在韦天直播间寄生吹逼了
+
+
+
+
+
+
+
+-----
+
+####  blz436  
+##### 6555#       发表于 2019-12-12 21:14
+
+
+
+ 本帖最后由 blz436 于 2019-12-12 21:19 编辑 
+
+<img src="https://i.loli.net/2019/12/12/tspHKZuQMfAXT7O.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  275042314  
+##### 6556#       发表于 2019-12-12 21:17
+
+
+
+
+双倍的时间
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6557#       发表于 2019-12-12 21:17
+
+
+
+
+别骂了别骂了
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6558#       发表于 2019-12-12 21:28
+
+
+
+
+感觉报价是故意放出来的
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6559#       发表于 2019-12-12 21:56
+
+
+
+
+韦天居然能坚持这么久,出乎意料.
+
+不过我以为他出院后会努力减肥,结果现在还280斤...真得练练了.
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 6560#       发表于 2019-12-12 22:08
+
+
+
+
+知道天哥是肥仔，没想到天哥居然是280斤的肥仔？！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 6561#       发表于 2019-12-12 22:12
+
+
+
+
+300斤可不是开玩笑的
+
+
+
+
+
+
+
+-----
+
+####  shbz  
+##### 6562#       发表于 2019-12-12 23:43
+
+
+
+
+问一下谁知道cc直播回放列表怎么往下拉，到这就下拉不了了
+
+
+
+
+
+
+Screenshot_2019-12-12-23-42-36-953_com.netease.cc.png
+(141.03 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2019-12-12 23:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/201912/12/234333gtrr1glsyw99z1d1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6563#       发表于 2019-12-13 00:23
+
+
+
+
+线下商务？小秦以后要戴着狗头套登场吗（横尾太郎并感
+
+
+
+
+
+
+
+-----
+
+####  帕林马哲理  
+##### 6564#       发表于 2019-12-13 03:17
+
+
+
+
+天哥280斤？那他应该挺高的。
+因为看起来真的没那么胖，虽然累但还能玩健身环，这可比一般三百斤的人强多了。
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6565#       发表于 2019-12-13 03:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45840378&amp;ptid=1712512" target="_blank">帕林马哲理 发表于 2019-12-13 03:17</a>
+天哥280斤？那他应该挺高的。
+因为看起来真的没那么胖，虽然累但还能玩健身环，这可比一般三百斤的人强多了 ...</blockquote>
+红心大人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6566#       发表于 2019-12-13 09:01
+
+
+
+
+秦川线下能干啥 精英手柄代演嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 6567#       发表于 2019-12-13 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45839517&amp;ptid=1712512" target="_blank">离魂仙 发表于 2019-12-13 00:23</a>
+
+线下商务？小秦以后要戴着狗头套登场吗（横尾太郎并感</blockquote>
+这不是泥潭最爱的主播谜之声的设定吗
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6568#       发表于 2019-12-13 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45842365&amp;ptid=1712512" target="_blank">blueflames001 发表于 2019-12-13 09:46</a>
+这不是泥潭最爱的主播谜之声的设定吗</blockquote>
+谜之声是头顶头套，不怕露脸的。
+狗头人不是避免露脸吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6569#       发表于 2019-12-13 13:32
+
+
+
+
+最佳游戏指导奖,"除了死亡搁浅其他游戏也没什么导演的元素"
+
+我服了,在他眼里游戏导演是不是就只是导个片啊
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6570#       发表于 2019-12-13 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">门房大爷 已播45分钟
+
+
+
+
+
+
+
+-----
+
+####  qx1995  
+##### 6571#       发表于 2019-12-13 18:45
+
+
+
+
+门房居然脖了 惊了
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 6572#       发表于 2019-12-13 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45840378&amp;ptid=1712512" target="_blank">帕林马哲理 发表于 2019-12-13 03:17:39</a>
+天哥280斤？那他应该挺高的。
+因为看起来真的没那么胖，虽然累但还能玩健身环，这可比一般三百斤的人强多了 ...</blockquote>看照片天哥其实挺矮的，只看脸的话会以为是巨大猛男。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 6573#       发表于 2019-12-13 22:07
+
+
+
+
+都勒屌了 280不是很正常
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6574#       发表于 2019-12-14 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/024.png" referrerpolicy="no-referrer">西恩黑楼第二又播了（指bakacc187）
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6575#       发表于 2019-12-14 22:20
+
+
+
+
+痛击我方基地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhhy  
+##### 6576#       发表于 2019-12-15 00:21
+
+
+
+
+看了一会还感觉秦川水平有进步，结果看到他把城堡里驻扎的兵一个一个点出来笑抽了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6577#       发表于 2019-12-15 00:23
+
+
+
+
+操作投石机一波干掉十几个自己的农民，“这样就没人摸鱼了”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6578#       发表于 2019-12-15 09:55
+
+
+
+
+秦川又开始了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyc90716  
+##### 6579#       发表于 2019-12-15 10:02
+
+
+
+
+这都啥跟啥啊。
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 6580#       发表于 2019-12-15 10:02
+
+
+
+
+这都啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 6581#       发表于 2019-12-15 10:03
+
+
+
+
+咋又开始挂人了
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 6582#       发表于 2019-12-15 10:05
+
+
+
+
+套用隔壁区的话
+管人观众比管人好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Thio  
+##### 6583#       发表于 2019-12-15 10:07
+
+
+
+
+还是太闲了，建议全面推广996
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6584#       发表于 2019-12-15 10:08
+
+
+
+
+应该又是他的QQ群的问题吧
+
+早前他的Q群就被人举报没了几个了好像
+
+反正其实直播时弹幕互动也就够了，再不行还有贴吧呢，Q群没了也不用亲自下场啊，正好也别建新的了，免得再生什么事端
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 6585#       发表于 2019-12-15 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45866975&amp;ptid=1712512" target="_blank">Thio 发表于 2019-12-15 10:07</a>
+
+还是太闲了，建议全面推广996</blockquote>
+996大概也没用吧，能这么有空搞事情的大概率是学生把
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6586#       发表于 2019-12-15 10:37
+
+
+
+ 本帖最后由 毛利提督 于 2019-12-15 10:39 编辑 
+
+反正韦天和门房在群出屁事之后都选择了不再扯群，不知道cc一哥怎么看，可能带主播没几个粉丝群都不好意思出去说话吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6587#       发表于 2019-12-15 10:40
+
+
+
+
+挂这种人真的很不明智，你以为他会难受？其实这种人最享受这个。
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 6588#       发表于 2019-12-15 10:42
+
+
+
+
+这些人就是想搞事 最好还是不要理 越挂他他越来劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6589#       发表于 2019-12-15 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45867207&amp;ptid=1712512" target="_blank">毛利提督 发表于 2019-12-15 10:37</a>
+
+反正韦天和门房在群出屁事之后都选择了不再扯群，不知道cc一哥怎么看，可能带主播没几个粉丝群都不好意思出 ...</blockquote>
+门房群也没了吗 原来的哈皮周报还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 6590#       发表于 2019-12-15 10:44
+
+
+
+
+这哈皮还跟独人打彩六，想火想到这个份上也是没谁了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6591#       发表于 2019-12-15 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45867266&amp;ptid=1712512" target="_blank">迷的思考者 发表于 2019-12-15 10:43</a>
+
+门房群也没了吗 原来的哈皮周报还挺有意思的</blockquote>
+我没记错的话剧情是门房自己退群了or把所有人都踢了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天堂蜘蛛  
+##### 6592#       发表于 2019-12-15 10:47
+
+
+
+
+秦喵喵终于被esu小鬼盯上了啊。
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6593#       发表于 2019-12-15 10:50
+
+
+
+
+所以说“去小平台都是核心粉节奏少”都是粉丝一厢情愿，毕竟池浅王八多
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6594#       发表于 2019-12-15 10:54
+
+
+
+
+骂骂主播就算了，还要骂家人，甚至地图炮整个川渝地区的妹子，这帮人的确有点缺教养了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6595#       发表于 2019-12-15 10:58
+
+
+
+
+这种就应该挂出来，下场怼就没必要了，剩的以后这群逼带节奏
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6596#       发表于 2019-12-15 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45867409&amp;ptid=1712512" target="_blank">BAKA林 发表于 2019-12-15 10:58</a>
+
+这种就应该挂出来，下场怼就没必要了，剩的以后这群逼带节奏</blockquote>
+挂都不应该挂，你挂这种人等于是对他行为的一种鼓励和肯定，无视是最好的处理方式。
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6597#       发表于 2019-12-15 11:53
+
+
+
+
+去缺的店买了点东西，两天送到了，还可以，五星了
+
+
+
+
+
+
+
+-----
+
+####  saevey  
+##### 6598#       发表于 2019-12-15 11:54
+
+
+
+
+这年头竟然还有以身为恶俗大脑升级人为荣的人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6599#       发表于 2019-12-15 12:30
+
+
+
+
+看了这里才知道冰架也麻了，这么看只剩流氓巨星了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天堂蜘蛛  
+##### 6600#       发表于 2019-12-15 12:32
+
+
+
+<blockquote>saevey 发表于 2019-12-15 11:54
+这年头竟然还有以身为恶俗大脑升级人为荣的人可能这就是梗鬼8</blockquote>
+恶俗狗之间互相问候自己亲妈甚至以自己p自己亲妈恶俗图为荣，蛆蛆大脑升级人算啥。你高估这个圈子的底线了。
+
+
+
+
+
+
+
+-----
+
+####  首领  
+##### 6601#       发表于 2019-12-15 12:44
+
+
+
+
+流氓巨星是最后一个没麻的吗？
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6602#       发表于 2019-12-15 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最近唯一错过的直播就是昨晚，然后点开cc没看到录像，感觉被针对了
+
+
+
+
+
+
+
+-----
+
+####  NaYo丶  
+##### 6603#       发表于 2019-12-15 15:09
+
+
+
+
+这微博乱战笑死我了，这帮人智商还不如pxj呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+怀念萌萌二刺猿那个年代了
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6604#       发表于 2019-12-15 15:49
+
+
+
+
+这年头，啥小圈子都沾点ESU。
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6605#       发表于 2019-12-15 16:03
+
+
+
+
+恶俗蛤蟆的特点就是严以待人宽以律己，三三蛆自己整日口嗨毫无自觉，黑屁秦川时找出的喷点却像恶维挂刘慈欣一样可笑。<img src="https://i.loli.net/2019/12/15/NrgxQYdApe4ht8w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6606#       发表于 2019-12-15 16:24
+
+
+
+
+原来你们都这么懂粉丝群啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直以为这个楼就是看看直播图一乐的地方
+
+
+
+
+
+
+
+-----
+
+####  Mr_NaHCO3  
+##### 6607#       发表于 2019-12-15 16:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秦川群被爆破几次了吧 不知道他们在搞毛 没加过群不懂
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6608#       发表于 2019-12-15 16:31
+
+
+
+
+秦川这几次挂出来的人都还蛮奇妙深刻的，可能发表过奎恩宝典的人就是容易吸引到傻逼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  液体显微隧道  
+##### 6609#       发表于 2019-12-15 16:33
+
+
+
+
+冰架自己搞直球zzjz冲塔已经很久了，什么时候炸都不奇怪，秦川大部分粉丝群都是这样炸来炸去的。这次冰架没了总不能再复刻三三群那事了吧，正好有个以前经常黑屁自己的群可以用来转移仇恨，何乐而不为呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6610#       发表于 2019-12-15 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870297&amp;ptid=1712512" target="_blank">btts 发表于 2019-12-15 16:31</a>
+秦川这几次挂出来的人都还蛮奇妙深刻的，可能发表过奎恩宝典的人就是容易吸引到傻逼吧 ...</blockquote>
+秦川粉丝群体和亚文化粘的多，国内管控不力，无数圈子都被esu渗透了，自然有傻缺觉得讲黑话带节奏很酷，这些底层恶俗蛤蟆没有啥害人能力，戾气倒是很足。
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6611#       发表于 2019-12-15 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870260&amp;ptid=1712512" target="_blank">xpisces 发表于 2019-12-15 16:24</a>
+
+原来你们都这么懂粉丝群啊我一直以为这个楼就是看看直播图一乐的地方 ...</blockquote>
+2次群被爆破我都是看泥潭才发现的，要不然我都没注意到那条提示
+
+
+房房那次才是最怪的，不知道怎么就没了
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6612#       发表于 2019-12-15 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870527&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2019-12-15 16:57:34</a>
+2次群被爆破我都是看泥潭才发现的，要不然我都没注意到那条提示
+
+
+房房那次才是最怪的，不知道怎么就没了 ...</blockquote>顺着链接看了几个被挂的人。好神秘啊，有没有哥哥解释一下这种乐趣在哪啊，还是秦川干嘛他了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6613#       发表于 2019-12-15 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870629&amp;ptid=1712512" target="_blank">四氢化钠 发表于 2019-12-15 17:08</a>
+顺着链接看了几个被挂的人。好神秘啊，有没有哥哥解释一下这种乐趣在哪啊，还是秦川干嘛他了。
+
+  -- 来自  ...</blockquote>
+“恶俗夜蝶害人不需要理由”
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6614#       发表于 2019-12-15 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870778&amp;ptid=1712512" target="_blank">再逛外野不是人 发表于 2019-12-15 17:25:47</a>
+“恶俗夜蝶害人不需要理由”</blockquote>那……真是具有很强的社会学意义。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6615#       发表于 2019-12-15 17:34
+
+
+
+
+他们这个圈子是不是年纪偏小的多？之前外野那帖子里看被抓到那几个，全是97，00后
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6616#       发表于 2019-12-15 17:37
+
+
+
+ 本帖最后由 马僧虔 于 2019-12-15 17:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870629&amp;ptid=1712512" target="_blank">四氢化钠 发表于 2019-12-15 17:08</a>
+顺着链接看了几个被挂的人。好神秘啊，有没有哥哥解释一下这种乐趣在哪啊，还是秦川干嘛他了。
+
+  -- 来自  ...</blockquote>
+说实话现在我还真不同情他，就他直播间弹幕那操性，能吸引来什么人自己心里没点数吗？自己张嘴闭嘴都是🐴，最后当然要跟吃骨灰的打成一团了，人家谜之声的粉丝怎么就不这样？
+
+
+
+
+
+
+
+-----
+
+####  yufangwen  
+##### 6617#       发表于 2019-12-15 18:00
+
+
+
+
+这次炸群和三三群小团体没一点关系，他就开始传统艺能微博挂人，秦川的老粉最后都成了黑粉不是没有道理
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6618#       发表于 2019-12-15 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871119&amp;ptid=1712512" target="_blank">yufangwen 发表于 2019-12-15 18:00</a>
+
+这次炸群和三三群小团体没一点关系，他就开始传统艺能微博挂人，秦川的老粉最后都成了黑粉不是没有道理 ...</blockquote>
+没一点关系？发动机天天发冰架的举报链接。
+
+
+
+
+
+
+
+-----
+
+####  leafS  
+##### 6619#       发表于 2019-12-15 18:13
+
+
+
+
+说起来秦川什么时候开始也动不动说🐴的，而且周围玩的人都在说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6620#       发表于 2019-12-15 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871119&amp;ptid=1712512" target="_blank">yufangwen 发表于 2019-12-15 18:00:38</a>
+这次炸群和三三群小团体没一点关系，他就开始传统艺能微博挂人，秦川的老粉最后都成了黑粉不是没有道理 ...</blockquote>你自己看看那群人的言行举止，说一个下三滥都算抬举这群人了。哪怕群不炸把这些不善良的人挨个挂了都没什么问题。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6621#       发表于 2019-12-15 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45870882&amp;ptid=1712512" target="_blank">马僧虔 发表于 2019-12-15 17:37</a>
+
+说实话现在我还真不同情他，就他直播间弹幕那操性，能吸引来什么人自己心里没点数吗？自己张嘴闭嘴都是🐴 ...</blockquote>
+确实是找的，估计要成为下一个陆夫人
+
+
+
+
+
+
+
+-----
+
+####  Zeyphrus  
+##### 6622#       发表于 2019-12-15 18:16
+
+
+
+
+发动机人总想爆破冰架结果反而自爆，未曾想冰架不攻自破，让我想起了1991年的圣诞，那是一个寒冷的冬天
+
+
+
+
+
+
+
+-----
+
+####  Zeyphrus  
+##### 6623#       发表于 2019-12-15 18:17
+
+
+
+
+给大家讲个故事，某群主的好兄弟弄炸了他的付费粉丝群，他不但没有责怪，反把锅扔给了聊天的群友，说他们带坏了他的朋友陆生社会人，玩不来海洋和漩涡。后来他又建了个群，群没了之后盯上了一群自嗨的苍蝇。“看，就是这群苍蝇一直在恶心我。”苍蝇都被你的朋友们赶出群了，您也要念念不忘吗?
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| gigbt|-2|憋你m搁这丢人现眼了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  折叠硬币  
+##### 6624#       发表于 2019-12-15 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871246&amp;ptid=1712512" target="_blank">leafS 发表于 2019-12-15 18:13</a>
+说起来秦川什么时候开始也动不动说🐴的，而且周围玩的人都在说
+
+—— 来自 Xiaomi Redmi Note 8, An ...</blockquote>
+有一句话叫近朱者赤，秦川自己就是互联网老冲浪手了
+还有一句话叫顺水推舟，他的受众群体就是这些人。他就算不喜欢又能怎么样呢
+
+—— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6625#       发表于 2019-12-15 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是令人感叹
+
+
+
+
+
+
+
+-----
+
+####  野驴的逆袭  
+##### 6626#       发表于 2019-12-15 18:25
+
+
+
+
+所以说当哑巴不玩微博和自己的受众保持距离还是有好处的（）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6627#       发表于 2019-12-15 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871287&amp;ptid=1712512" target="_blank">Zeyphrus 发表于 2019-12-15 18:17</a>
+
+给大家讲个故事，某群主的好兄弟弄炸了他的付费粉丝群，他不但没有责怪，反把锅扔给了聊天的群友，说他们带 ...</blockquote>
+所以追着黑屁一直黑到现在？三头的事在贵圈心底还没翻篇，那为啥去加新黄金之风？
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6628#       发表于 2019-12-15 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871287&amp;ptid=1712512" target="_blank">Zeyphrus 发表于 2019-12-15 18:17</a>
+
+给大家讲个故事，某群主的好兄弟弄炸了他的付费粉丝群，他不但没有责怪，反把锅扔给了聊天的群友，说他们带 ...</blockquote>
+我才知道，原来老群是三头本人弄炸的。
+
+
+
+
+
+
+
+-----
+
+####  Zeyphrus  
+##### 6629#       发表于 2019-12-15 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871463&amp;ptid=1712512" target="_blank">再逛外野不是人 发表于 2019-12-15 18:34</a>
+
+我才知道，原来老群是三头本人弄炸的。</blockquote>
+老群就是三头乱踢人炸了
+
+新黄金之风建了之后机皇完全不管，假惺惺的在冰架里说自己花了几百小时把人拉回来，真实情况懂得都懂，炸了之后再挂出一个根本不存在的群友，老三三群人肯定对秦川和机皇有怨气
+
+发动机建了之后群友黑屁秦川也情有可原，本身大家都对秦川不满，但也没摆到秦川眼前说啊，你们就没在别人背后说过坏话？
+
+冰架爆破也和发动机一点关系都没有，发动机做过的最大努力也只是让冰架限制群搜索，结果冰架自己聊8*8被爆破了，秦川手一指，秦小将就追着骂，赶情是发动机人炸的群？
+
+
+
+
+
+
+
+-----
+
+####  折叠硬币  
+##### 6630#       发表于 2019-12-15 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871584&amp;ptid=1712512" target="_blank">Zeyphrus 发表于 2019-12-15 18:46</a>
+老群就是三头乱踢人炸了
+
+新黄金之风建了之后机皇完全不管，假惺惺的在冰架里说自己花了几百小时把人拉回 ...</blockquote>
+老哥 有个事问问你以前老见三三太太和小秦一块玩。最近好像也不一块玩了，也不在微博互动了，是不是跟三三群炸了有关呀?
+
+—— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6631#       发表于 2019-12-15 18:52
+
+
+
+<blockquote>折叠硬币 发表于 2019-12-15 18:50
+老哥 有个事问问你以前老见三三太太和小秦一块玩。最近好像也不一块玩了，也不在微博互动了，是不是跟三 ...</blockquote>
+？三三老师不是前几天才一起帝国时代了吗？昨天秦川的微博底下她也留言了
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6632#       发表于 2019-12-15 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871623&amp;ptid=1712512" target="_blank">折叠硬币 发表于 2019-12-15 18:50</a>
+
+老哥 有个事问问你以前老见三三太太和小秦一块玩。最近好像也不一块玩了，也不在微博互动了，是不是跟三 ...</blockquote>
+？？？前几天还在一起打帝国2
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6633#       发表于 2019-12-15 18:53
+
+
+
+ 本帖最后由 毛利提督 于 2019-12-15 18:54 编辑 
+
+以后狗头人粉丝出了事再说“秦国猛男都是好的，搞事的是二五仔”完全可以把前面这些扔过去
+
+
+一帮粉圈小鬼老鬼出了事就忙着开除粉籍党同伐异互相指责，一个个都觉得是正统quin粉丝做的事情正确无比，充满正统粉丝的自豪感与正义感
+
+
+实际上外人眼里就是一群饭圈狗在那互咬，跟蔡徐坤咬狗粉丝没区别
+
+
+
+
+
+
+
+-----
+
+####  再逛外野不是人  
+##### 6634#       发表于 2019-12-15 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871584&amp;ptid=1712512" target="_blank">Zeyphrus 发表于 2019-12-15 18:46</a>
+
+老群就是三头乱踢人炸了
+
+新黄金之风建了之后机皇完全不管，假惺惺的在冰架里说自己花了几百小时把人拉回 ...</blockquote>
+你在S1第一个主贴不就是新黄金之风创作的那坨臭屎的变种，这种口嗨怪待的群不该被炸？
+
+
+
+
+
+
+
+-----
+
+####  Zeyphrus  
+##### 6635#       发表于 2019-12-15 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871623&amp;ptid=1712512" target="_blank">折叠硬币 发表于 2019-12-15 18:50</a>
+
+老哥 有个事问问你以前老见三三太太和小秦一块玩。最近好像也不一块玩了，也不在微博互动了，是不是跟三 ...</blockquote>
+不是，个中原因我也不清楚，我只是个普通的三三群人，又不是秦川肚子里的蛔虫
+
+
+
+
+
+
+
+-----
+
+####  折叠硬币  
+##### 6636#       发表于 2019-12-15 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871636&amp;ptid=1712512" target="_blank">btts 发表于 2019-12-15 18:52</a>
+？三三老师不是前几天才一起帝国时代了吗？昨天秦川的微博底下她也留言了 ...</blockquote>
+最近没上微博<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，主要我记得以前还挺高强度联机的，有段时间就没出现了
+
+—— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  折叠硬币  
+##### 6637#       发表于 2019-12-15 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871644&amp;ptid=1712512" target="_blank">空罐子 发表于 2019-12-15 18:53</a>
+？？？前几天还在一起打帝国2</blockquote>
+主要以前还挺高强度联机的，完了前段时间好像一直就没见了
+
+—— 来自 HUAWEI PCT-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6638#       发表于 2019-12-15 19:12
+
+
+
+
+套用一句话，私底下好不好谁知道呢。不过直播都不看的这问题也问的奇怪，那最起码看小秦微博或者B博吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6639#       发表于 2019-12-15 22:36
+
+
+
+
+韦天在深思熟虑之后走上了新樱大战的巨魔之旅
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6640#       发表于 2019-12-16 20:21
+
+
+
+
+草，猛男寨除了秦川人均懂高达
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 6641#       发表于 2019-12-16 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45871815&amp;ptid=1712512" target="_blank">上坂蓮華 发表于 2019-12-15 19:12</a>
+
+套用一句话，私底下好不好谁知道呢。不过直播都不看的这问题也问的奇怪，那最起码看小秦微博或者B博吧
+
+
+  - ...</blockquote>
+一时语塞，没想到在这能看见这句话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6642#       发表于 2019-12-16 20:54
+
+
+
+
+跟三三老师也经常微博互动啊，反而是跟门房好久没凑一起玩了，想看门房秦川一起春晚
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6643#       发表于 2019-12-16 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钢铁大熔炉
+
+
+
+
+
+
+
+-----
+
+####  Dedalus  
+##### 6644#       发表于 2019-12-16 22:07
+
+
+
+
+u1s1，秦川和韦天的友情真让人羡慕啊，在年少时候结识一辈子的朋友的运气可不是人人都有
+看他们每天高强度互动的欢乐，我还真有点理解女生嗑cp那种感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><img src="https://i.loli.net/2019/12/16/RPAsc6E4GoMOjda.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6645#       发表于 2019-12-16 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45885364&amp;ptid=1712512" target="_blank">Dedalus 发表于 2019-12-16 22:07</a>
+
+u1s1，秦川和韦天的友情真让人羡慕啊，在年少时候结识一辈子的朋友的运气可不是人人都有
+
+看他们每天高强度 ...</blockquote>
+一切的开端<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/201912/16/221732qaqd8tzzd6ttfaof.jpg" referrerpolicy="no-referrer">
+
+
+<strong>22-15-28-006ZKy3Fgy1g9u32yw5fej30ie05sglu.jpg</strong> (19.24 KB, 下载次数: 0)
+
+下载附件
+
+2019-12-16 22:17 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6646#       发表于 2019-12-16 22:32
+
+
+
+
+电脑麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 6647#       发表于 2019-12-16 22:34
+
+
+
+
+驾驶员麻了，火锅麻了，电脑也麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 6648#       发表于 2019-12-16 22:38
+
+
+
+
+没了门房秦川这直播是少了一大半乐趣的
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6649#       发表于 2019-12-16 22:40
+
+
+
+
+怎么觉得这楼隐约出来了一股vtuber楼里那味儿……
+
+
+
+
+
+
+
+-----
+
+####  小毛求  
+##### 6650#       发表于 2019-12-16 23:18
+
+
+
+
+门房！我要门房！不能在3614看到门房我要死了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6651#       发表于 2019-12-16 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">害 韦天真的至尊怂怂 帝国对战不接 机甲对战也不接了
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6652#       发表于 2019-12-16 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45885747&amp;ptid=1712512" target="_blank">马僧虔 发表于 2019-12-16 22:40</a>
+
+怎么觉得这楼隐约出来了一股vtuber楼里那味儿……</blockquote>
+原版真爱楼炸之前不也这味儿吗
+
+刚好也是群爆破的时候
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6653#       发表于 2019-12-16 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你按照定义来，小秦也能算套皮主播了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6654#       发表于 2019-12-16 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45885747&amp;ptid=1712512" target="_blank">马僧虔 发表于 2019-12-16 22:40</a>
+
+怎么觉得这楼隐约出来了一股vtuber楼里那味儿……</blockquote>
+那楼里什么味啊？阿秦这纯当他虚拟偶像我觉得没问题。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6655#       发表于 2019-12-16 23:35
+
+
+
+
+兄弟阋墙开始了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6656#       发表于 2019-12-17 02:02
+
+
+
+
+今晚这局节目效果拉满，分分合合合合分分，只有秦川的摸鱼永远不变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6657#       发表于 2019-12-17 02:21
+
+
+
+
+三分归晋，忙到这点有幸见证<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野驴的逆袭  
+##### 6658#       发表于 2019-12-17 02:24
+
+
+
+
+秦皇叔，董天，jk丞相，司马肯，机景升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6659#       发表于 2019-12-17 21:02
+
+
+
+
+这恐怖游戏也太神秘了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且在破译机校准上面还有着异常的讲究
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 6660#       发表于 2019-12-17 21:56
+
+
+
+
+久违的恐怖游戏回，那个没有感秦的怪话机器又回来了
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6661#       发表于 2019-12-17 23:37
+
+
+
+
+播着恐怖游戏突然就开始吹逼人生了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+令人感叹
+
+—— 来自 HUAWEI ARE-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6662#       发表于 2019-12-17 23:55
+
+
+
+
+这游戏没半点恐怖气氛，都开始聊人生了。。。
+
+
+
+
+
+
+
+-----
+
+####  275042314  
+##### 6663#       发表于 2019-12-18 00:14
+
+
+
+
+这还蛮跑酷的
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6664#       发表于 2019-12-18 00:15
+
+
+
+
+怪话暴多，找关键物品遇到鬼来一句“你就是我的宝”
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6665#       发表于 2019-12-18 20:25
+
+
+
+
+这游戏怎么通关还删存档的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6666#       发表于 2019-12-18 23:53
+
+
+
+
+已经迫不及待地想看猛男寨星战9吐槽晚会了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6667#       发表于 2019-12-19 10:20
+
+
+
+
+居然说星战9不错，秦川这水平真的迷。
+前有“这几个提名游戏里也就只有《死亡搁浅》需要导演”，后有“星战9观感可以说是非常好了”。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  马僧虔  
+##### 6668#       发表于 2019-12-19 12:10
+
+
+
+
+听old ass背地里谈论，秦川原来也出过攻略，但终于没有坚持，操作又丢人，于是愈出愈少，弄到将要讨饭了。幸而又说得一嘴怪话，便隔三差五直个勃，跟好哥哥们换点香香鸡吃。可惜他又有一样坏脾气，便是好吃懒勃。勃不到几天，便和白鸡熊一齐摸了。如是几次，往指定邮箱里叮的好哥哥们也没有了。秦川没有法，便免不了偶尔上传些录勃视频凑数。但他在新浪里，品行却比别人都好，每天二十四小时高强度阅堇；虽然间或没有什么好发的，暂时记在心头上，但不出一周，定然补够发勃数量，从心头上拭去了不直勃的负担。
+秦川吃过半只香香鸡，涨红的脸色渐渐复了原，旁边的new ass便又问道，“小秦，你当真出过攻略么？”秦川看着问他的new ass，显出不屑置辩的神气。他们便接着问道，“你怎的现在连黑暗剑22都不出了呢？”秦川立刻显出颓唐不安的模样，脸上笼上了一层灰色，嘴里说着些“剑22在做了”“昨天我们刚刚攻略了古龙顶”，让人半懂不懂的话。在这时候，ass们也都哄笑起来，站内外充满了快活的空气。
+
+
+
+评论区看到个好活，好到甚至回复里没人玩22梗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6669#       发表于 2019-12-20 20:24
+
+
+
+
+门房在直播vr
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 6670#       发表于 2019-12-21 00:33
+
+
+
+
+门房VR整活真的太强了，一转庄威客
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 6671#       发表于 2019-12-21 05:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45912938&amp;ptid=1712512" target="_blank">空罐子 发表于 2019-12-19 10:20</a>
+
+居然说星战9不错，秦川这水平真的迷。
+
+前有“这几个提名游戏里也就只有《死亡搁浅》需要导演”，后有“星战 ...</blockquote>
+有一年春节档烂片N连好评，从此缺哥哥的评价就当个乐看，包括对游戏的。
+
+
+
+
+
+
+
+-----
+
+####  小毛求  
+##### 6672#       发表于 2019-12-21 16:57
+
+
+
+
+房国活了！
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6673#       发表于 2019-12-21 17:25
+
+
+
+
+阿秦难道去上海了？
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6674#       发表于 2019-12-21 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">有一段联机吹逼的内容想不起具体的时间了，应该是帝的，但是帝的录像太多了，一时不知道该从哪里翻起，大概是：韦天和其他两个人合一个势力，其中有谁说了句三人组队像是三一万能侠（盖塔），韦天听到赶紧说谁当武藏，我不要当（机皇吐槽明明你是最适合的）
+
+
+
+
+
+
+
+-----
+
+####  诸君何弃疗  
+##### 6675#       发表于 2019-12-21 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45939919&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2019-12-21 17:25:43</a>
+阿秦难道去上海了？</blockquote>在重庆恰赛博朋克的fo锅
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  诸君何弃疗  
+##### 6676#       发表于 2019-12-21 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45939919&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2019-12-21 17:25:43</a>
+阿秦难道去上海了？</blockquote>*成都
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6677#       发表于 2019-12-21 22:45
+
+
+
+
+秦川觉得星战9不错明显是因为恰饭啊,总不能上一条抽IMAX电影票,下一条就来一句CNM什么垃圾电影...
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6678#       发表于 2019-12-21 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45941152&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-12-21 19:50</a>
+
+有一段联机吹逼的内容想不起具体的时间了，应该是帝的，但是帝的录像太多了，一时不知道该从哪里翻 ...</blockquote>
+我弁庆不要面子的？
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 6679#       发表于 2019-12-22 14:13
+
+
+
+
+问下小秦的电脑是1080ti的？
+竟然没换2080ti么
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6680#       发表于 2019-12-22 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45947027&amp;ptid=1712512" target="_blank">贝伦二世 发表于 2019-12-22 14:13</a>
+
+问下小秦的电脑是1080ti的？
+
+竟然没换2080ti么</blockquote>
+我记得好像是去年年底播某个PC游戏（大概是方舟？）的时候觉得有点卡，然后就换了1080TI
+
+
+而且小秦的显示器还是60的，大概用不着2080TI
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6681#       发表于 2019-12-22 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45947027&amp;ptid=1712512" target="_blank">贝伦二世 发表于 2019-12-22 14:13</a>
+
+问下小秦的电脑是1080ti的？
+
+竟然没换2080ti么</blockquote>
+他双机直播啊，1080ti现在顶品质好的2070s，应该能用到后年3080ti的消息出来。而且上2080ti他老机子电源说不定也得换，换了电源为了保证无噪音还得换机箱，换机箱还得考虑散热，麻烦。
+
+
+他内存现在也是双8。我之前翻他黑楼视频，感觉这几年他除了显卡和硬盘就换了一个麦。
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6682#       发表于 2019-12-22 23:38
+
+
+
+
+猛男杯第二届正式开赛，虽然七个参赛成员里有三个是添头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiong0500  
+##### 6683#       发表于 2019-12-22 23:47
+
+
+
+
+手机cc怎么全屏弹幕显示不全了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6684#       发表于 2019-12-23 00:09
+
+
+
+
+就切了个屏，怎么AI肯尼JK小秦输给了机皇韦天阿茶皇帝了，好像是用了什么策略？
+
+
+
+
+
+
+
+-----
+
+####  kyl2001  
+##### 6685#       发表于 2019-12-23 00:28
+
+
+
+<blockquote>AeonsTorn 发表于 2019-12-23 00:09
+就切了个屏，怎么AI肯尼JK小秦输给了机皇韦天阿茶皇帝了，好像是用了什么策略？ ...</blockquote>
+占山为王模式中间有个奇观，一直被对方占着，时间到了就输咯
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6686#       发表于 2019-12-23 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45952174&amp;ptid=1712512" target="_blank">kyl2001 发表于 2019-12-23 00:28</a>
+
+占山为王模式中间有个奇观，一直被对方占着，时间到了就输咯</blockquote>
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜不会传录播
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6687#       发表于 2019-12-23 00:44
+
+
+
+
+输于不思考
+
+
+
+
+
+
+
+-----
+
+####  与你肩并肩  
+##### 6688#       发表于 2019-12-23 19:30
+
+
+
+
+玩个控制也要随口侮辱一下武士团的陨落，真这么恨那游戏？？？
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6689#       发表于 2019-12-23 19:39
+
+
+
+
+武士团的陨落确实不行，这是我今年唯一一个玩不下去的3A
+
+
+
+
+
+
+
+-----
+
+####  manwomans  
+##### 6690#       发表于 2019-12-23 19:47
+
+
+
+
+星战的人物动作肉眼可见的没调好，手感也一言难尽
+
+
+
+
+
+
+
+-----
+
+####  BAKA林  
+##### 6691#       发表于 2019-12-23 19:47
+
+
+
+
+？quin帝国2不传录像吗
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6692#       发表于 2019-12-23 19:51
+
+
+
+
+🐶🐶玩的菜的都不传
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6693#       发表于 2019-12-23 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45961378&amp;ptid=1712512" target="_blank">BAKA林 发表于 2019-12-23 19:47</a>
+
+？quin帝国2不传录像吗</blockquote>
+太碎了。我觉得直接看韦天视角的更有意思。
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6694#       发表于 2019-12-23 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45961378&amp;ptid=1712512" target="_blank">BAKA林 发表于 2019-12-23 19:47</a>
+
+？quin帝国2不传录像吗</blockquote>
+直播时候的原话："都不会玩，传什么录播啊“
+
+自己知道玩得烂，没脸传。
+
+
+
+
+
+
+
+-----
+
+####  与你肩并肩  
+##### 6695#       发表于 2019-12-23 20:54
+
+
+
+
+服了，辱天才是今天的主题
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6696#       发表于 2019-12-23 23:23
+
+
+
+
+这局又麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6697#       发表于 2019-12-23 23:37
+
+
+
+
+大后期，3兵营，2城堡？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不是摸鱼是捕鲸  
+##### 6698#       发表于 2019-12-24 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天满网络分享WA2的歌.........
+
+突然想到小秦和WA2的处境差不多吧，玩过WA2的人不多，但是知道它的梗的人一大堆..........
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6699#       发表于 2019-12-24 18:08
+
+
+
+
+这是什么cult游戏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ARE-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6700#       发表于 2019-12-24 18:16
+
+
+
+
+我看他玩这游戏都要吐了,能玩下去他也是厉害
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6701#       发表于 2019-12-24 18:35
+
+
+
+
+自己玩应该还好，看着实在是有点晕
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6702#       发表于 2019-12-24 18:41
+
+
+
+
+gris我初玩也觉得不行，玩到后面觉得真的不错
+
+
+
+
+
+
+
+-----
+
+####  bad_alloc  
+##### 6703#       发表于 2019-12-24 18:51
+
+
+
+
+QGN：导演水平比小岛秀夫强很多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6704#       发表于 2019-12-24 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">小岛秀夫跌落神坛
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 6705#       发表于 2019-12-24 18:53
+
+
+
+
+老巨魔了
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6706#       发表于 2019-12-24 18:54
+
+
+
+
+想想，这游戏帮你体验哈草的感觉，也挺有意义的
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 6707#       发表于 2019-12-24 19:58
+
+
+
+
+导演水平比小岛秀夫强很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6708#       发表于 2019-12-24 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这种小游戏联播的感觉挺有过节的喜庆味道的，今年的秦国春晚估计不会准点跨年播了，就当今晚这个是提前放映版
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 6709#       发表于 2019-12-24 20:40
+
+
+
+
+健身环项圈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6710#       发表于 2019-12-24 23:36
+
+
+
+
+今天那个数动物真的太逗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NameLess2501  
+##### 6711#       发表于 2019-12-25 00:47
+
+
+
+
+小秦这么多天帝国2没白玩，看起来是那么回事儿，荣耀下播了。
+
+
+
+
+
+
+
+-----
+
+####  WinandWin  
+##### 6712#       发表于 2019-12-25 16:28
+
+
+
+
+这狗狗好懂啊
+<img src="http://wx2.sinaimg.cn/mw690/b098f2c0ly1ga91lw83jrj22o82o8u0x.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6713#       发表于 2019-12-25 20:09
+
+
+
+
+怎么还整MC的？越来越管人了
+
+
+
+
+
+
+
+-----
+
+####  臭P遇上臭脚  
+##### 6714#       发表于 2019-12-25 21:13
+
+
+
+
+太草了，公开处刑自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6715#       发表于 2019-12-25 21:13
+
+
+
+
+草 微软这个视频是认真的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6716#       发表于 2019-12-25 21:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">要素察觉
+
+
+
+
+
+
+
+-----
+
+####  eaclica  
+##### 6717#       发表于 2019-12-25 21:19
+
+
+
+
+我笑死了
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6718#       发表于 2019-12-25 21:19
+
+
+
+
+太草了，秦川王列传和苏州消防栓研究所<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6719#       发表于 2019-12-25 22:25
+
+
+
+
+小秦这个月直播时间还有多久啊，怎么月底了天天播
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6720#       发表于 2019-12-25 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45971673&amp;ptid=1712512" target="_blank">LilighT 发表于 2019-12-24 18:41</a>
+
+gris我初玩也觉得不行，玩到后面觉得真的不错</blockquote>
+这两天没看，他播gris了吗？
+
+
+
+
+
+
+
+-----
+
+####  Lyzers  
+##### 6721#       发表于 2019-12-25 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小秦新上传的揍击派对挺有趣的，几个小游戏笑到
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6722#       发表于 2019-12-25 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985535&amp;ptid=1712512" target="_blank">modkingr 发表于 2019-12-25 22:29</a>
+
+这两天没看，他播gris了吗？</blockquote>
+不符合他的口味
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6723#       发表于 2019-12-25 23:55
+
+
+
+
+挖成天空之城草死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6724#       发表于 2019-12-26 00:18
+
+
+
+
+这建的是秦始皇兵马俑坑吧?<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宗汝  
+##### 6725#       发表于 2019-12-26 07:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45985495&amp;ptid=1712512" target="_blank">zyw0 发表于 2019-12-25 22:25</a>
+
+小秦这个月直播时间还有多久啊，怎么月底了天天播
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+人家堇业一点不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6726#       发表于 2019-12-26 08:47
+
+
+
+
+直播mc几个小时造了一完美侧嗦  过于生草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最爱大萌德  
+##### 6727#       发表于 2019-12-26 09:40
+
+
+
+
+为啥游戏区妹有北极熊真爱楼呢
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 6728#       发表于 2019-12-26 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45988134&amp;ptid=1712512" target="_blank">最爱大萌德 发表于 2019-12-26 09:40</a>
+
+为啥游戏区妹有北极熊真爱楼呢</blockquote>
+肥肥相轻
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6729#       发表于 2019-12-26 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45988134&amp;ptid=1712512" target="_blank">最爱大萌德 发表于 2019-12-26 09:40</a>
+为啥游戏区妹有北极熊真爱楼呢</blockquote>
+我记得有的吧
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Uranium233  
+##### 6730#       发表于 2019-12-26 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45988134&amp;ptid=1712512" target="_blank">最爱大萌德 发表于 2019-12-26 09:40</a>
+
+为啥游戏区妹有北极熊真爱楼呢</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1261840-1-1.html](https://bbs.saraba1st.com/2b/thread-1261840-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  臭P遇上臭脚  
+##### 6731#       发表于 2019-12-27 20:26
+
+
+
+
+带病直播，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6732#       发表于 2019-12-27 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">感觉小秦这个月没摸多少啊，怎么时常紧张到做噩梦惊醒，甚至还要带病播
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6733#       发表于 2019-12-27 20:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46007312&amp;ptid=1712512" target="_blank">音无奏 发表于 2019-12-27 20:34</a>
+
+感觉小秦这个月没摸多少啊，怎么时常紧张到做噩梦惊醒，甚至还要带病播 ...</blockquote>
+因为前面摸太多了,只能补课了.
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6734#       发表于 2019-12-27 20:43
+
+
+
+
+他说是怎么了？主板被他一搞接触不良了？
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6735#       发表于 2019-12-28 17:05
+
+
+
+
+房哥播了。
+
+
+
+
+
+
+
+-----
+
+####  摩摩君  
+##### 6736#       发表于 2019-12-28 18:50
+
+
+
+
+房哥又给封了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6737#       发表于 2019-12-28 21:34
+
+
+
+
+门房的高达一个不小心删掉了，全麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6738#       发表于 2019-12-28 23:52
+
+
+
+
+阿秦在，弄销魂城？
+
+
+
+
+
+
+
+-----
+
+####  qx1995  
+##### 6739#       发表于 2019-12-28 23:57
+
+
+
+
+门房这个**可以的
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6740#       发表于 2019-12-29 16:17
+
+
+
+
+3333*3可还行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ARE-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6741#       发表于 2019-12-29 16:47
+
+
+
+
+米 4 达
+
+quin 3 3
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6742#       发表于 2019-12-31 10:10
+
+
+
+
+后知后觉，e站上有一个炒鸡战士汉化组，有、东西。。。。
+
+
+
+
+
+
+
+-----
+
+####  轨迹秒了  
+##### 6743#       发表于 2019-12-31 15:16
+
+
+
+
+我不知道阿夸是谁（心虚）
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6744#       发表于 2019-12-31 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46041914&amp;ptid=1712512" target="_blank">GrayishWh0 发表于 2019-12-31 10:10</a>
+
+后知后觉，e站上有一个炒鸡战士汉化组，有、东西。。。。</blockquote>
+这个组最火的时候，这（zhei）狗还在斗鱼……
+
+
+
+
+
+
+
+-----
+
+####  一个过路的  
+##### 6745#       发表于 2020-1-1 15:42
+
+
+
+
+门房打高达掉线，打西欧弟还掉线，笑死。
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6746#       发表于 2020-1-1 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">草，一打开564824就看到bullyhunter重拳出击
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6747#       发表于 2020-1-1 17:31
+
+
+
+
+B站 《当你试图偷看缺哥哥电脑里的黑暗剑____时》https://b23.tv/av81444145  
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6748#       发表于 2020-1-1 17:42
+
+
+
+
+这楼顶起来的时候如果小秦没播就是门房在播了啊，结果这次没人说
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6749#       发表于 2020-1-2 19:11
+
+
+
+
+惊了，猛男寨泰拉瑞亚，秦川玩得懂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6750#       发表于 2020-1-3 01:15
+
+
+
+
+草  玩到最后内讧吵起来了海星
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6751#       发表于 2020-1-3 01:27
+
+
+
+
+打起来打起来
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6752#       发表于 2020-1-3 03:05
+
+
+
+
+歇了又歇之玩到三点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6753#       发表于 2020-1-3 20:11
+
+
+
+
+终极业余
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6754#       发表于 2020-1-4 01:39
+
+
+
+
+2020年，黑暗剑终于又出现了了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">虽然不是同一游戏，但是是同一个武器！
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6755#       发表于 2020-1-4 19:47
+
+
+
+
+好像这两天很欢乐。还是，血压很高呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6756#       发表于 2020-1-4 21:47
+
+
+
+
+因为团灭得太快毁灭者放了NPC一马<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小菜园立交  
+##### 6757#       发表于 2020-1-5 00:00
+
+
+
+
+狗头堡战役<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6758#       发表于 2020-1-5 00:02
+
+
+
+
+狗头绞肉机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  btts  
+##### 6759#       发表于 2020-1-5 22:19
+
+
+
+ 本帖最后由 btts 于 2020-1-5 22:24 编辑 
+
+喷了，泰拉联机炸出了solideye还行，“一位很久以前的老朋友”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6760#       发表于 2020-1-5 22:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机皇：有一说一，重的是脂肪，又不是韦天。
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6761#       发表于 2020-1-5 23:22
+
+
+
+
+没游戏玩了吗。。。泰拉瑞亚我没玩过，完全不懂在干嘛，没乐趣啊
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6762#       发表于 2020-1-5 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46095413&amp;ptid=1712512" target="_blank">reficul 发表于 2020-1-5 23:22</a>
+
+没游戏玩了吗。。。泰拉瑞亚我没玩过，完全不懂在干嘛，没乐趣啊</blockquote>
+极其好玩，当年大四快毕业那会几个室友一起玩的昏天暗地，连续几天不眠不休的玩，还差点错过了毕业典礼。
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6763#       发表于 2020-1-5 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46095447&amp;ptid=1712512" target="_blank">j5g27 发表于 2020-1-5 23:26</a>
+
+极其好玩，当年大四快毕业那会几个室友一起玩的昏天暗地，连续几天不眠不休的玩，还差点错过了毕业典礼。 ...</blockquote>
+网络游戏都能玩成单机的我不懂什么是联机（
+
+
+
+
+
+
+
+-----
+
+####  j5g27  
+##### 6764#       发表于 2020-1-5 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46095460&amp;ptid=1712512" target="_blank">reficul 发表于 2020-1-5 23:28</a>
+
+网络游戏都能玩成单机的我不懂什么是联机（</blockquote>
+确实，这个游戏联机和单人感受完全不一样。
+
+找几个人一起玩真的非常带劲<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武内P  
+##### 6765#       发表于 2020-1-5 23:31
+
+
+
+
+这游戏自己玩也很有意思
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6766#       发表于 2020-1-6 02:27
+
+
+
+
+“枪我也不用，没意思”
+
+（机皇：我捡到一把**）
+
+“想拥有”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 6767#       发表于 2020-1-6 02:40
+
+
+
+
+实话实说，所有生存建造类的游戏和人联机。无论是饥荒还是泰拉瑞亚我都因为不会玩而无所事事，最后的发展都是人家楼一栋一栋盖起来了，我每天就是去家里拿点吃的过完一天。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6768#       发表于 2020-1-6 08:59
+
+
+
+
+生存建造类的游戏能玩进去的人才有意思，像是老菊的环世界，小秦他们的猛男寨（也许QGN2019最佳游戏之一Kenshi也算？）
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 6769#       发表于 2020-1-6 22:33
+
+
+
+
+话说我记得秦川玩过journey，但是b没有，是我记错了？
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 6770#       发表于 2020-1-6 22:45
+
+
+
+
+泰拉瑞亚我都是单机玩的，社恐患者完全想象不到联机乐趣何在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就下洞打boss循环
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6771#       发表于 2020-1-6 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46105923&amp;ptid=1712512" target="_blank">Alphawalker 发表于 2020-1-6 22:33</a>
+
+话说我记得秦川玩过journey，但是b没有，是我记错了？</blockquote>
+玩过 没传。
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6772#       发表于 2020-1-8 00:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我佛了 今天居然偷偷玩不播
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6773#       发表于 2020-1-8 22:17
+
+
+
+
+100% FART DOG可太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2011_4  
+##### 6774#       发表于 2020-1-9 06:18
+
+
+
+
+这么说秦川有几个游戏玩了一半不存在的了？我突然想起地铁离去来了，不知道他还会不会播
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6775#       发表于 2020-1-10 00:09
+
+
+
+ 本帖最后由 Mr.BBWoLf 于 2020-1-10 00:50 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6776#       发表于 2020-1-11 20:11
+
+
+
+
+杀手2应该算是潜行的吧？
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6777#       发表于 2020-1-11 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46155486&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-1-11 20:11</a>
+
+杀手2应该算是潜行的吧？</blockquote>
+算潜行游戏，但是可以无双
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6778#       发表于 2020-1-11 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46155799&amp;ptid=1712512" target="_blank">空罐子 发表于 2020-1-11 20:44</a>
+
+算潜行游戏，但是可以无双</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6779#       发表于 2020-1-12 01:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小秦这打人2播的我肚子好痛。打开电视，然后一箱子把屏幕砸了“不准看”
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6780#       发表于 2020-1-12 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46128941&amp;ptid=1712512" target="_blank">2011_4 发表于 2020-1-9 06:18</a>
+
+这么说秦川有几个游戏玩了一半不存在的了？我突然想起地铁离去来了，不知道他还会不会播 ...</blockquote>
+地铁记得是他刚玩一下就晕画面玩不下去了，比那种玩到一半摸了的还惨<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ruojichong  
+##### 6781#       发表于 2020-1-12 17:59
+
+
+
+
+这杀手节目效果拉满了，最近播的最好玩的一次了
+
+
+
+
+
+
+
+-----
+
+####  这名字谁会去看  
+##### 6782#       发表于 2020-1-12 18:17
+
+
+
+
+打人man（X ）
+
+整蛊专家（√）
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6783#       发表于 2020-1-12 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">色瘾兄弟太草了
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6784#       发表于 2020-1-12 23:35
+
+
+
+
+盗窃机关，从业余到精通
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6785#       发表于 2020-1-13 17:50
+
+
+
+
+小秦发了个什么微博，秒删了，有人截图吗？
+
+
+
+
+
+
+
+-----
+
+####  enfuss  
+##### 6786#       发表于 2020-1-13 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46173171&amp;ptid=1712512" target="_blank">空罐子 发表于 2020-1-13 17:50</a>
+
+小秦发了个什么微博，秒删了，有人截图吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202001/13/182617q3eniyzx1nklkcee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200113182531.jpg</strong> (130.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-1-13 18:26 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202001/13/182618jziiwp8pplta8ivi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200113182539.jpg</strong> (101.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-1-13 18:26 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202001/13/182618ktssbybfh7h7bugs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200113182546.jpg</strong> (100.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-1-13 18:26 上传
+
+
+
+
+
+
+
+
+届不到的鸡盒
+
+
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6787#       发表于 2020-1-13 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46173550&amp;ptid=1712512" target="_blank">enfuss 发表于 2020-1-13 18:27</a>
+
+届不到的鸡盒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就这？这也删？
+
+
+
+
+
+
+
+-----
+
+####  中已矣  
+##### 6788#       发表于 2020-1-13 19:13
+
+
+
+
+工商要收费的
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6789#       发表于 2020-1-13 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46173932&amp;ptid=1712512" target="_blank">空罐子 发表于 2020-1-13 19:05</a>
+
+就这？这也删？</blockquote>
+减肥播主的人设怎么能向炸鸡屈服呢[f:220]
+
+
+
+
+
+
+
+-----
+
+####  椎名mafuyu  
+##### 6790#       发表于 2020-1-13 19:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先吃桶，再吃🌽，笑了
+
+
+
+
+
+
+
+-----
+
+####  lunaticfear  
+##### 6791#       发表于 2020-1-13 19:24
+
+
+
+
+这看上去是恰人妹啊
+
+
+
+
+
+
+
+-----
+
+####  DeepRed  
+##### 6792#       发表于 2020-1-13 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">吃人妹真爱狗
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6793#       发表于 2020-1-13 22:45
+
+
+
+
+突然好奇他们每个人用的是什么麦。秦先生老视频的底噪还比较大，现在他的音色就录得特别好。还有kenny也是，之前偶然点开17年的视频，还比较糙，现在他那股野劲就收录的很清晰了。韦天的感觉收录范围有点大，好像有回音。jk和archer的糙了一点。机皇的声音一直挺不错，皇帝的换了麦还是，步向中年的音色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6794#       发表于 2020-1-14 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">辛苦建好的甜蜜小屋原来都是黄粱一梦，这hobo游戏太真实了，令人落泪
+
+
+
+
+
+
+
+-----
+
+####  重名的mufasa  
+##### 6795#       发表于 2020-1-14 00:28
+
+
+
+
+真实hobo.
+
+
+
+
+
+
+
+-----
+
+####  downfall  
+##### 6796#       发表于 2020-1-14 00:30
+
+
+
+
+盗 梦 空 间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nianiania  
+##### 6797#       发表于 2020-1-14 00:31
+
+
+
+
+城管抄家，太真实了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 6798#       发表于 2020-1-14 00:31
+
+
+
+
+一切只是梦,你的家你的一切都不过是冻死前的梦幻之旅.
+
+但是有一瞬间,你察觉到并且醒来.
+
+看着空无的一切.
+
+看着废旧的玩具熊
+
+"是你叫醒我的吗?"
+
+流浪汉咽下最后一口气
+
+就这样结束了....
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ysw881015| + 2|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6799#       发表于 2020-1-14 01:57
+
+
+
+
+草，这节目效果，太令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6800#       发表于 2020-1-14 16:19
+
+
+
+
+cc录像出来了，最后半小时能拍成电影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6801#       发表于 2020-1-16 03:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙珠这名场面真的笑疯，今年年初就连续几个生草度拉满的游戏，真是好时代，如龙不能播太可惜了
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6802#       发表于 2020-1-20 03:27
+
+
+
+
+贝吉特这段演出真是太炸了 
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  tokimon  
+##### 6803#       发表于 2020-1-20 03:32
+
+
+
+
+草，开车合影太怪了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6804#       发表于 2020-1-20 03:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">把钱用在刀刃上的粉丝向游戏，真爽啊，准备过几天就去重温下漫画
+
+
+布欧篇证明了肥仔变瘦会变坏，所以韦天是为了守护这个世界才不健身的，太令人感动了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tokimon  
+##### 6805#       发表于 2020-1-20 03:33
+
+
+
+
+开车合影太怪了
+
+
+
+
+
+
+
+-----
+
+####  tokimon  
+##### 6806#       发表于 2020-1-20 03:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46200403&amp;ptid=1712512" target="_blank">音无奏 发表于 2020-1-20 03:33</a>
+把钱用在刀刃上的粉丝向游戏，真爽啊，准备过几天就去重温下漫画
+
+
+布欧篇证明了肥仔变瘦会变坏，所 ...</blockquote>
+事实证明依然可以用甜食激怒健身后的肥仔
+
+
+
+
+
+
+
+-----
+
+####  tokimon  
+##### 6807#       发表于 2020-1-20 03:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46200403&amp;ptid=1712512" target="_blank">音无奏 发表于 2020-1-20 03:33</a>
+
+把钱用在刀刃上的粉丝向游戏，真爽啊，准备过几天就去重温下漫画
+
+
+布欧篇证明了肥仔变瘦会变坏，所 ...</blockquote>
+事实证明依然可以用甜食激怒健身后的肥仔
+
+
+
+
+
+
+
+-----
+
+####  tokimon  
+##### 6808#       发表于 2020-1-20 03:36
+
+
+
+
+开车合影太怪了
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6809#       发表于 2020-1-20 03:38
+
+
+
+
+竟然真的会有主播在这个关头摸 我佛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6810#       发表于 2020-1-20 03:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46200413&amp;ptid=1712512" target="_blank">YoungYiba 发表于 2020-1-20 03:38</a>
+
+竟然真的会有主播在这个关头摸 我佛了
+
+
+—— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v1. ...</blockquote>
+[f:224]不是第一次了，近的有逆转某章快到最后庭审“你们想知道真相吗，我也想，下次再知道吧”；远的有千年落泪猛男，在接近最终迷宫充满决战氛围的时候永远的不存在了
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6811#       发表于 2020-1-20 04:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46200425&amp;ptid=1712512" target="_blank">音无奏 发表于 2020-1-20 03:51</a>
+
+不是第一次了，近的有逆转某章快到最后庭审“你们想知道真相吗，我也想，下次再知道吧”；远的有 ...</blockquote>
+草，救救杨森
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6812#       发表于 2020-1-20 10:01
+
+
+
+
+还有猛男记得杨森，我哭了
+
+
+
+
+
+
+
+-----
+
+####  kensai_wang  
+##### 6813#       发表于 2020-1-20 22:29
+
+
+
+
+“悟空好菜，我要认贝吉塔做爹”
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6814#       发表于 2020-1-21 01:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">明年见了，不知道今年还有没有房国春晚
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 6815#       发表于 2020-1-21 08:02
+
+
+
+
+贝吉塔变成了地球人，而悟空变成了怪物
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6816#       发表于 2020-1-23 20:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">低配吃…阿茶这是猛男寨第二个露脸的吗
+
+
+
+
+
+
+
+-----
+
+####  我要写个惨字  
+##### 6817#       发表于 2020-1-23 20:20
+
+
+
+
+门房做什么工作的呀，过年要值班。
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6818#       发表于 2020-1-23 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46228150&amp;ptid=1712512" target="_blank">我要写个惨字 发表于 2020-1-23 20:20</a>
+
+门房做什么工作的呀，过年要值班。</blockquote>
+衙门
+
+
+
+
+
+
+
+-----
+
+####  exia19901202  
+##### 6819#       发表于 2020-1-23 21:39
+
+
+
+ 本帖最后由 exia19901202 于 2020-1-23 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46228150&amp;ptid=1712512" target="_blank">我要写个惨字 发表于 2020-1-23 20:20</a>
+
+门房做什么工作的呀，过年要值班。</blockquote>
+之前直播听他说是派出所
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6820#       发表于 2020-1-23 22:02
+
+
+
+
+韦天直播间有女人？？？？？
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 6821#       发表于 2020-1-23 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46228889&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-1-23 22:02</a>
+
+韦天直播间有女人？？？？？</blockquote>
+老黄历了，上次就来过，上次还是单独二人贴贴，这次还有个电灯泡阿茶
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6822#       发表于 2020-1-23 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46228889&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-1-23 22:02</a>
+
+韦天直播间有女人？？？？？</blockquote>
+瘾卿上次玩那个不能说的游戏时候就来过,直播效果还不错可惜游戏出事了,没留下录像
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 6823#       发表于 2020-1-24 08:38
+
+
+
+
+阿天修罗场，不过如此🍋🍋🍋🍋
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  nakedsnake  
+##### 6824#       发表于 2020-1-25 04:50
+
+
+
+
+秦先生已经结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  99mxw  
+##### 6825#       发表于 2020-1-25 08:11
+
+
+
+
+毕竟已经在直播里谈论生两个的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 6826#       发表于 2020-1-25 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46239957&amp;ptid=1712512" target="_blank">nakedsnake 发表于 2020-1-25 04:50</a>
+秦先生已经结婚了
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+已经结了？这么快？
+
+
+
+
+
+
+
+-----
+
+####  培根芝士蛋堡  
+##### 6827#       发表于 2020-1-25 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46239957&amp;ptid=1712512" target="_blank">nakedsnake 发表于 2020-1-25 04:50</a>
+ 秦先生已经结婚了  —— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+啥？真的假的
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6828#       发表于 2020-1-25 14:36
+
+
+
+
+狗狗结婚，我的青春彻底结束了
+
+
+
+
+
+
+
+-----
+
+####  jasonhyl11  
+##### 6829#       发表于 2020-1-25 14:39
+
+
+
+
+只有爽哥不会背叛我们了5555555555
+
+
+
+
+
+
+
+-----
+
+####  kugayama1369  
+##### 6830#       发表于 2020-1-25 14:39
+
+
+
+
+好事儿，然鹅爽哥还是处男
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6831#       发表于 2020-1-25 14:47
+
+
+
+
+因为微博上那段嘛？我以前也叫我女朋友老婆啊，现在也没结婚
+
+
+这个暂时存疑
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6832#       发表于 2020-1-25 14:49
+
+
+
+[https://www.bilibili.com/video/av84908774](https://www.bilibili.com/video/av84908774)
+
+新年整活歌曲出新了
+
+
+
+
+
+
+
+-----
+
+####  wjbdasd  
+##### 6833#       发表于 2020-1-25 15:34
+
+
+
+
+不错，加入了新梗
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 6834#       发表于 2020-1-25 19:38
+
+
+
+
+全员vr
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6835#       发表于 2020-1-26 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战地这双方都有外挂的神仙大战太有乐子了（指纯观战）
+
+
+
+
+
+
+
+-----
+
+####  DeepRed  
+##### 6836#       发表于 2020-1-27 16:24
+
+
+
+[https://www.bilibili.com/video/a ... 3477075763748960650](https://www.bilibili.com/video/av85011037?from=search&amp;seid=13477075763748960650)
+
+这个秦喵喵配音还蛮不错的
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 6837#       发表于 2020-1-27 16:44
+
+
+
+
+秦川不是没回南昌吗，怎么偷玩如龙不播的
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6838#       发表于 2020-1-27 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46258549&amp;ptid=1712512" target="_blank">拉格朗日乘数法 发表于 2020-1-27 16:44</a>
+
+秦川不是没回南昌吗，怎么偷玩如龙不播的</blockquote>
+如龙不能播吧
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6839#       发表于 2020-1-27 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46258549&amp;ptid=1712512" target="_blank">拉格朗日乘数法 发表于 2020-1-27 16:44</a>
+
+秦川不是没回南昌吗，怎么偷玩如龙不播的</blockquote>
+如龙全系列禁播，但是可以传视频
+
+
+
+
+
+
+
+-----
+
+####  a8778700  
+##### 6840#       发表于 2020-1-28 00:56
+
+
+
+
+每次玩如龙都觉得节目效果这么好的游戏不能播太可惜了
+
+—— 来自 samsung SM-G9650, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6841#       发表于 2020-1-29 04:32
+
+
+
+
+去优酷找了如龙0的录像看，只能说确实是越处的人越喜欢色，当年的小秦也是韦天那样啥都能联想到色的纯真男孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6842#       发表于 2020-2-1 21:19
+
+
+
+
+玩家主播抽奖都抽不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6843#       发表于 2020-2-1 21:53
+
+
+
+
+上播第一天游戏里就摸吧摸吧摸吧摸吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6844#       发表于 2020-2-2 23:17
+
+
+
+ 本帖最后由 duraa 于 2020-2-2 23:18 编辑 
+
+因为假期过长终极无聊在回味缺哥老视频，目前在看仁王系列，追到DLC部分
+
+然后dlc1 2017-05-11斗鱼回放，dlc2 2017-07-26斗鱼回放，但是dlc3没找到录像（贴吧有人说播过）<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+所以是缺哥没播过dlc3呢，如果播过方便提供下线索么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6845#       发表于 2020-2-3 01:52
+
+
+
+
+同上楼，在无聊补以往的视频，然后发现无论是优酷或者b站，秦先森《如龙：极》都只有11p（两个part），是跟千年猛男杨森一起不存在了吗。
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6846#       发表于 2020-2-3 02:29
+
+
+
+
+批站有小秦的野吹录像嘛？
+
+我记得以前是有的，昨天找了一下，居然没找到
+
+
+
+
+
+
+
+-----
+
+####  otjuly  
+##### 6847#       发表于 2020-2-3 08:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311193&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2020-2-3 02:29</a>
+批站有小秦的野吹录像嘛？
+
+我记得以前是有的，昨天找了一下，居然没找到 ...</blockquote>
+斗鱼有，居然还能看，好多大主播早年的录像都看不了了
+
+
+
+
+
+
+
+-----
+
+####  kenfy612  
+##### 6848#       发表于 2020-2-3 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311193&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2020-2-3 02:29</a>
+
+批站有小秦的野吹录像嘛？
+
+我记得以前是有的，昨天找了一下，居然没找到 ...</blockquote>
+有其他人传了，虽然小秦好像没同意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 6849#       发表于 2020-2-3 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46311193&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2020-2-3 02:29</a>
+批站有小秦的野吹录像嘛？
+
+我记得以前是有的，昨天找了一下，居然没找到 ...</blockquote>
+av69537681
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6850#       发表于 2020-2-3 15:14
+
+
+
+
+我记得去年秦川有个四人联机带妹一起打HALO系列的视频3，4，5，ODST都有，但是没传录播，有人知道直播录像的地址吗？
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 6851#       发表于 2020-2-3 16:54
+
+
+
+
+怎么就到生狗崽的年龄了。时间过的真快。
+
+
+
+
+
+
+
+-----
+
+####  kensai_wang  
+##### 6852#       发表于 2020-2-3 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46309903&amp;ptid=1712512" target="_blank">duraa 发表于 2020-2-2 23:17</a>
+因为假期过长终极无聊在回味缺哥老视频，目前在看仁王系列，追到DLC部分
+
+然后dlc1 2017-05-11斗鱼回放，dlc ...</blockquote>
+没播过dlc3
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6853#       发表于 2020-2-3 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懦夫1号太草了
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6854#       发表于 2020-2-3 20:10
+
+
+
+
+原来这游戏能联机啊
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 6855#       发表于 2020-2-3 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈，被巨魔锤了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6856#       发表于 2020-2-4 01:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这游戏感觉好有趣啊，可惜没有能一起玩的朋友，只能等着云小秦明天的樵夫新档了
+
+
+
+
+
+
+
+-----
+
+####  wwmmx  
+##### 6857#       发表于 2020-2-4 19:23
+
+
+
+
+门房播了，逃离塔科夫
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6858#       发表于 2020-2-4 21:16
+
+
+
+
+草 这抽奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中奖人 弹幕演员 一般路过奎恩 可还行
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  Lucky枫逸  
+##### 6859#       发表于 2020-2-5 01:52
+
+
+
+ 本帖最后由 Lucky枫逸 于 2020-2-5 01:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46315031&amp;ptid=1712512" target="_blank">空罐子 发表于 2020-2-3 15:14</a>
+
+我记得去年秦川有个四人联机带妹一起打HALO系列的视频3，4，5，ODST都有，但是没传录播，有人知道直播录像 ...</blockquote>
+和韦天，三头，还有三头带的妹一起打的，挺有意思的，好像打了三天来着（记得开头打了一关黑楼3然后手贱把MCC删了，全麻
+[https://v.douyu.com/show/2Bj8vG4DD0q7Obnd](https://v.douyu.com/show/2Bj8vG4DD0q7Obnd)
+[https://v.douyu.com/show/DO84vr6kon0vedGr](https://v.douyu.com/show/DO84vr6kon0vedGr)
+[https://v.douyu.com/show/aRbBv3pe8zE76PYV](https://v.douyu.com/show/aRbBv3pe8zE76PYV)
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6860#       发表于 2020-2-7 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">hobo兄弟的异世界生活
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 6861#       发表于 2020-2-7 22:07
+
+
+
+
+欺负老人的屑主播
+
+
+
+
+
+
+
+-----
+
+####  DTCPSS  
+##### 6862#       发表于 2020-2-7 23:44
+
+
+
+
+秦国陶器制作：
+https://www.bilibili.com/video/av86456719
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6863#       发表于 2020-2-7 23:52
+
+
+
+
+P5S,QGN:香疯了,怎么回事啊,真正的P5
+
+
+
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 6864#       发表于 2020-2-7 23:57
+
+
+
+ 本帖最后由 qiyu1234 于 2020-2-7 23:58 编辑 
+
+20号P5R中文，世嘉不太可能再来个P5S中文自己打自己
+
+更何况P5R风评翻车，再来个P5S中文真没救了（虽然现在估计也差不多）
+
+
+这种日式高人气系列作
+
+倘若海外版跟原版发行时间差太多
+
+如果风评不错倒罢了
+
+风评如果出了问题，再加上长久等待下的舆论发酵，很可能会带来断崖式的销量下滑
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6865#       发表于 2020-2-8 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46356338&amp;ptid=1712512" target="_blank">KuonjiClara 发表于 2020-2-7 23:52</a>
+
+P5S,QGN:香疯了,怎么回事啊,真正的P5</blockquote>
+原以为战斗不伦不类，结果从试玩来看非常契合
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6866#       发表于 2020-2-8 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46356468&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-2-8 00:15</a>
+
+原以为战斗不伦不类，结果从试玩来看非常契合</blockquote>
+光荣做外包水平比做自家游戏高太多太多了
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6867#       发表于 2020-2-8 00:52
+
+
+
+
+靠没看直播，错过了一个亿
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 6868#       发表于 2020-2-8 05:22
+
+
+
+
+看完FTK就去洗澡了，原来还试玩了P5S吗
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6869#       发表于 2020-2-13 19:04
+
+
+
+
+竟然播baba is you了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢人警告
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 6870#       发表于 2020-2-13 19:08
+
+
+
+
+是谁给狗头人他能玩BABA is YOU的错觉的？
+
+
+
+
+
+
+
+-----
+
+####  Eina  
+##### 6871#       发表于 2020-2-13 19:09
+
+
+
+
+可能天哥玩过给了小秦也能玩的错觉
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6872#       发表于 2020-2-13 19:20
+
+
+
+
+我看今晚直播间要人均高血压了
+
+
+
+
+
+
+
+-----
+
+####  GrayishWh0  
+##### 6873#       发表于 2020-2-13 19:56
+
+
+
+
+小蓝妹之前打的也是这个，秦王怕不是觉得我上我也行。。。
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 6874#       发表于 2020-2-13 19:57
+
+
+
+
+傻子玩解谜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RedPig  
+##### 6875#       发表于 2020-2-13 20:06
+
+
+
+
+竟然在玩baba is you<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 6876#       发表于 2020-2-13 20:14
+
+
+
+
+这游戏要到多少关才上难度 搞得我都想买一个了
+
+
+
+
+
+
+
+-----
+
+####  叶雾  
+##### 6877#       发表于 2020-2-13 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409315&amp;ptid=1712512" target="_blank">imba419 发表于 2020-2-13 20:14</a>
+
+这游戏要到多少关才上难度 搞得我都想买一个了</blockquote>
+中期关卡就经常一想一小时
+
+最后的连续隐藏关脑洞正常人不看攻略无解
+
+
+
+
+
+
+
+-----
+
+####  polymaths  
+##### 6878#       发表于 2020-2-13 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409339&amp;ptid=1712512" target="_blank">叶雾 发表于 2020-2-13 20:16</a>
+
+中期关卡就经常一想一小时
+
+最后的连续隐藏关脑洞正常人不看攻略无解</blockquote>
+中期到后期，难度曲线是在下降的。中期要自己发现新trick，后期只要熟练运用这些trick就可以了
+
+
+后期的几个隐藏关完全没卡关，卡关时间最长的是初期两个物体叠加SHIFT 的关卡
+
+
+
+
+
+
+
+-----
+
+####  otjuly  
+##### 6879#       发表于 2020-2-13 21:51
+
+
+
+
+居然在玩baba<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6880#       发表于 2020-2-13 21:56
+
+
+
+<img src="http://i.loli.net/2020/02/13/SRcdxoeH98sYnlv.png" referrerpolicy="no-referrer">机皇这图太草了
+
+
+
+
+
+
+
+-----
+
+####  焚尘  
+##### 6881#       发表于 2020-2-13 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">秦川居然敢玩baba is you，是恋爱让弱智重获新生！
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6882#       发表于 2020-2-14 00:03
+
+
+
+
+秦人节不播所以今天这么敬业吗，解谜游戏这么认真地播了5个钟还是很有毅力的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DawnGuardian  
+##### 6883#       发表于 2020-2-14 00:18
+
+
+
+
+有点佩服，这游戏前中期有几个隐藏关卡的我心态炸裂，秦三竖居然能坚持打过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 6884#       发表于 2020-2-14 01:41
+
+
+
+
+开始看了看结尾看了看 感觉打得挺好啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  otjuly  
+##### 6885#       发表于 2020-2-15 02:21
+
+
+
+
+看了下b站录播，弹幕比秦川更气人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
