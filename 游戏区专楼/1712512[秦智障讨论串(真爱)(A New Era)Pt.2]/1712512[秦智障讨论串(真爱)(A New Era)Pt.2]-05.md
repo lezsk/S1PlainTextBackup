@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-16 04:05** 
+> ## **本文件最后更新于2020-02-17 04:05** 
 
 
 
@@ -15885,4 +15885,696 @@ Homi Quin ！把我笑出眼泪了<img src="https://static.saraba1st.com/image/s
 
 
 
-                   
+
+
+-----
+
+####  普通哈尼  
+##### 6908#       发表于 2020-2-16 04:23
+
+
+
+
+今晚是真的看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萌二  
+##### 6909#       发表于 2020-2-16 04:35
+
+
+
+
+本来快要睡了  看到训练假摔笑岔气了  现在睡不着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6910#       发表于 2020-2-16 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429035&amp;ptid=1712512" target="_blank">Duncan_Spurs 发表于 2020-2-16 02:29</a>
+
+秦川居然也是马刺球迷
+
+
+—— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+秦川16年在马刺拿的总冠军
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 6911#       发表于 2020-2-16 19:09
+
+
+
+
+说起来前几天下午小秦居然在玩GTA5，还连着玩了好几天。今天下午又在偷偷玩2K20不播
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6912#       发表于 2020-2-16 19:46
+
+
+
+
+哈哈哈哈，金钱没了
+
+马刺第二部，完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 6913#       发表于 2020-2-16 19:52
+
+
+
+
+凌晨8点的打铁声又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a2042312  
+##### 6914#       发表于 2020-2-16 20:14
+
+
+
+
+湖人内鬼大老爹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6915#       发表于 2020-2-16 20:29
+
+
+
+
+中配解说念出大老爹太羞耻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 6916#       发表于 2020-2-16 20:53
+
+
+
+
+湖人真的是栓秦冠了……
+
+还是马刺更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 6917#       发表于 2020-2-16 20:59
+
+
+
+
+看了五分钟我就要死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lkjh  
+##### 6918#       发表于 2020-2-16 22:11
+
+
+
+
+今天的直播太谐了 笑死
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6919#       发表于 2020-2-16 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会有人剪解说的yygq合集吗，太逗了
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6920#       发表于 2020-2-16 22:18
+
+
+
+
+他应该多动动脑子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这中文解说太草了
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  莉洁莉特  
+##### 6921#       发表于 2020-2-16 22:18
+
+
+
+
+解说太牛逼了，手感冰凉，多动动脑子。
+
+—— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  剑士  
+##### 6922#       发表于 2020-2-16 22:20
+
+
+
+
+大老爹节目效果太好了
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 6923#       发表于 2020-2-16 22:45
+
+
+
+
+爬进去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csj6655  
+##### 6924#       发表于 2020-2-16 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大老爹可太有意思了
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6925#       发表于 2020-2-16 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要他上了罚球线，大家都不会报什么希望
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6926#       发表于 2020-2-16 23:17
+
+
+
+
+这解说也太会阴阳怪气了
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6927#       发表于 2020-2-16 23:26
+
+
+
+
+草  接受采访还把电台的耳机毛走了
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 6928#       发表于 2020-2-16 23:34
+
+
+
+
+属实防守黑洞
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6929#       发表于 2020-2-16 23:37
+
+
+
+
+篮下往外传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“戴维斯为什么不射！”
+
+
+
+
+
+
+
+-----
+
+####  MosesSun  
+##### 6930#       发表于 2020-2-16 23:47
+
+
+
+
+当年抢七夺冠靠的是帕克1.4秒翻身三分绝杀
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6931#       发表于 2020-2-17 00:14
+
+
+
+
+新成语：完美无缺<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dazzz  
+##### 6932#       发表于 2020-2-17 00:17
+
+
+
+
+“他今天打的太难看了”
+
+
+
+
+
+
+
+-----
+
+####  Imanmi  
+##### 6933#       发表于 2020-2-17 00:28
+
+
+
+
+我要笑死了，麻三节，最后牛逼一节，钓鱼式涨粉
+
+
+
+
+
+
+
+-----
+
+####  不灭钻石  
+##### 6934#       发表于 2020-2-17 00:28
+
+
+
+
+浓眉哥，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6935#       发表于 2020-2-17 00:32
+
+
+
+
+这局有戏，阿秦摸到适合自己的玩法了
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 6936#       发表于 2020-2-17 00:41
+
+
+
+
+笑死了，他玩这个真的又气人又好笑，比播那些没劲的游戏好玩多了。
+话说秦川完全不懂篮球规则为什么玩2k20这种粪作这么兴奋的，话多而且特别搞怪，开心得不行。
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Imanmi  
+##### 6937#       发表于 2020-2-17 00:51
+
+
+
+
+初生牛犊不怕虎，大老爹戏耍库里，湖人唯一真神竟然是他
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6938#       发表于 2020-2-17 01:02
+
+
+
+
+打勇士这场虽然还有拉胯，好看倒还是好看的，打的还行
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6939#       发表于 2020-2-17 01:09
+
+
+
+
+我怀疑解说员的价值占了这年货的一半以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 6940#       发表于 2020-2-17 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46436876&amp;ptid=1712512" target="_blank">sfour 发表于 2020-2-17 00:41</a>
+
+笑死了，他玩这个真的又气人又好笑，比播那些没劲的游戏好玩多了。
+
+话说秦川完全不懂篮球规则为什么玩2k20 ...</blockquote>
+每年都要玩那么一段时间2K，也不知道为啥
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6941#       发表于 2020-2-17 01:42
+
+
+
+
+太搞了，最近节目效果的巅峰
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6942#       发表于 2020-2-17 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46437042&amp;ptid=1712512" target="_blank">Asukalangley33 发表于 2020-2-17 01:09</a>
+
+每年都要玩那么一段时间2K，也不知道为啥</blockquote>
+没啊，上次玩还是16年了，后面有年别人送过他但没玩
+
+
+
+
+
+
+
+-----
+
+####  cayon  
+##### 6943#       发表于 2020-2-17 01:49
+
+
+
+
+我怕晚上睡着梦里幻听一句大老爹拿球笑醒
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 6944#       发表于 2020-2-17 01:52
+
+
+
+
+两个教练要气死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6945#       发表于 2020-2-17 02:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">很好奇小秦足球游戏的水平，他说世界杯的时候玩过，斗鱼有那时候的录像吗
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6946#       发表于 2020-2-17 02:32
+
+
+
+
+A-，23分，荣耀下播力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 6947#       发表于 2020-2-17 02:36
+
+
+
+
+vip位几个教练一通指导，好起来力
+
+
+
+
+
+
+
+-----
+
+####  gjzeng  
+##### 6948#       发表于 2020-2-17 02:37
+
+
+
+
+这两天真的笑疯力 与解说高强度互动
+
+
+
+
+
+
+
+-----
+
+####  萌二  
+##### 6949#       发表于 2020-2-17 02:37
+
+
+
+
+虐菜无情 荣耀下播  还顺便把金钱的档给删了
+
+
+
+
+
+                  
