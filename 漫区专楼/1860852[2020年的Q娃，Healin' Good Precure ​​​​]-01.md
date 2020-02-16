@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-16 12:02** 
+> ## **本文件最后更新于2020-02-17 00:02** 
 
 
 
@@ -23875,4 +23875,575 @@ mhss555都有这么多啊..把便当的算上抓心也有就是了</blockquote>
 
 
 
-        
+
+
+-----
+
+####  reficul  
+##### 1237#       发表于 2020-2-16 12:30
+
+
+
+
+去年还是老父亲，今年怎么全成儿子了
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 1238#       发表于 2020-2-16 12:50
+
+
+
+
+竟然自己领悟了变身<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1239#       发表于 2020-2-16 13:04
+
+
+
+
+看完了，我愿与楼上一起称这季为妈Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1240#       发表于 2020-2-16 13:13
+
+
+
+
+妈q还行，蓝毛明明是姐系！直爽、体贴，还是运动系，我真是high到不行<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">。难不成今年不当粉主厨了？
+
+才发现企鹅叫贝吉塔<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，跟蓝毛握手的时候老想着融合
+
+凹酱一激动声线又回来了，果然还是那种有点嗓音的声线舒服
+
+这动作实在是太逗了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202002/16/131316t8b5px8p22ec4u8z.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获2.PNG</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2020-2-16 13:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1241#       发表于 2020-2-16 13:28
+
+
+
+
+不探究到底誓不罢休的类型，有问题问到底，看到怪物也不犹豫直接干，强硬到我的肉球也微微颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+开头两三句话把和香骗回家，打完不经意间叫名字，危 和香 危
+
+
+
+
+
+
+
+-----
+
+####  chentry  
+##### 1242#       发表于 2020-2-16 13:47
+
+
+
+
+今年的角色都非常有新鲜感
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1243#       发表于 2020-2-16 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430017&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-2-16 09:43</a>
+
+黑毛散发美啊！！！
+
+万一黄毛是活力属性的妈呢</blockquote>
+极大概率是。
+
+
+
+
+
+
+
+-----
+
+####  TheDoctor  
+##### 1244#       发表于 2020-2-16 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430619&amp;ptid=1860852" target="_blank">lazycat233 发表于 2020-2-16 11:17</a>
+现在q娃在哪能下载来看？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+花园里flsnow，一直在做
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1245#       发表于 2020-2-16 18:13
+
+
+
+
+怎么Grace和Sparkle都是英语就你蓝色搞特殊
+
+但是又简洁又华丽又有力量感的变身好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  野上由加奈  
+##### 1246#       发表于 2020-2-16 18:15
+
+
+
+
+这个蓝战士觉悟不错，主动申请入队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1247#       发表于 2020-2-16 18:19
+
+
+
+
+主动要求变身+第一次变身就小小吃瘪，这次的蓝**人爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1248#       发表于 2020-2-16 18:21
+
+
+
+
+好看扎实 
+
+猫（虎）一大早就出去到晚才回来 怕不是出去蹭饭了
+
+蓝bank里散发真好看 
+
+闭嘴 快让我变光之美少女.jpg
+
+
+大友变化史
+
+第一集：香香要找男朋友爸爸我不答应
+
+第三集：千优妈我想要个香香那样的爸
+
+
+
+
+
+
+
+-----
+
+####  太阳灿灿  
+##### 1249#       发表于 2020-2-16 18:25
+
+
+
+
+这么看来美少年干部好弱。。。这次居然让新人上场就吃瘪，感觉在战力上是有设定的，而不是传统新人无敌的那种，今天的小怪大概就是单个新手Q娃无法对付，必须两人配合才能打败
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 1250#       发表于 2020-2-16 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46431374&amp;ptid=1860852" target="_blank">雷之 发表于 2020-2-16 12:50</a>
+
+竟然自己领悟了变身</blockquote>
+她不是看到凹酱变身了
+
+
+
+
+
+
+
+-----
+
+####  musicat  
+##### 1251#       发表于 2020-2-16 19:44
+
+
+
+ 本帖最后由 musicat 于 2020-2-16 19:56 编辑 
+
+“别说了，快让我加入”这段的配乐不错，把气氛渲染出来了。
+
+话说有过这样主动要求变身的前辈吗？
+
+
+Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多ooooo的大姐姐的飒爽，13岁演出了23大学生的成熟美/
+
+变身的唱名明明可以是Cure Fooooooooooooooontaine！的
+
+
+好吧，变身话也会吃瘪，这个就<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1252#       发表于 2020-2-16 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46434599&amp;ptid=1860852" target="_blank">musicat 发表于 2020-2-16 19:44</a>
+
+“别说了，快让我加入”这段的配乐不错，把气氛渲染出来了。
+
+话说有过这样主动要求变身的前辈吗？</blockquote>
+还是 Fontaaaaaaaaaaine 好听一点。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1253#       发表于 2020-2-16 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46434569&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-2-16 19:39</a>
+
+她不是看到凹酱变身了</blockquote>
+变身从外部视角应该是一闪而过的，bank 只是给我们看的。只有某些剧场版中出现过缓慢充能的变身是一点一点发生，剧中人也能看得到的。
+
+
+
+
+
+
+
+-----
+
+####  jdd46820  
+##### 1254#       发表于 2020-2-16 20:18
+
+
+
+
+好主动啊，主动搭讪，主动告白。另外变身白披风超帅。
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1255#       发表于 2020-2-16 20:30
+
+
+
+
+下级那个兽医看发色是不是小黄的家人啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noneoneone  
+##### 1256#       发表于 2020-2-16 20:37
+
+
+
+
+两个变身的白大褂都挺帅的。
+
+设定图没感觉出来，但正片里变身后形象确实都有大姐姐的味道，难怪楼上那么多喊妈的。
+
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1257#       发表于 2020-2-16 20:46
+
+
+
+
+话说蓝色在家里招待和佳的那几句话是我太邪恶吗，怎么听怎么觉得气氛不太对<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1258#       发表于 2020-2-16 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46434758&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-16 20:04</a>
+
+变身从外部视角应该是一闪而过的，bank 只是给我们看的。只有某些剧场版中出现过缓慢充能的变身是一点一 ...</blockquote>
+慢慢变身的我就记得ss剧场版那个，二哥二嫂十指相扣，一边流泪表白一边由下往上变，太有意境了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1259#       发表于 2020-2-16 21:29
+
+
+
+
+声优梗 ​
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbyhtgu1h8j20m00qetuy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 1260#       发表于 2020-2-16 21:31
+
+
+
+
+感觉蓝毛有点状况外，怎么那么容易就接受了。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1261#       发表于 2020-2-16 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435337&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-16 21:16</a>
+
+慢慢变身的我就记得ss剧场版那个，二哥二嫂十指相扣，一边流泪表白一边由下往上变，太有意境了 ...</blockquote>
+我是记得心跳 40 回，马口 P 当着雷吉娜的面，一边唱歌一边变，差点把雷吉娜洗白了。
+
+
+
+
+
+
+
+-----
+
+####  zxc4563982  
+##### 1262#       发表于 2020-2-16 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435047&amp;ptid=1860852" target="_blank">noneoneone 发表于 2020-2-16 20:37</a>
+
+两个变身的白大褂都挺帅的。
+
+设定图没感觉出来，但正片里变身后形象确实都有大姐姐的味道，难怪楼上那么多 ...</blockquote>
+变身前和企鹅说得那番话就已经很……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1263#       发表于 2020-2-16 22:03
+
+
+
+
+唉 二段可以把白大褂加上吗<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+今年的女人变身体太过于普通没特色
+
+
+
+
+
+
+
+-----
+
+####  wilkyway  
+##### 1264#       发表于 2020-2-16 22:36
+
+
+
+
+第三集企鹅没什么发挥啊..兔子也不开盾了 虽然说为了演出可以理解吧
+
+看下集能不能放点什么出来
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1265#       发表于 2020-2-16 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429972&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-2-16 09:34</a>
+
+这么说看Q娃真是超值啊，又有妈又有女儿，下一集是不是再来个女朋友啊 ...</blockquote>
+就目前来看，日向还真是最像女朋友人设的。
+
+
+活泼开朗，心直口快，颜艺超群，又是个逗逼型，有这么个女朋友还有啥不满足的？
+
+
+感觉日向应该是马琳+亮亮的合体，今天出场就有内味儿了……
+
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1266#       发表于 2020-2-16 23:11
+
+
+
+
+另外个人感觉今年的Q娃有点像抓心致敬的意思，不知道你们有没有这种感觉。
+
+
+
+
+
+       
