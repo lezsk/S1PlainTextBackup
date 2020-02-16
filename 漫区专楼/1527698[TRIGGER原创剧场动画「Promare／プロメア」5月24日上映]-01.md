@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-12 15:27** 
+> ## **本文件最后更新于2020-02-16 12:01** 
 
 
 
@@ -1331,7 +1331,7 @@ KLK作为扳机社亮相作已经算是很成功了啦，天元厨不要产生KL
 
 
 
-扳机靠klk一炮当红之后我觉得好看的只有忍杀露露子 其他都中规中矩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">求求今石哥哥来一部真正能放心吹爆扳机的番
+扳机靠klk一炮当红之后我觉得好看的只有忍杀露露子 其他都中规中矩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国家队还好算jzds的锅[f:211]求求今石哥哥来一部真正能放心吹爆扳机的番
 
 
 
@@ -1649,7 +1649,7 @@ aniki——！
 
 
 
-为什么今年要早回国我也想去LA的expo啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+为什么今年要早回国我也想去LA的expo啊[f:210][f:209]
 
 
 
@@ -2261,7 +2261,8 @@ C3C40688E1F6F6E8980EA84FFC0D86BB.jpg
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">喷了手里拿的好像鹤望兰
+
+[c:282]喷了手里拿的好像鹤望兰
 
 
 
@@ -2440,7 +2441,8 @@ C3C40688E1F6F6E8980EA84FFC0D86BB.jpg
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+[c:282]
 
 
 
@@ -4105,7 +4107,7 @@ QQ浏览器截图20190123094215.png
 
 
 
-这脸为啥是男的，我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+这脸为啥是男的，我不能接受[f:211]
 
 
 
@@ -4991,7 +4993,7 @@ promare和炎炎消防队乍看100字简介是挺像的，又基本算同期，�
 
 
 
-PV里卡米那开鹤望兰对决亚历克西斯<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+PV里卡米那开鹤望兰对决亚历克西斯[c:282]
 
 
 
@@ -8132,7 +8134,7 @@ HVN3((TJ56]$K[DMR~PK{`F.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46335992&amp;ptid=1527698" target="_blank">煙空 发表于 2020-2-5 20:47</a>
 
 但他们老大去对面当古美门的秘书了</blockquote>
-正是如此<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+正是如此[f:245]
 
 而且还非常路人，很气
 
@@ -8695,7 +8697,7 @@ EVA有沉没成本啊，又不是一开始就开始基的，这部就单纯路�
 
  本帖最后由 moekyo 于 2020-2-6 00:34 编辑 
 
-那天出了1080看看吧，U2也没看到有人发，现在就有那个傻逼幻之的<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+那天出了1080看看吧，U2也没看到有人发，现在就有那个傻逼幻之的[f:246]
 
 
 
@@ -8712,7 +8714,8 @@ EVA有沉没成本啊，又不是一开始就开始基的，这部就单纯路�
 
 
 看到原画最后一位JZGG我笑傻了
-<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。
+
+[c:291]：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。
 
 
 
@@ -9028,7 +9031,7 @@ TM看完这片我居然有点理解腐女了是怎么回事<img src="https://sta
 看到原画最后一位JZGG我笑傻了
 
 ：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。 ...</blockquote>
-人工呼吸就是jzgg的原画哦<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+人工呼吸就是jzgg的原画哦[c:291]
 
 
 
@@ -9404,7 +9407,7 @@ Lio的专用BGM是OP曲《觉醒》，收在superfly的专辑里了，不在ost�
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
 
 AEAA25963C2342B60EF57089FC8D499D8CC97E0D.torrent
-(81.09 KB, 下载次数: 32)
+(81.09 KB, 下载次数: 39)
 
 
 
@@ -10970,7 +10973,7 @@ galo对leo说的那个你让我点起人生中第一次火 是什么意思
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46354998&amp;ptid=1527698" target="_blank">powwow 发表于 2020-2-7 20:55</a>
 
 galo对leo说的那个你让我点起人生中第一次火 是什么意思</blockquote>
-我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">不过lio的那团火真耐用啊，挡了两个大招，后面还能救人，之前那个小姐姐死的好冤
+我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子[f:209]不过lio的那团火真耐用啊，挡了两个大招，后面还能救人，之前那个小姐姐死的好冤
 
 
 
@@ -11029,7 +11032,7 @@ galo对leo说的那个你让我点起人生中第一次火 是什么意思</bloc
 我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子不过lio的 ...</blockquote>
 万能火焰，leo神队友
 
-光是觉醒火能力为啥会那么不好意思<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+光是觉醒火能力为啥会那么不好意思<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，之前还有个胸部衣服破损的特写。其实我看到那直觉是yu huo，一想不对啊[f:245]
 
 小姐姐是说第一个没救过来的吗……leo也被抽过，真皮实。
 
@@ -11394,7 +11397,7 @@ nmd人工呼吸先二指挑下巴把嘴合拢<img src="https://static.saraba1st.
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46338235&amp;ptid=1527698" target="_blank">冰原狼 发表于 2020-2-6 01:09</a>
 
 人工呼吸就是jzgg的原画哦</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/carton2017/279.png" referrerpolicy="no-referrer">炖屎哥美少女画够了来画美少年
+[c:279]炖屎哥美少女画够了来画美少年
 
 
 
@@ -11772,7 +11775,8 @@ nmd人工呼吸先二指挑下巴把嘴合拢你要搞基直说啊今石哥哥�
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">堆色块的情书是坏文明
+
+[c:283]堆色块的情书是坏文明
 
 <img src="https://p.sda1.dev/0/0211c8f0c54ed609d2f4e1caf0279b53/121716brrdyg0prekf3tjg.jpeg.jpg" referrerpolicy="no-referrer">
 
@@ -12178,7 +12182,7 @@ nmd人工呼吸先二指挑下巴把嘴合拢你要搞基直说啊今石哥哥�
 
 
 举个例子，《fs ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">你把它当成人工呼吸不行吗。救火队员搞个人工呼吸有啥奇怪的，海滩上那么多男救生员都是基佬吗。诚然里面有卖腐元素，但是我觉得安排的也挺合理的
+[f:218]你把它当成人工呼吸不行吗。救火队员搞个人工呼吸有啥奇怪的，海滩上那么多男救生员都是基佬吗。诚然里面有卖腐元素，但是我觉得安排的也挺合理的
 
 
 
@@ -12397,7 +12401,7 @@ fsn那个也别大哥笑二哥了，本质黄油，这里不操那里也要草�
 
 
 
-太tm爽了这才是**那味啊，叉手抱胸站在地球上真是男人的浪漫啊。堺雅人一开始觉得声线幼了，后面狂起来反而非常契合。开幕佐仓翘屁股开飞机突发性国家队ptsd一下<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">——————
+太tm爽了这才是**那味啊，叉手抱胸站在地球上真是男人的浪漫啊。堺雅人一开始觉得声线幼了，后面狂起来反而非常契合。开幕佐仓翘屁股开飞机突发性国家队ptsd一下[c:283]——————
 
 绝了tigger竟然是屏蔽词
 
@@ -12473,4 +12477,419 @@ fsn那个也别大哥笑二哥了，本质黄油，这里不操那里也要草�
 
 
 
-                            
+
+
+-----
+
+####  活活火火  
+##### 642#       发表于 2020-2-12 17:53
+
+
+
+
+这个牛逼多边形风格，就前20分钟打戏，可以吊打爱死机套餐里一部分了吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 643#       发表于 2020-2-12 20:22
+
+
+
+
+雅人那个大总统声线惊了完全一种蛊惑人心的美感，到是挺遗憾佐仓小姐后面没发挥更多作用的，其实感觉整个作品背景可以再深化一下
+
+说起来大总统那个部下第一部分还以为被打死了，后面竟然又出来了
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 644#       发表于 2020-2-12 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46366153&amp;ptid=1527698" target="_blank">mywifehasmike 发表于 2020-2-9 05:56</a>
+
+堺雅人表现还行，但另外演员的配音实在接受不能……本来就一**高潮时配音拉夸更出戏，换成小西克幸+柿原澈 ...</blockquote>
+主角们和佐仓小清水这对“姐妹花”一对比反差太大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，佐仓那个声线真有点梦回麻团的优子的味道，可惜戏份太少了
+
+
+
+
+
+
+
+-----
+
+####  铅笔的粉  
+##### 645#       发表于 2020-2-12 23:04
+
+
+
+
+除了静止那么久没音乐这片就是标准人工呼吸啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看完没想法
+
+
+
+
+
+
+
+-----
+
+####  碎纸机  
+##### 646#       发表于 2020-2-12 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46383306&amp;ptid=1527698" target="_blank">剑士 发表于 2020-02-10 22:56:41</a>
+剧情老套，但这个演出还是爽的，完全烧掉就行了，燃烧殆尽。做成动画补充一下的话会更好，就这个剧情，卡 ...</blockquote>你也太小看腐女的战斗力了，制作组明显宅男腐女全都要啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  坏掉了的毛猫熊  
+##### 647#       发表于 2020-2-13 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">新谷真弓的声音真好听啊，每次听都舒服的不行
+
+— from Sony G8142, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 648#       发表于 2020-2-13 04:35
+
+
+
+ 本帖最后由 mishidexieyu 于 2020-2-13 05:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看的真爽，看到双手抱臂的时候还感动了一下，虽然机设似乎更像天元但我幻视到了gunbuster。里奥的美貌让我有种渚薰的感觉，人工呼吸那一段我甚至很恶心的笑出声了。
+
+雅人这个大只佬大总统的声线反而有点肾虚，楼上蛊惑人心的美感这词我很赞同，而且狂气起来也可以，作为演员配音我觉得还是很棒了的
+顺带一提我虽然看过李狗嗨但因为事先不知道雅人配音所有可能观感有加成
+
+
+
+
+
+
+
+-----
+
+####  luna120225  
+##### 649#       发表于 2020-2-13 04:55
+
+
+
+
+利益相关：腐女，时差，影院刷了好几刷，蓝光OST小人都买了
+
+我，一个闻着刻意卖腐味儿就蹿三十里远的人，要我说这简直就是两个大直男了，顶多crush，觉得他俩太给的建议去查查自己是不是深柜
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 650#       发表于 2020-2-13 05:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46403156&amp;ptid=1527698" target="_blank">luna120225 发表于 2020-2-13 04:55</a>
+利益相关：腐女，时差，影院刷了好几刷，蓝光OST小人都买了
+
+我，一个闻着刻意卖腐味儿就蹿三十里远的人，要 ...</blockquote>
+同样是美少年gay度和渚薰没得比，完全就是对应卡密那和西蒙两人的友情，感觉楼里有些人是因为里奥长得太美少年再加人工呼吸这情节不能自已，这样的还是承认自己有美少年性癖比较好)
+
+
+
+
+
+
+
+-----
+
+####  アルメリア  
+##### 651#       发表于 2020-2-13 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46403156&amp;ptid=1527698" target="_blank">luna120225 发表于 2020-2-13 04:55</a>
+
+利益相关：腐女，时差，影院刷了好几刷，蓝光OST小人都买了
+
+我，一个闻着刻意卖腐味儿就蹿三十里远的人，要 ...</blockquote>
+但我E站搜promare的本子全都是这两人搞基的 难道要怪佐仓太空气么
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 652#       发表于 2020-2-13 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46404691&amp;ptid=1527698" target="_blank">アルメリア 发表于 2020-2-13 11:30</a>
+
+但我E站搜promare的本子全都是这两人搞基的 难道要怪佐仓太空气么</blockquote>
+讲道理，艾娜的存在感已经不差了（前面且不说后面还告知姐姐真相并救走她），只是机体和拳头对飚几乎都是几个男人的事情，这戏份上的差距从开始就被官方决定了
+
+
+
+
+
+
+
+-----
+
+####  luna120225  
+##### 653#       发表于 2020-2-13 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46404691&amp;ptid=1527698" target="_blank">アルメリア 发表于 2020-2-13 11:30</a>
+
+但我E站搜promare的本子全都是这两人搞基的 难道要怪佐仓太空气么</blockquote>
+哪儿空气了，她要是空气那博士讲promare的真相就不会有她看了跟姐姐的那么多戏份也不会有了
+
+当然是怪galo这钢铁直男冰湖气氛那么好都没get到把aina给摔了哇，简直是直接切断aina线可能性
+
+而且姐妹爱它不香吗【x
+
+
+
+
+
+
+
+-----
+
+####  郭富城  
+##### 654#       发表于 2020-2-13 13:09
+
+
+
+ 本帖最后由 郭富城 于 2020-2-13 13:19 编辑 
+
+泥潭老哥们真的很严格啊
+
+既然Staff第一个就出中岛一基的名字，肯定是这个剧情力度的了
+
+一直就是这个劲儿啊，老顾客不是就为了看这个劲儿吗，这个店卖的就是这么个口味的东西
+
+
+前有JZGG怀孕教育片，后有SSSS卖大腿，这个片我觉得就特别诚实
+
+除了剧情很中岛一基，Trigger这个团队该给的都给到了，很多还给得很刻意
+
+
+就是这么编剧风格强烈的了，看前头就知后面
+
+最后消防队的机器竟然没合体，这是我唯一没在观影中猜到的
+
+
+泽野弘之的配乐可圈可点，但我也不太喜欢他配乐，总觉得太多旋律似曾相识了
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  广西桂系兵  
+##### 655#       发表于 2020-2-15 13:14
+
+
+
+
+我还以为中间那个能够吸收热量增殖的冰块会是翻盘点来着...没想到是这个结局
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 656#       发表于 2020-2-15 14:24
+
+
+
+
+觉得给你就是深柜，楼里某些人说话确实有内味
+
+
+
+
+
+
+
+-----
+
+####  莉莉夏  
+##### 657#       发表于 2020-2-15 14:35
+
+
+
+
+lio从冰里挣脱，化龙杀回来那段，狂气四溢，太爽了
+
+
+
+
+
+
+
+-----
+
+####  warlock228  
+##### 658#       发表于 2020-2-16 00:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+最后一刻里欧看出了尼娅的幻视再加上佐仓优子 果然精神续作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  9α  
+##### 659#       发表于 2020-2-16 09:48
+
+
+
+
+绿毛的cv演技太差了
+本来觉得燃的地方因为cv搞得一点感觉都没了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tonberry  
+##### 660#       发表于 2020-2-16 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46428338&amp;ptid=1527698" target="_blank">warlock228 发表于 2020-2-16 00:36</a>
+一根筋全力往前冲刺太爽了 佐仓大法的妹子人设太顶了 
+
+最后一刻里欧看出了尼娅的幻视再加上 ...</blockquote>
+我悟了，Lio是西蒙加尼娅，四舍五入就是他们的儿子！！！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| astrayveller| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ulir  
+##### 661#       发表于 2020-2-16 10:32
+
+
+
+
+男二的主题曲很喜欢，感觉人也挺好说话的甚至要啥给啥，导致回头看登场那段总觉得他们演过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kg21xhunter  
+##### 662#       发表于 2020-2-16 10:39
+
+
+
+
+虽然会被蝈蝈们黑屁，但还是觉得消防队的飞机车辆最后能合体成守护神or大无畏就完美了，玩具绝对买爆，只是接力助攻男主有点可惜
+
+
+
+
+
+                           

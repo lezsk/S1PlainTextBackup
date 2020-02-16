@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-13 20:01** 
+> ## **本文件最后更新于2020-02-16 12:02** 
 
 
 
@@ -17824,7 +17824,7 @@ ED还有贴贴，真好
 
 
 QQ图片20200202223309.png
-(1.08 MB, 下载次数: 1)
+(1.08 MB, 下载次数: 2)
 
 
 
@@ -18077,7 +18077,7 @@ CD7938A9-8FF3-43C1-AD01-E3E5EBADC56F.GIF
 
 
 QQ截图20200202210631.png
-(1.02 MB, 下载次数: 0)
+(1.02 MB, 下载次数: 1)
 
 
 
@@ -20250,7 +20250,7 @@ QQ图片20200209140615.png
 
 
 F01F26AF-C2E9-48C6-8596-3CA64D364AA5.jpeg
-(71.18 KB, 下载次数: 4)
+(71.18 KB, 下载次数: 5)
 
 
 
@@ -23289,4 +23289,590 @@ UMB 是不是想要有意避免用馒头卡声线？</blockquote>
 
 
 
-         
+
+
+-----
+
+####  鸣上悠  
+##### 1207#       发表于 2020-2-13 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409196&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 20:00</a>
+
+就是不多不少人手一只。狗是追加战士的变身器。</blockquote>
+常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1208#       发表于 2020-2-13 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
+
+常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回 ...</blockquote>
+心跳的因为都能变人形照理存在感挺高……
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1209#       发表于 2020-2-13 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
+
+常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回 ...</blockquote>
+每个都有吗？我就记得六花那只有段失恋，还是前几天看到有人画梗图想起来的，就是变身器拽着六花飞那个
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1210#       发表于 2020-2-13 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
+
+常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回 ...</blockquote>
+满心是四个常驻妖精，SS 原案也是四个（还我满薰 Q 娃）心跳有 5 个常住妖精。
+
+
+
+
+
+
+
+-----
+
+####  wilkyway  
+##### 1211#       发表于 2020-2-13 23:12
+
+
+
+
+mhss555都有这么多啊..把便当的算上抓心也有就是了
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1212#       发表于 2020-2-13 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46410903&amp;ptid=1860852" target="_blank">wilkyway 发表于 2020-2-13 23:12</a>
+
+mhss555都有这么多啊..把便当的算上抓心也有就是了</blockquote>
+555 里面奶玫瑰到底算是妖精还是 Q 娃？
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 1213#       发表于 2020-2-13 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46410924&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 23:15</a>
+
+555 里面奶玫瑰到底算是妖精还是 Q 娃？</blockquote>
+我个人认为是Q娃。她在全明星里是进编制的
+
+不过她可以同时是妖精和Q娃
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 1214#       发表于 2020-2-13 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46409792&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-13 21:10</a>
+常驻妖精数量能有四只这么多好像只有心跳，其实心跳我差点想不起来有了，幸亏每个淫兽都有专门个人回 ...</blockquote>
+最多的是组曲
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1215#       发表于 2020-2-14 13:20
+
+
+
+
+刚看完第二集，粉主的心声把我说的猛男落泪，今年的粉主好坚强，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  鸣上悠  
+##### 1216#       发表于 2020-2-14 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46410878&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-13 23:08</a>
+
+满心是四个常驻妖精，SS 原案也是四个（还我满薰 Q 娃）心跳有 5 个常住妖精。 ...</blockquote>
+完全忘记了光有2个妖精，心跳是算上娃吗？
+
+
+
+
+
+
+
+-----
+
+####  鸣上悠  
+##### 1217#       发表于 2020-2-14 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46411273&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-13 23:51</a>
+
+最多的是组曲</blockquote>
+当时只记得哈咪，一说起才记起一堆音符
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1218#       发表于 2020-2-15 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46411273&amp;ptid=1860852" target="_blank">王留美 发表于 2020-2-13 23:51</a>
+
+最多的是组曲</blockquote>
+对哦……
+
+心跳 5 个。
+
+水果 7 个。
+
+组曲 11 个。
+
+满心 16 个。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1219#       发表于 2020-2-15 02:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46419884&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-14 22:51</a>
+
+完全忘记了光有2个妖精，心跳是算上娃吗？</blockquote>
+是的
+
+然后满心还有 12 个元素精灵，加在一起 16 个妖精。
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1220#       发表于 2020-2-15 20:32
+
+
+
+
+明天就是蓝色了
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1221#       发表于 2020-2-16 07:58
+
+
+
+
+招摇过市
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbxwakiar7j21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbxwanum10j21hc0u0x6q.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbxwaoe3obj21400miu0x.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbxwarm9tij21400mib29.jpg" referrerpolicy="no-referrer">
+
+
+温泉回
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbxwe6gu8sj21400mikjm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwe1now8j21400mix6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwfs64s7j21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwg9ualgj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwgp10z5j21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+又是飞踢
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbxwmcowp6j21400mihdt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbxwn99j0cj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+
+“废话少说，快让我成为光之美少女” ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbxwnytve5j21400mib2a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbxwo0hjmbj21400minpd.jpg" referrerpolicy="no-referrer">
+
+
+蓝色变身
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxws9y1ohj21400mie82.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbxwsaj0c4j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbxwsfya9fj21400mi4qr.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gbxwscpymmj21400mib2a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gbxwsj968gj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gbxwso1in6j21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gbxwst3gudj21400miqv6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  hummysiren  
+##### 1222#       发表于 2020-2-16 08:03
+
+
+
+
+这代蓝色主动签约主动领走淫兽，这就是体育会系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  judylovesSF  
+##### 1223#       发表于 2020-2-16 08:04
+
+
+
+
+蓝变身妈力十足（
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1224#       发表于 2020-2-16 08:23
+
+
+
+
+蓝毛技击动作比和佳利落多了，不愧是体育系的
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1225#       发表于 2020-2-16 08:40
+
+
+
+ 本帖最后由 風駿 于 2020-2-16 08:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429656&amp;ptid=1860852" target="_blank">judylovesSF 发表于 2020-2-16 08:04</a>
+
+蓝变身妈力十足（</blockquote>
+和企鹅对话那段太妈，妈到不行
+
+仔细一想，给和佳递水不也是一种妈的表现吗？
+
+
+啊我不行了，真的太妈了
+
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1226#       发表于 2020-2-16 09:04
+
+
+
+
+原来今年才是妈q吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最低人间肥宅  
+##### 1227#       发表于 2020-2-16 09:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">妈Q还行
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1228#       发表于 2020-2-16 09:34
+
+
+
+
+这么说看Q娃真是超值啊，又有妈又有女儿，下一集是不是再来个女朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1229#       发表于 2020-2-16 09:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急别急，黄色肯定不是妈
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1230#       发表于 2020-2-16 09:43
+
+
+
+ 本帖最后由 rar1536770 于 2020-2-16 09:45 编辑 
+
+黑毛散发美啊！！！
+
+万一黄毛是活力属性的妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1231#       发表于 2020-2-16 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46429977&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-2-16 09:35</a>
+
+别急别急，黄色肯定不是妈</blockquote>
+第一集，阿黄撞到和佳，第一反应是 这么好的孩子 要不要来我家？
+
+
+像不像急着给儿子相亲的妈？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 1232#       发表于 2020-2-16 10:12
+
+
+
+
+这bank让我想起马琳
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 1233#       发表于 2020-2-16 10:27
+
+
+
+<img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gbxygkwtfuj20zk0k0n0z.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1234#       发表于 2020-2-16 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430122&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-16 10:03</a>
+第一集，阿黄撞到和佳，第一反应是 这么好的孩子 要不要来我家？
+
+
+像不像急着给儿子相亲的妈？ ...</blockquote>
+那么问题来了：孩子他爸是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1235#       发表于 2020-2-16 10:56
+
+
+
+
+罗武，响哥，爱大爱和未来这种有爸气质的粉主很久没有出现了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lazycat233  
+##### 1236#       发表于 2020-2-16 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">现在q娃在哪能下载来看？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+        
