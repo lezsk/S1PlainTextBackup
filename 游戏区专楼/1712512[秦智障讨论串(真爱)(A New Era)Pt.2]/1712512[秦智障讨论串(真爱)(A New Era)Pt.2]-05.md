@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-17 04:05** 
+> ## **本文件最后更新于2020-02-18 00:09** 
 
 
 
@@ -1356,8 +1356,7 @@ gf调整下镜头就行了
 
 
 
-
-[f:228]狗头人真爱宝可梦,连小智为何没有得到冠军的理由都知道.
+<img src="https://static.saraba1st.com/image/smiley/face2017/228.gif" referrerpolicy="no-referrer">狗头人真爱宝可梦,连小智为何没有得到冠军的理由都知道.
 
 坐等给8分以上崩盘.
 
@@ -5952,7 +5951,7 @@ CC的staff当年可是拍着胸脯跟大伙保证说给缺哥哥最舒适的直�
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45588962&amp;ptid=1712512" target="_blank">yanghuangu 发表于 2019-11-22 12:21</a>
 玩了一会说简单，改成极难试了下就怂了，最后改成普通</blockquote>
-这就是普通人阿秦吗?真够好笑de喏～[c:247]
+这就是普通人阿秦吗?真够好笑de喏～<img src="https://static.saraba1st.com/image/smiley/carton2017/247.gif" referrerpolicy="no-referrer">
 
 
 
@@ -6145,7 +6144,7 @@ CC的staff当年可是拍着胸脯跟大伙保证说给缺哥哥最舒适的直�
 
 
 
-世纪末桂林传说[f:209]
+世纪末桂林传说<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI LYA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
@@ -13816,7 +13815,7 @@ B站 《当你试图偷看缺哥哥电脑里的黑暗剑____时》https://b23.tv
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46173932&amp;ptid=1712512" target="_blank">空罐子 发表于 2020-1-13 19:05</a>
 
 就这？这也删？</blockquote>
-减肥播主的人设怎么能向炸鸡屈服呢[f:220]
+减肥播主的人设怎么能向炸鸡屈服呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
 
@@ -14201,7 +14200,7 @@ cc录像出来了，最后半小时能拍成电影<img src="https://static.sarab
 
 
 —— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v1. ...</blockquote>
-[f:224]不是第一次了，近的有逆转某章快到最后庭审“你们想知道真相吗，我也想，下次再知道吧”；远的有千年落泪猛男，在接近最终迷宫充满决战氛围的时候永远的不存在了
+<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">不是第一次了，近的有逆转某章快到最后庭审“你们想知道真相吗，我也想，下次再知道吧”；远的有千年落泪猛男，在接近最终迷宫充满决战氛围的时候永远的不存在了
 
 
 
@@ -16577,4 +16576,206 @@ vip位几个教练一通指导，好起来力
 
 
 
-                  
+
+
+-----
+
+####  @lias  
+##### 6950#       发表于 2020-2-17 08:22
+
+
+
+
+大老爹拿球（绝望）
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6951#       发表于 2020-2-17 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46437581&amp;ptid=1712512" target="_blank">PPB3008 发表于 2020-2-17 02:36</a>
+
+vip位几个教练一通指导，好起来力</blockquote>
+感觉兜兜的北京口音跟其中一个解说有八分相似，真人加电脑一起霸凌秦川
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 6952#       发表于 2020-2-17 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46437432&amp;ptid=1712512" target="_blank">音无奏 发表于 2020-2-17 02:09</a>
+很好奇小秦足球游戏的水平，他说世界杯的时候玩过，斗鱼有那时候的录像吗 ...</blockquote>
+印象里好像比篮球懂得多吧，之前是和秦表哥还是谁一起打过来着？
+
+
+
+
+
+
+
+-----
+
+####  渎神者毕福剑  
+##### 6953#       发表于 2020-2-17 14:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46437432&amp;ptid=1712512" target="_blank">音无奏 发表于 2020-2-17 02:09</a>
+很好奇小秦足球游戏的水平，他说世界杯的时候玩过，斗鱼有那时候的录像吗 ...</blockquote>
+挺一般的，不如孙一峰
+
+
+
+
+
+
+
+-----
+
+####  nakedsnake  
+##### 6954#       发表于 2020-2-17 19:19
+
+
+
+
+话说开vtuber专区了，这里要搬过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6955#       发表于 2020-2-17 19:27
+
+
+
+
+来看大老爹生涯录像了（
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 6956#       发表于 2020-2-17 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443557&amp;ptid=1712512" target="_blank">nakedsnake 发表于 2020-2-17 19:19</a>
+
+话说开vtuber专区了，这里要搬过去吗
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2 ...</blockquote>
+中之人都暴露过了。算了吧（
+
+
+
+
+
+
+
+-----
+
+####  新庄運切  
+##### 6957#       发表于 2020-2-17 20:43
+
+
+
+
+秦川不算吧，不然是个人挂个纸片人也算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 6958#       发表于 2020-2-17 21:28
+
+
+
+
+千万别搬，求求了
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6959#       发表于 2020-2-17 22:06
+
+
+
+
+要搬的话，秦爽天都应该过去，毕竟homolive的王牌组合
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 6960#       发表于 2020-2-17 22:45
+
+
+
+
+要搬的话,黑桐谷歌真爱楼也得搬过去
+
+
+
+
+
+
+
+-----
+
+####  csj6655  
+##### 6961#       发表于 2020-2-17 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我还是看了大老爹，才知道有中文解说的
+
+
+
+
+
+                 
