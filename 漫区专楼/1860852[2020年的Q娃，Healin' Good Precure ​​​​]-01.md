@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-17 00:02** 
+> ## **本文件最后更新于2020-02-18 04:01** 
 
 
 
@@ -535,7 +535,7 @@ JC问诊那妥妥的无证行医啊</blockquote>说不定哪个q娃的头发是�
 
 
 mjqcwa1364u31.png
-(719.75 KB, 下载次数: 5)
+(719.75 KB, 下载次数: 6)
 
 
 
@@ -15056,7 +15056,7 @@ BG 还是战队组舒服啊，三对 BG 还都是善终啊……也别是ココ�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46301107&amp;ptid=1860852" target="_blank">mchan 发表于 2020-2-1 22:26</a>
 
 治愈组的楼怎么成了茶几鞭挞大会了？</blockquote>
-OP里看到帅哥就想到BG，想到BG就得提起蓝神，提起蓝神就必须拉出来批判。[f:245]
+OP里看到帅哥就想到BG，想到BG就得提起蓝神，提起蓝神就必须拉出来批判。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
 
@@ -16087,9 +16087,9 @@ UMB的声线还是接受不了，总觉得别扭</blockquote>
 
  本帖最后由 Sliurus 于 2020-2-2 13:28 编辑 
 
-第一集观感还行，节奏很快，简单交代了一下主要角色的形象。虽然之前有汁波密这种文静型的，但是病弱型的还真没见过。哪天打完病倒进医院就有意思了[f:220]
+第一集观感还行，节奏很快，简单交代了一下主要角色的形象。虽然之前有汁波密这种文静型的，但是病弱型的还真没见过。哪天打完病倒进医院就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
-粉兔子居然认识反派，而且还挺熟的样子，能不能安排一下淫兽跟反派的恋爱情节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，怪不得推上有跟奏太太的联动图，南野奏天堂[f:245]
+粉兔子居然认识反派，而且还挺熟的样子，能不能安排一下淫兽跟反派的恋爱情节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 ed很棒，不过风格又回到了以前，我还挺喜欢抱q ed2跟星q的两个ed那种调调
 
@@ -19911,7 +19911,7 @@ umb声线好高，听着刺耳。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46366009&amp;ptid=1860852" target="_blank">鸣上悠 发表于 2020-2-9 04:07</a>
 
 网上放不当做官方发布也会躲不了版权问题？</blockquote>
-[f:218]现在看，貌似不行，应该是东映让撤了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">现在看，貌似不行，应该是东映让撤了吧
 
 
 
@@ -22578,7 +22578,7 @@ ps：别以为op正太和粉有戏份就是cp了 说不定跟黄 你看泽城太
 我同意粉主和正太干部在一起
 
 话说三干部的名字271是怎么翻译的</blockquote>
-[f:213]我不同意，正太脸太尖太帅了，一点也不可爱
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我不同意，正太脸太尖太帅了，一点也不可爱
 
 
 
@@ -24446,4 +24446,461 @@ Cure Fontaine变身bank赞，散发和穿上白大褂的那一刻，真有很多
 
 
 
-       
+
+
+-----
+
+####  xingenge  
+##### 1267#       发表于 2020-2-17 00:41
+
+
+
+
+企鹅真的可爱，知优好主动
+
+现在很期待日向的变身了……
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1268#       发表于 2020-2-17 01:51
+
+
+
+
+蓝毛都见过这么多次怪了还状况外么，倒是黄毛还没亲眼见过怪吧，如果这话给几个镜头她和虎猫的提前互动就好了
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1269#       发表于 2020-2-17 07:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435685&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-2-16 22:03</a>
+唉 二段可以把白大褂加上吗
+今年的女人变身体太过于普通没特色</blockquote>
+说不定后面的三段大招或者天使装就是外面披个白大褂呢
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1270#       发表于 2020-2-17 07:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46435337&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-16 21:16</a>
+
+慢慢变身的我就记得ss剧场版那个，二哥二嫂十指相扣，一边流泪表白一边由下往上变，太有意境了 ...</blockquote>
+去年剧场版阿光拉拉，前年最终战花花，公主神回春春再起，再往前是马口p
+
+
+
+
+
+
+
+-----
+
+####  exam00  
+##### 1271#       发表于 2020-2-17 09:01
+
+
+
+
+    早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦爆发干部别说洗白，反而会被打死啊。今年Q娃题材配合新冠，如果发挥好很可能历史留名啊。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1272#       发表于 2020-2-17 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46436189&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-2-16 23:11</a>
+
+另外个人感觉今年的Q娃有点像抓心致敬的意思，不知道你们有没有这种感觉。 ...</blockquote>
+感觉今年致敬了若干部Q娃，绝不止抓心
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1273#       发表于 2020-2-17 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
+
+早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
+肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是通的。
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1274#       发表于 2020-2-17 10:22
+
+
+
+ 本帖最后由 nerugigannte 于 2020-2-17 10:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">泉妈妈今年别学传统蓝战士酱油啊，我愿把今年的q娃称之为妈q
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">黄淫兽看着像渣男啊，谁都可以摸，球球你今年别迫害我们的黄战士
+
+
+
+
+
+
+
+-----
+
+####  exam00  
+##### 1275#       发表于 2020-2-17 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438780&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 09:58</a>
+
+肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是 ...</blockquote>
+  新冠是传染病啊，你让传播病毒的干部怎么洗白。想想我们对“毒王”的态度，日本都开始呼吁取消聚会了。不过作为百合党，我还是喜闻乐见的
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1276#       发表于 2020-2-17 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
+早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
+去年反派又丑又非人类 当时就以为不用强行洗白了 结果呢结果呢 某只单眼比谁还洗得白呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1277#       发表于 2020-2-17 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
+早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
+照你这么说，去年独眼和蛇夫座被洗是因为日本人没被人体实验和大爆炸过？
+
+
+
+
+
+
+
+-----
+
+####  最低人间肥宅  
+##### 1278#       发表于 2020-2-17 15:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相互理解这一优良传统怎么能抛弃呢！
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1279#       发表于 2020-2-17 17:41
+
+
+
+
+所以日本是没有以德报怨 何以报德这种说法吗
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 1280#       发表于 2020-2-17 18:04
+
+
+
+
+蓝变身真是教主要素致死量.....
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1281#       发表于 2020-2-17 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46442299&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-2-17 17:41</a>
+
+所以日本是没有以德报怨 何以报德这种说法吗</blockquote>
+问题是现在主流舆论流行白左圣母啊，Q娃也被影响了
+
+
+
+
+
+
+
+-----
+
+####  HGCG3  
+##### 1282#       发表于 2020-2-17 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46441074&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 14:49</a>
+
+新冠是传染病啊，你让传播病毒的干部怎么洗白。想想我们对“毒王”的态度，日本都开始呼吁取消聚会了。 ...</blockquote>
+不难啊
+
+比如说，干部们其实是感染了病毒的人类或精灵，
+
+因为染病而被歧视和迫害，于是联合起来报复社会
+
+最后洗白的时候治好了病，变成了健康的肤色
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1283#       发表于 2020-2-17 18:35
+
+
+
+
+现在这情况也别考虑洗白不洗白了，这大环境下要是疫情走势不妙说不定妈Q会停播然后魔改剧情
+
+还记得组曲那年魔改剧本以及DX3剪掉海啸镜头吗？
+
+
+也真是什么题材不好非要搞医生打病毒
+
+
+
+
+
+
+
+-----
+
+####  killng  
+##### 1284#       发表于 2020-2-17 19:04
+
+
+
+
+偷窥、偷听，频繁递水，爱照顾人，自宅是大屋子大房间
+
+出本（把别人送进本子里快活）的要素很足
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1285#       发表于 2020-2-17 19:07
+
+
+
+
+问题是今年撞上东奥 因为电视台要转播预定会砍几集
+现在闹瘟疫又和题材有所冲突...
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1286#       发表于 2020-2-17 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438780&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 09:58</a>
+
+肤色表明非人类这确实是道槛，但真要洗白的话，通过转生，或者其实干部真身是被黑化的元素，这些路子还是 ...</blockquote>
+独眼+外星人肤色的艾旺待遇好着呢
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1287#       发表于 2020-2-17 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443572&amp;ptid=1860852" target="_blank">reficul 发表于 2020-2-17 19:20</a>
+
+独眼+外星人肤色的艾旺待遇好着呢</blockquote>
+艾旺他们是活生生的外星人，参与了一个反派组织，他们是生者，洗白无非是弃恶从善。
+
+
+但今年目前这三个可不是人类，让这三就这么存活可不像话，必须消毒。
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1288#       发表于 2020-2-17 20:22
+
+
+
+<blockquote>HGCG3 发表于 2020-2-17 18:23
+不难啊
+
+比如说，干部们其实是感染了病毒的人类或精灵，
+
+因为染病而被歧视和迫害，于是联合起来报复社会
+</blockquote>
+整合运动么
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1289#       发表于 2020-2-18 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46438358&amp;ptid=1860852" target="_blank">exam00 发表于 2020-2-17 09:01</a>
+
+早上醒来我突然想到今年的干部根本洗不白啊。不说病毒人人厌，再加上新冠病毒在日本有爆发的趋势。一旦 ...</blockquote>
+反过来说干部也可以被治愈出院啊，这不就洗白了。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1290#       发表于 2020-2-18 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46441488&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-2-17 15:33</a>
+
+照你这么说，去年独眼和蛇夫座被洗是因为日本人没被人体实验和大爆炸过？ ...</blockquote>
+独眼是洗白了。蛇夫那只是金盆洗手，没到洗白的地步吧？
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1291#       发表于 2020-2-18 02:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46443629&amp;ptid=1860852" target="_blank">風駿 发表于 2020-2-17 19:26</a>
+
+艾旺他们是活生生的外星人，参与了一个反派组织，他们是生者，洗白无非是弃恶从善。
+
+
+但今年目前这三个可 ...</blockquote>
+这三个会不会是被感染的时间太长，发生变异了？（《生化危机》式。）
+
+
+
+
+
+      
