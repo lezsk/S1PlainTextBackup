@@ -6,4 +6,5 @@ git add .
 git commit -m "上传于$datime"
 echo "git commit: 上传于$datime"
 git push origin master
+git push gitee master
 echo "finished..."
