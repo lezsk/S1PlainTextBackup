@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-18 18:15** 
+> ## **本文件最后更新于2020-02-18 20:10** 
 
 
 
@@ -11763,4 +11763,314 @@ u1s1，你麻也是类似看人先看b的，可能他确实是个老天狗</bloc
 
 
 
-                            
+
+
+-----
+
+####  wudingan  
+##### 647#       发表于 2020-2-18 18:16
+
+
+
+
+这是古战场吧
+
+贴贴楼在这呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">https://bbs.saraba1st.com/2b/thread-1914326-1-2.html
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 648#       发表于 2020-2-18 18:16
+
+
+
+
+2000被口鹅不是因为口嗨葵皇，是因为口嗨夸圣被水军追着干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 649#       发表于 2020-2-18 18:40
+
+
+
+
+因为不想看meaqua贴贴从而把其中一个人送给774透的那些事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 650#       发表于 2020-2-18 18:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/18/183958o8b0xcsdtcjniizi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200218_183243.jpg</strong> (112.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-18 18:39 上传
+
+
+
+
+
+
+sg有什么不好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nianiania  
+##### 651#       发表于 2020-2-18 18:45
+
+
+
+
+这就是vtb古战场吗，爱了爱了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  噬珂  
+##### 652#       发表于 2020-2-18 18:53
+
+
+
+<blockquote>weiweiEX 发表于 2020-2-18 12:44
+这些看直播也能看的到啊，我还是想问前面老哥既然根据石锤mea是处女我要处女的石锤啊 ...</blockquote>
+有一说一，除非去透一下，不然没法实锤这种事情
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 653#       发表于 2020-2-18 18:54
+
+
+
+
+太怪了太怪了，巨魔也会有集火的时候，我还以为错进了nga<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 654#       发表于 2020-2-18 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453334&amp;ptid=1914314" target="_blank">dfbfgd32 发表于 2020-02-18 18:54:53</a>
+太怪了太怪了，巨魔也会有集火的时候，我还以为错进了nga</blockquote>巨魔行为不分v籍，但巨魔本身有他的v籍<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  haloQuQ  
+##### 655#       发表于 2020-2-18 19:10
+
+
+
+
+你们怎么这还咬钩的 这位不就是转生草牛吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 656#       发表于 2020-2-18 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这楼爬起来真有意思
+
+顺便问问坛友冒菜民这个黑话确切意思是什么，我看帖子时就隐约感觉像是贴贴人的意思，跟咩夸的Minecraft有关么
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 657#       发表于 2020-2-18 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453688&amp;ptid=1914314" target="_blank">mishidexieyu 发表于 2020-2-18 19:39</a>
+
+这楼爬起来真有意思
+
+顺便问问坛友冒菜民这个黑话确切意思是什么，我看帖子时就隐约感觉像是贴贴人的 ...</blockquote>
+某个版友叫花泽冒菜，喜欢ntr。
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 658#       发表于 2020-2-18 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453688&amp;ptid=1914314" target="_blank">mishidexieyu 发表于 2020-2-18 19:39</a>
+这楼爬起来真有意思
+
+顺便问问坛友冒菜民这个黑话确切意思是什么，我看帖子时就隐约感觉像是贴贴人的 ...</blockquote>
+你去看看外面那栋“云绿帽楼”的楼主你就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 659#       发表于 2020-2-18 19:43
+
+
+
+<blockquote>mishidexieyu 发表于 2020-2-18 19:39
+这楼爬起来真有意思
+
+顺便问问坛友冒菜民这个黑话确切意思是什么，我看帖子时就隐约感觉像是贴贴人的 ...</blockquote>
+和贴贴民差远了，你可以翻翻绿帽楼
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 660#       发表于 2020-2-18 19:46
+
+
+
+
+原来冒菜民给人的观感是贴贴壬啊，那我整明白，原来是一帮人在脱裤子放屁呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+笑爆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 661#       发表于 2020-2-18 19:47
+
+
+
+
+草，原来是这样，我对我自己阅读理解的水平有了更深刻的理解。
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 662#       发表于 2020-2-18 20:01
+
+
+
+
+冒菜民无非就是通过各式各样的黑屁，黑泥来满足自己的欲望感啊，说白了就是想透却透不到，只能通过另一种方式来宣泄自己的情绪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 663#       发表于 2020-2-18 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我把绿帽楼爬完了，区区七八页见识到的比在本楼要多多了
+
+
+
+
+
+                           
