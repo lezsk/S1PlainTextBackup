@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-18 20:10** 
+> ## **本文件最后更新于2020-02-19 02:04** 
 
 
 
@@ -4576,10 +4576,11 @@ vtb不是0和1吗<img src="https://static.saraba1st.com/image/smiley/face2017/13
 
 
 
- 参与人数 4战斗力 +2
+ 参与人数 5战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| TioPlato| + 1|好评加鹅|
 | 追风小星星|-1|确实,那女人说的话都是真的|
 | Alphez| + 1|好评加鹅|
 | 灼眼艾莉亚| + 1|好评加鹅|
@@ -12073,4 +12074,577 @@ sg有什么不好的吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 
-                           
+
+
+-----
+
+####  thisisaspider  
+##### 664#       发表于 2020-2-18 20:15
+
+
+
+
+尊重他人性癖，就算绿帽是云的大家也看破别说破。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样别人就以为我有女朋友了.jpg
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 665#       发表于 2020-2-18 20:21
+
+
+
+
+车轱辘这么多,唯一的石锤就是Clay以前情感私生活很乱
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 666#       发表于 2020-2-18 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都年轻过，都年轻过
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 667#       发表于 2020-2-18 20:32
+
+
+
+<blockquote>追风小星星 发表于 2020-2-18 20:21
+车轱辘这么多,唯一的石锤就是Clay以前情感私生活很乱</blockquote>
+Clay自己承认就算石锤了吗，说不定只是他的rp
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| physi1202| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 668#       发表于 2020-2-18 20:41
+
+
+
+
+瓶皇都出来了也太low了吧，难不成还是个瓶皇粉？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 669#       发表于 2020-2-18 20:44
+
+
+
+
+haloQuQ都出来了
+
+另一个ID是最上静香是吧
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 670#       发表于 2020-2-18 20:46
+
+
+
+
+冒菜民说白了不就是宫吧老哥嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 671#       发表于 2020-2-18 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46454277&amp;ptid=1914314" target="_blank">豆芽123 发表于 2020-2-18 20:46</a>
+
+冒菜民说白了不就是宫吧老哥嘛</blockquote>
+所以此楼是战吧宫吧之争么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 672#       发表于 2020-2-18 21:15
+
+
+
+
+等等，这楼不是绿帽楼吧？
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 673#       发表于 2020-2-18 21:17
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-18 21:18 编辑 
+
+是啊，都歪楼了
+捏造ntr不好吗？
+两个人就算都有男朋友也不妨碍贴贴啊。某些人是恶心独角兽真的是自我意识过剩。
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 674#       发表于 2020-2-18 21:21
+
+
+
+
+确实，有男朋友和咩夸贴贴不矛盾啊，云绿帽去隔壁楼嗷
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 675#       发表于 2020-2-18 21:38
+
+
+
+
+meaqua贴贴就完事了 等着看咖啡厅是不是还是车轱辘
+
+
+
+
+
+
+
+-----
+
+####  Claymorist  
+##### 676#       发表于 2020-2-18 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46454130&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-18 20:32</a>
+
+Clay自己承认就算石锤了吗，说不定只是他的rp</blockquote>
+呜呜呜，被看穿了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 677#       发表于 2020-2-18 23:40
+
+
+
+
+不会真有人喜欢三酱吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 678#       发表于 2020-2-18 23:51
+
+
+
+
+你妈的，半天没看你们水这么多，774有什么好研究的，一个男人而已，我从来没兴趣，难道你们想爆他菊花？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nns774  
+##### 679#       发表于 2020-2-18 23:53
+
+
+
+
+三酱又是什么鬼，宁不是好不容易才把三字母带成三小姐的吗，咋现在又酱了，搞得就跟处女膜修复术一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 680#         楼主| 发表于 2020-2-18 23:54
+
+
+
+
+各花入各眼。
+不一样的主播有不一样的受众。
+分门别类一个筐放一个萝卜。这样多好
+去年今时我就是坚定的分楼分区支持者
+这样我才能看到比套皮主播还有趣的坛友们不被无效信息和垃圾话掩埋才华<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 681#       发表于 2020-2-18 23:58
+
+
+
+
+总结一下就是推广垃圾分类<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 682#         楼主| 发表于 2020-2-18 23:59
+
+
+
+ 本帖最后由 离魂仙 于 2020-2-19 00:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46455951&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-18 23:51</a>
+你妈的，半天没看你们水这么多，774有什么好研究的，一个男人而已，我从来没兴趣，难道你们想爆他菊花？[f: ...</blockquote>
+那我作为轻百萌豚确实是想爆他菊花的，用擀面杖吧，谁叫他扮人妖的！
+今天看到历代专楼上浮，回去翻了下4月份的774黄毛论，坛友们真知灼见高瞻远瞩分毫不差啊！
+
+但仔细一想，v圈炸了又炸，但对咱这微小的一湾meaqua，半年来似乎真可以说是毫无变化般的车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 683#       发表于 2020-2-19 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46455852&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-18 23:40</a>
+
+不会真有人喜欢三酱吧</blockquote>
+我永远喜欢三字母/三假名/三汉字……
+
+所以你说的三酱是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 684#       发表于 2020-2-19 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456041&amp;ptid=1914314" target="_blank">蒹葭公子 发表于 2020-2-19 00:01</a>
+
+我永远喜欢三字母/三假名/三汉字……
+
+所以你说的三酱是谁？</blockquote>
+三得利<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 685#       发表于 2020-2-19 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456017&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-2-18 23:59</a>
+
+那我作为轻百萌豚确实是想爆他菊花的，用擀面杖吧，谁叫他扮人妖的！
+
+今天看到历代专楼上浮，回去翻了下4 ...</blockquote>
+我从一开始就觉得774是男的，或者说，从一开始就觉得非要说774是女的都是鸵鸟，可能我内心比较阴暗吧……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 686#       发表于 2020-2-19 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">帖帖人发明的774是meaqua小号说是最贴的
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 687#         楼主| 发表于 2020-2-19 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456064&amp;ptid=1914314" target="_blank">蒹葭公子 发表于 2020-2-19 00:04</a>
+我从一开始就觉得774是男的，或者说，从一开始就觉得非要说774是女的都是鸵鸟，可能我内心比较阴暗吧…… ...</blockquote>
+牠是什么人其实也不重要，河豚冒菜各取所需罢了
+让在下灵魂震荡的是，她和牠竟然在私人空间如此紧密的联系之下，把半真半假的互动搬进了V的世界！
+虽然套皮主播界已经不缺关系户入镜这种活了，比如爸爸妈妈弟弟和室友什么的
+但mea516说自曝后最怕丢掉了虚拟感，就是这个啊
+“V和中之人应该是创作者和造物的关系，有了那层皮才有了皮影戏的乐趣”
+
+当然我现在是把这段774皮影戏当作小薄本里“露阴癖”的字母圈变种来看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 688#       发表于 2020-2-19 00:18
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-19 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456131&amp;ptid=1914314" target="_blank">wudingan 发表于 2020-2-19 00:11</a>
+帖帖人发明的774是meaqua小号说是最贴的</blockquote>
+的确是，一群人信誓旦旦的在病栋里说这事她俩在逗我们玩，我寻思你啥地位啊，meaqua什么神仙cp啊，值得这么玩？
+有一说一，都比我这个脑瘫还脑瘫。
+syl当初病栋的各位，大有打了钱，我就参与进这对贴贴(我将其命名为参与型贴贴)里面中的感觉，俨然成了她俩之间的黄瓜，宛若好像他们发明个地下室的段子，写篇二创，画幅贴贴图，她俩就能腻歪在一起了，不久的将来就要踏上婚姻的殿堂涩谷结婚了。实际上你们屁都不是，也就打的钱有点价值。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 689#       发表于 2020-2-19 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456184&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-19 00:18</a>
+
+的确是，一群人信誓旦旦的在病栋里说这事她俩在逗我们玩，我寻思你啥地位啊，meaqua什么神仙cp啊，值得这 ...</blockquote>
+如果只是推特互动，我可能还信，当出现调音师774这个人之后，我基本就可以确定这是个雷了……
+
+只是没想到阿裁让这个雷这么快这么激烈的引爆了而已……
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 690#       发表于 2020-2-19 00:32
+
+
+
+
+19年初的时候我担心整个巴黎公社都是井皇后宫，516之后我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Igarashi| + 1|欢乐多|
+| 魔法使い2019| + 1|欢乐多|
+| 言艮| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nns774  
+##### 691#       发表于 2020-2-19 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46456201&amp;ptid=1914314" target="_blank">蒹葭公子 发表于 2020-2-19 00:21</a>
+
+如果只是推特互动，我可能还信，当出现调音师774这个人之后，我基本就可以确定这是个雷了……
+
+只是没想到 ...</blockquote>
+这能怪阿裁吗，当时不是挺多天狗还对裁狗感恩戴德的嘛，还代表中国人给裁狗道歉，我真的笑爆了，狗的奴性就没改过啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| planetcd|-1|这种地方没路人，做足功课别自嗨了.|
+| saybestty|-1|真的吗？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 692#       发表于 2020-2-19 01:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">有一说一把774搬进直播确实挺录音癖的
+
+
+
+
+
+                          
