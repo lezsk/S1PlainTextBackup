@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-18 10:09** 
+> ## **本文件最后更新于2020-02-18 12:08** 
 
 
 
@@ -2685,4 +2685,1783 @@ syl
 
 
 
-                                            
+
+
+-----
+
+####  雀斑  
+##### 153#       发表于 2020-2-18 10:10
+
+
+
+
+她什么能力比挑染怪强？性经验吗？那确实
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Reimu853| + 1|急了急了急了|
+| 儒门正御应无骞|-1|傻逼滚|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 154#       发表于 2020-2-18 10:13
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-18 10:17 编辑 
+
+就挑染怪，那一句话蹦不出半个钉的杂谈能力，和越来越杂鱼的唱歌能力，我寻思我说的也没错啊，挑染怪除了游戏热度蹭的好的游戏废物这个能力，还有什么能力啊，怪叫也算吗？
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 155#       发表于 2020-2-18 10:16
+
+
+
+
+一般人叫不出这么值钱的meaqua贴贴（鬼叫）
+那坏了，阿挑的说话能力确实高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 156#       发表于 2020-2-18 10:24
+
+
+
+
+管人不都这样吗，你不会以为你mea姐就逃出这些东西了吧？嘻嘻，我可不是挑染粉，我就不认同三字母有能力而已<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 157#       发表于 2020-2-18 10:26
+
+
+
+ 本帖最后由 豆芽123 于 2020-2-18 10:43 编辑 
+
+太可怕了 编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Godless  
+##### 158#       发表于 2020-2-18 10:27
+
+
+
+
+追个jb追，谁追谁傻逼
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 159#       发表于 2020-2-18 10:27
+
+
+
+
+我不反对你对挑染怪的评价，但有能力的三字母小姐还被挑染怪三倍杀，确实呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 160#       发表于 2020-2-18 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448679&amp;ptid=1914314" target="_blank">豆芽123 发表于 2020-2-18 10:26</a>
+
+夸皇会不会自己被隔离了不好意思说也不能被发现在当V才不播的</blockquote>
+上次开夸皇玩笑的2000好像被扣了80多个鹅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 161#       发表于 2020-2-18 10:35
+
+
+
+
+那坏了，既然都没有能力，那什么叫能力呢？
+那我又该准备去看郭德纲老师的杂谈，龚琳娜老师的唱歌和faker的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，v圈不值得.jpg
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 162#       发表于 2020-2-18 10:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真有人把订阅同接当真实能力的吧，别恶心我了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 163#       发表于 2020-2-18 10:37
+
+
+
+
+呵呵，粉和主子一样，仗势水准都不错嘛，真的不能老是说你亏只有游戏能力强了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 164#       发表于 2020-2-18 10:40
+
+
+
+
+mea不成熟才是看点。成熟的mea在凑阿夸停播的时间到b站，起手向日葵，66号，灰色的青。点开相关视频一不小心点到meaqua贴贴视频上，开始吞吞吐吐哽咽。再唱几首前世歌，全程不提名字，然后结尾颤抖的声音说不会让大家失望。
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 165#       发表于 2020-2-18 10:41
+
+
+
+
+靠 会蹭热度不是主播的基本能力吗  咩咩不会蹭热度岂不是智力有问题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SNOWIMEA| + 1|yysy，确实有问题|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 166#       发表于 2020-2-18 10:46
+
+
+
+
+蹭热度结果没把握好被热度反噬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每次都是把好不容易来的热度自己给断了
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 167#       发表于 2020-2-18 10:48
+
+
+
+
+不会真有人觉得蹭孙笑川热度比蹭游戏热度高贵吧，真别恶心我，还不说你咩咩喜欢口嗨同行蹭热度呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 168#       发表于 2020-2-18 10:48
+
+
+
+
+不会真有脑瘫拿箱推的同接和订阅来和个人势比吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在虹杏开局管你是人是狗就送几万订阅，非转生的毕业都可能没那么多
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 169#       发表于 2020-2-18 10:50
+
+
+
+
+也许圣皇放出来的屁都是香的吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 170#       发表于 2020-2-18 10:51
+
+
+
+
+大亏不是都被Coco打得溃不成军了吗，咩啊快去蹭Coco热度
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 171#       发表于 2020-2-18 10:51
+
+
+
+
+为什么要看不起咩咩，虽然咩咩是个人势，但是咩咩有环mea圈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 172#       发表于 2020-2-18 10:54
+
+
+
+
+看着看着就变成对线贴了 有那味了
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 173#       发表于 2020-2-18 10:55
+
+
+
+
+你说不行那就不行，这么多楼天狗能不能具体说出咩咩的能力比亏强在哪，虚心请教<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 174#       发表于 2020-2-18 10:55
+
+
+
+
+你要说性经验，那当然比不了，你想想你亏皇要用换营业对象的方法换男人那男人怕是手都没摸上就已经被用完甩了，倒不如说不知道用过多少工具人才练就了这一身甩人的好本事吧
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 175#       发表于 2020-2-18 10:56
+
+
+
+
+有一说一，五岁营业和三十七岁营业哪个更高明
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 176#       发表于 2020-2-18 11:00
+
+
+
+
+meaqua大亏占了四个字母，但meaqua楼全是天狗，这或许也是咩咩的能力表现吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 暗心舞踏|-1|在s1寻求meaqua是否搞错了什么|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 177#       发表于 2020-2-18 11:05
+
+
+
+
+你心中有天狗，所以看谁都是天狗（确信）。就单这几页亏师傅的人气还是强啊👍
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 178#       发表于 2020-2-18 11:06
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-18 11:07 编辑 
+
+有一说一，阿咩可能真就性经验也没夸哥丰富？毕竟谁也不是在ktv卡座接受的性教育哦。
+本来还不想说话那么难听的，可总有傻逼过来送马
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 179#       发表于 2020-2-18 11:06
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-2-18 11:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这钓鱼楼终于完成体了，都是仿佛被时代抛弃的人拿着远古车轱辘不停喷粪
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 180#       发表于 2020-2-18 11:07
+
+
+
+
+圣夸皇比起三字母当然强得多了，毕竟能不止一次忽悠三字母去怼自己的天狗，禁止反对圣皇；自己鸽了合唱还能让三字母给自己站队，把对面拉黑；在三字母最穷的时候能够跳脸并留下圣经，让一堆crew发觉三字母的罪大恶极；在三字母差点没了的时候，不是在高兴地打游戏冲分，就是在收割对面的财布。圣皇，永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1|贴贴|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 181#       发表于 2020-2-18 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448564&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 10:10</a>
+她什么能力比挑染怪强？性经验吗？那确实
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+大亏年纪比咩大一点，我是认为大亏性经验要多一点的
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  镝木林檎  
+##### 182#       发表于 2020-2-18 11:10
+
+
+
+
+什么，这楼不是anti楼么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 183#       发表于 2020-2-18 11:11
+
+
+
+
+湊阿库娅最强!!!湊阿库娅最强!!!湊阿库娅最强!!!<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 184#       发表于 2020-2-18 11:12
+
+
+
+
+都这么久了天狗还是没有三板斧之外的对线方式啊，我就想知道咩咩什么能力比大亏强啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 185#       发表于 2020-2-18 11:12
+
+
+
+ 本帖最后由 3353764798 于 2020-2-18 11:18 编辑 
+
+苹果小姐那传说中的经纪人男朋友是真是假也翻不出来
+
+咩咩又和男人同居又是给人连麦看腿  我觉得还是咩咩经验丰富<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+syl  
+
+yysy 箱推那送订阅同接福利基本只有后来的能吃到吧  杏一二期扶不起来的不也在那吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 186#       发表于 2020-2-18 11:13
+
+
+
+
+哪里都不如啊。
+
+无论几岁人设都比不过社恐和恐男人设。而且还是非常神奇的网络社恐和恐男。
+
+还必须像六脉神剑一样，时灵时不灵才行。
+
+谁同接高，那就社恐不了，整天想一起玩挂在嘴边。同接一低，那就不提了，就社恐了。
+
+前世和男性网联语音视频毫无问题，今生仿佛从出生就没见过男人。
+
+恐男但是不恐男性阿宅，恐怕作为她粉丝的男性阿宅和正常男性缺了点什么。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 187#       发表于 2020-2-18 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46448696&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 10:27</a>
+我不反对你对挑染怪的评价，但有能力的三字母小姐还被挑染怪三倍杀，确实呢
+
+  -- 来自 有消息提醒的 Stage ...</blockquote>
+那什么举一个你木口的例子，一年前船长还是同接个位数的个人势呢，现在进了木口成了皇。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剩下的你自己想
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 188#       发表于 2020-2-18 11:15
+
+
+
+
+一边是V界圣皇Holo扛把子SC天王，一边是十八线个人势snp小主播，求别拉踩了555
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 189#       发表于 2020-2-18 11:15
+
+
+
+
+可能是萌萌crew少根鸡掰吧，我就不一样了，我很直球，我就想透她
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 190#       发表于 2020-2-18 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449027&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:12</a>
+都这么久了天狗还是没有三板斧之外的对线方式啊，我就想知道咩咩什么能力比大亏强啊
+
+  -- 来自 有 ...</blockquote>
+拍着你的胸口想，大亏的杂谈有趣么？
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 191#       发表于 2020-2-18 11:16
+
+
+
+
+挚友党不请自来
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 192#       发表于 2020-2-18 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449051&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-02-18 11:14:52</a>
+那什么举一个你木口的例子，一年前船长还是同接个位数的个人势呢，现在进了木口成了皇。 v2.2.0.1 ...</blockquote>那你mea姐为什么不能进呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 193#       发表于 2020-2-18 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449028&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-18 11:12</a>
+苹果小姐那传说中的经纪人男朋友是真是假也翻不出来
+
+咩咩又和男人同居又是给人连麦看腿  我觉得还是咩咩经 ...</blockquote>
+mea只能说是明着泡，但终归还是阿夸暗着色，我觉得还是夸皇有经验。
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 194#       发表于 2020-2-18 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449060&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-02-18 11:16:18</a>
+拍着你的胸口想，大亏的杂谈有趣么？
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的  v2.2.0.1 ...</blockquote>不是说了吗，我不反对他对aqua的评价，但我不认同三字母有能力
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 195#       发表于 2020-2-18 11:19
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-18 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449065&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:16</a>
+那你mea姐为什么不能进呢
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+没进收入就这么高，去了岂不是给企业送更多的钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">进了你企业就好了？说不定天天被经纪人透呢。
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 196#       发表于 2020-2-18 11:19
+
+
+
+
+想透透不到就又开始人身攻击别人粉丝了，三字母小姐的粉丝也太有那味了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 197#       发表于 2020-2-18 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449083&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-02-18 11:19:04</a>
+没进收入就这么高，去了岂不是给企业送更多的钱进了你企业就好了，说不定天天被经纪人透呢。 ...</blockquote>确实嗷<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 198#       发表于 2020-2-18 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449065&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:16</a>
+那你mea姐为什么不能进呢
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+进了干什么？现在也不是没钱，也有一定粉丝，也不用被经纪人骚扰，也不用被企业提成，也不用烦恼社内关系，想什么时候播什么时候播，不爽么？比起那些数字订阅和同接，我觉得播的爽比较重要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 199#       发表于 2020-2-18 11:20
+
+
+
+
+为什么天狗一直在黑屁crew和大亏啊？mea和auqa不是最好的朋友吗？都不要吵了，天狗和crew也应该友好相处一起贴贴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 200#       发表于 2020-2-18 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449090&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:19</a>
+想透透不到就又开始人身攻击别人粉丝了，三字母小姐的粉丝也太有那味了
+
+  -- 来自 能看大图的 Stage1官方  ...</blockquote>
+你不是还天狗长天狗短的，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">乐色最多是一样乐色，没什么差别。
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 201#       发表于 2020-2-18 11:22
+
+
+
+
+日本直播水平太菜了，当然一大堆德不配位的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你举个德能配位的例子来呗
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 202#       发表于 2020-2-18 11:22
+
+
+
+
+明明是两个人的cp楼，结果点进来你们都在聊夸，还不忘踩一脚咩，咩咩有你们这样粉，真的好可怜😩
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 203#       发表于 2020-2-18 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449101&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-02-18 11:21:13</a>
+你不是还天狗长天狗短的，乐色最多是一样乐色，没什么差别。</blockquote>天狗不是mea小姐的粉丝自称吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 204#       发表于 2020-2-18 11:22
+
+
+
+
+咩咩进企业也会被经纪人透吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 205#       发表于 2020-2-18 11:23
+
+
+
+
+呜呜呜，说明天狗永远离不开minato桑
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 206#       发表于 2020-2-18 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449113&amp;ptid=1914314" target="_blank">whbstc4545 发表于 2020-2-18 11:22</a>
+日本直播水平太菜了，当然一大堆德不配位的那你举个德能配位的例子来呗 ...</blockquote>
+我觉得这样还是单推yyut比较好。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| whbstc4545| + 1|粪圣，永远滴神|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 207#       发表于 2020-2-18 11:23
+
+
+
+
+太没乐子了，这人一股心智不成熟的小孩子味，能换一条🐠吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 208#       发表于 2020-2-18 11:24
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-18 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449121&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-2-18 11:22</a>
+咩咩进企业也会被经纪人透吗</blockquote>
+如果你默认所有vtb进了企业就会被透的话，那当然会。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 209#       发表于 2020-2-18 11:25
+
+
+
+
+不要再传播冒菜文化啦kora
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 210#       发表于 2020-2-18 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449074&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:17</a>
+不是说了吗，我不反对他对aqua的评价，但我不认同三字母有能力
+
+  -- 来自 有消息提醒的 Stage1官方 Androi ...</blockquote>
+谁要你认同啊，特地翻了翻这个楼，说mea有能力强你在153首先提出来的，之前没人说啊。明明是你下意识的认为mea有能力，可是你又不认同。所以特地说出来挑话题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 211#       发表于 2020-2-18 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449074&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:17</a>
+不是说了吗，我不反对他对aqua的评价，但我不认同三字母有能力
+
+  -- 来自 有消息提醒的 Stage1官方 Androi ...</blockquote>
+在一个两人的对线楼里提出“我”觉得不行，那坏了，恁算什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 212#       发表于 2020-2-18 11:27
+
+
+
+
+还有，我真不是大亏粉，社恐我吃不下，我单纯就想知道三字母小姐什么能力比大亏强，但我也确实没想到这样就刺激到了mea小姐的粉了，我以为都是渔夫，说话没注意，我的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仙岳病患  
+##### 213#       发表于 2020-2-18 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拱火和吹逼能力都不如昨天的黄哥
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 214#       发表于 2020-2-18 11:28
+
+
+
+
+“我只是喜欢观察人类”
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 215#       发表于 2020-2-18 11:28
+
+
+
+
+真有人在屎坑互相扔屎啊，还全是纯jb意淫，水平太低再也不来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 216#       发表于 2020-2-18 11:29
+
+
+
+
+草，你们跟他整这些干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+为啥有能力，赚这么多钱就是有能力啊，昨天都交税交到哭了，他觉得啥有屁用
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 217#       发表于 2020-2-18 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449162&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:27</a>
+还有，我真不是大亏粉，社恐我吃不下，我单纯就想知道三字母小姐什么能力比大亏强，但我也确实没想到这样就 ...</blockquote>
+关键是一开始没人说mea能力比大亏强啊，你先起的头，第二次还嘲讽说就是说不出来哪里比较强。我本来不想说的，看你都提了两次了，勉强回答你喽。杂谈能力确实不大亏强，不过你不是大亏粉，可能不知道大亏杂谈有多弱吧。
+其实你钓鱼应该说mea比大亏弱在哪里，这里老哥可乐意回答了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 218#       发表于 2020-2-18 11:31
+
+
+
+
+刚才说完坏话了，现在说点好的👌
+aqua身体很色。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 219#       发表于 2020-2-18 11:34
+
+
+
+
+为什么要直球钓鱼啊，骂管人德不配位不是v综的活儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 220#       发表于 2020-2-18 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449203&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-02-18 11:31:07</a>
+关键是一开始没人说mea能力比大亏强啊，你先起的头，第二次还嘲讽说就是说不出来哪里比较强。我本来不想 ...</blockquote>没人说？151不算人？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SNOWIMEA| + 1|刚刚吃饭去了，回复晚了，楼下都说过了，帮.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 221#       发表于 2020-2-18 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449267&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:36</a>
+没人说？151不算人？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+u1s1，这个真不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这算人身攻击吗，应该也不算吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 222#       发表于 2020-2-18 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449267&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-02-18 11:36:49</a>
+没人说？151不算人？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不算
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雀斑  
+##### 223#       发表于 2020-2-18 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449275&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-02-18 11:37:46</a>
+u1s1，这个真不算</blockquote>那我的错，我道歉<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 224#       发表于 2020-2-18 11:39
+
+
+
+<blockquote>雀斑 发表于 2020-2-18 11:36
+没人说？151不算人？
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+wwwwww
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 225#       发表于 2020-2-18 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449267&amp;ptid=1914314" target="_blank">雀斑 发表于 2020-2-18 11:36</a>
+没人说？151不算人？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+不过看了这么多回复之后，我也开始觉得mea能力比大亏强了
+明明不喜欢这种跟隔壁斗歌力一样的东西的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 226#       发表于 2020-2-18 11:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我得人权呢。
+syl，我觉得我说的也没错啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 227#       发表于 2020-2-18 11:42
+
+
+
+
+y1s1，斗硬实力第一这种东西还不如斗同接斗订阅（）
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 228#       发表于 2020-2-18 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449320&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-18 11:42</a>
+
+y1s1，斗硬实力第一这种东西还不如斗同接斗订阅（）</blockquote>
+你想咩咩死？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 229#       发表于 2020-2-18 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449320&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-18 11:42</a>
+y1s1，斗硬实力第一这种东西还不如斗同接斗订阅（）</blockquote>
+yuyu酱，真正滴神<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 230#       发表于 2020-2-18 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449320&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-18 11:42</a>
+y1s1，斗硬实力第一这种东西还不如斗同接斗订阅（）</blockquote>
+那咩咩不是被完爆，连吸金能力都不如大亏
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 231#       发表于 2020-2-18 11:43
+
+
+
+<blockquote>age45 发表于 2020-2-18 11:22
+明明是两个人的cp楼，结果点进来你们都在聊夸，还不忘踩一脚咩，咩咩有你们这样粉，真的好可怜😩 ...</blockquote>
+等等，不是所有的meaqua楼都是捧夸踩咩吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 232#       发表于 2020-2-18 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449335&amp;ptid=1914314" target="_blank">jhouo8989 发表于 2020-2-18 11:43</a>
+
+那咩咩不是被完爆，连吸金能力都不如大亏</blockquote>
+别闹 吸金能力不是吊着大亏打
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 233#       发表于 2020-2-18 11:45
+
+
+
+
+别闹，大亏人家404 b站 SC 同接订阅多线开花，咩咩哪什么比<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 234#       发表于 2020-2-18 11:46
+
+
+
+
+大就是好，多就是美
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 235#       发表于 2020-2-18 11:48
+
+
+
+
+硬实力第一不敌草台班子
+ame牛逼
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 236#       发表于 2020-2-18 11:48
+
+
+
+
+我寻思推vtb也不是推数字啊，要是数字好看就好，我们不如去推龙皇
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 237#       发表于 2020-2-18 11:52
+
+
+
+
+vtb不是0和1吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 为什么不能推数字
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 238#       发表于 2020-2-18 11:53
+
+
+
+
+🐲皇nb！
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 239#       发表于 2020-2-18 11:56
+
+
+
+
+一闪人都闪没了害搁这硬实力第一呢，不如说说当初A皇和M皇是谁带谁
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 240#       发表于 2020-2-18 11:58
+
+
+
+
+大亏2019年sc超第二名葛叶一千万，能把你咩秒上天
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 241#       发表于 2020-2-18 12:00
+
+
+
+
+人还在丁忧呢，crew都不积点口德，不愧是亏皇的粉丝，亏皇教导有方啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 242#       发表于 2020-2-18 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449467&amp;ptid=1914314" target="_blank">dorasir 发表于 2020-2-18 11:58</a>
+
+大亏2019年sc超第二名葛叶一千万，能把你咩秒上天</blockquote>
+算上批站啊  冲国女王捞钱如喝水 秒毛<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 243#       发表于 2020-2-18 12:03
+
+
+
+
+太草了，我说怎么m楼不动了，暗黑贴贴人找到了新家
+
+
+
+
+
+
+
+-----
+
+####  黑炎.  
+##### 244#       发表于 2020-2-18 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449492&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-18 12:01</a>
+
+算上批站啊  冲国女王捞钱如喝水 秒毛</blockquote>
+虽然没有具体数字，但aquaB站数据也不差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，两边加起来应该不会打不过mea
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 245#       发表于 2020-2-18 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德，怎么0202年了还是这套车轱辘，装路人钓鱼能换个新鲜点的鱼饵不
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 246#       发表于 2020-2-18 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449515&amp;ptid=1914314" target="_blank">黑炎. 发表于 2020-2-18 12:04</a>
+虽然没有具体数字，但aquaB站数据也不差啊，两边加起来应该不会打不过mea ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一场bls，足够吃半年
+不过现在数据膨胀了，应该也能顶两个月
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 247#       发表于 2020-2-18 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449515&amp;ptid=1914314" target="_blank">黑炎. 发表于 2020-2-18 12:04</a>
+
+虽然没有具体数字，但aquaB站数据也不差啊，两边加起来应该不会打不过mea ...</blockquote>
+建议科学对线，数字见分晓。
+
+以前v综有人估算过大亏收入，把mea的收入也估算一下
+
+
+
+
+
+                                         
