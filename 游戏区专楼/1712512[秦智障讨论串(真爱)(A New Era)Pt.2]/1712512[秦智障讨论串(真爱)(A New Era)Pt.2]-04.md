@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-15 12:32** 
+> ## **本文件最后更新于2020-02-18 18:13** 
 
 
 
@@ -5203,7 +5203,7 @@ katana zero挺好的，还可以看阿川丢人
 
 
 
-<img src="http://cc.fp.ps.netease.com/file/5ce172a87f9d2afde8d606549zSzzhZz02" id="aimg_TADXX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://cc.fp.ps.netease.com/file/5ce172a87f9d2afde8d606549zSzzhZz02" id="aimg_rQ0y0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9611,7 +9611,7 @@ GOW手柄还能辅助瞄准，键鼠完全没优化。我现在玩TPS都是手�
  本帖最后由 #@qqqy 于 2019-7-25 01:33 编辑 
 
 互联网的世界又少了一个粪坑
-“聚是一坨屎，散是满天蛆”[f:217]
+“聚是一坨屎，散是满天蛆”<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
 
@@ -11165,7 +11165,7 @@ TM门房才是真正的土味挖掘机
  本帖最后由 saevey 于 2019-8-10 23:03 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44866143&amp;ptid=1712512" target="_blank">我要写个惨字 发表于 2019-8-10 22:27</a>
 好像没啥关系，门房上A岛，芦苇是A岛的看板娘。</blockquote>
-有一次我在a站看到有人问芦苇的普罗丢瑟是谁时一个芦苇的粉丝说“芦苇的普罗丢瑟的话，门房子或ATM吧”[f:220]
+有一次我在a站看到有人问芦苇的普罗丢瑟是谁时一个芦苇的粉丝说“芦苇的普罗丢瑟的话，门房子或ATM吧”<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
 
@@ -12541,7 +12541,7 @@ pilpil国产管人
 
 
 
-三头事件装死到现在雷厉风行[a:018]
+三头事件装死到现在雷厉风行<img src="https://static.saraba1st.com/image/smiley/animal2017/018.png" referrerpolicy="no-referrer">
 
 
 
@@ -13470,8 +13470,7 @@ GMOD 梦回 2016 啊，连单调都在
 
 
 
-
-[f:220]谁拿的微冲？
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">谁拿的微冲？
 
 我拿的微冲
 
@@ -16841,7 +16840,7 @@ CC手机客户端的录播有弹幕</blockquote>
 
 
 
-<img src="http://cc.fp.ps.netease.com/file/5da9cf652786fd35306b676ahu5DcaIR02" id="aimg_dus6R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://cc.fp.ps.netease.com/file/5da9cf652786fd35306b676ahu5DcaIR02" id="aimg_ht0uk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 今晚品shi唯一的收获就是弹幕里这张**
@@ -18122,7 +18121,7 @@ QGN:0分
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45252284&amp;ptid=1712512" target="_blank">btts 发表于 2019-10-19 20:40</a>
 
 “牧场物语终于发货了，摸一摸等待newgame”这粪游真给小秦整累了，所以逆转也要不存在了吗 ...</blockquote>
-[f:212]毕竟御剑也是“剑”呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">毕竟御剑也是“剑”呢
 
 
 要不是有大圣这坨屎横叉过来，说不定今天都能看到小秦开始吐槽法庭喝咖啡了，气气气
@@ -18188,8 +18187,7 @@ QGN:0分
 
 
 
-
-[f:212]唉，干脆自己去打逆转3了，但是没打几句就忍不住开始脑补小秦会怎么吐槽……到底是谁给韦天那个游戏码的好怒啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">唉，干脆自己去打逆转3了，但是没打几句就忍不住开始脑补小秦会怎么吐槽……到底是谁给韦天那个游戏码的好怒啊
 
 
 
@@ -20474,7 +20472,7 @@ b站录像里就有啊
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45324105&amp;ptid=1712512" target="_blank">燃烧的石头 发表于 2019-10-27 18:23</a>
 
 他说这个月时间不够了，下个月把逆转3播完</blockquote>
-下个月开幕鬼屋，然后PC大表哥，不知不觉就可以搁浅了……剑？不存在的[f:213]
+下个月开幕鬼屋，然后PC大表哥，不知不觉就可以搁浅了……剑？不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
 
 
