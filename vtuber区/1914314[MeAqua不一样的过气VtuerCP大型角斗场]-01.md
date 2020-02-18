@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-18 00:10** 
+> ## **本文件最后更新于2020-02-18 10:09** 
 
 
 
@@ -2242,4 +2242,447 @@ nobi呀 这里不适合你</blockquote>
 
 
 
-                                             
+
+
+-----
+
+####  缤纷雪  
+##### 128#       发表于 2020-2-18 02:06
+
+
+
+
+poppy那个号，playstv，opgg，明明留下了这么多东西，真的百合身边会留着这些轻浮的男人？第一波人到底是怎么挖的呢。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  冰镇西瓜大  
+##### 129#       发表于 2020-2-18 02:23
+
+
+
+
+我来了！！！！！
+ 来晚了！！！！！
+现在是要开始哭吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 130#       发表于 2020-2-18 02:26
+
+
+
+<blockquote>诶呦我去这是哪 发表于 2020-2-17 23:22
+你们还挺怪的，现实中真女同估计这楼里没几个真愿意看的。
+
+俩纸片人贴贴本来就该属于轻百合范畴，俩人是闺 ...</blockquote>
+就是啊，轻百合才是最适合最广大阿宅群体的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 131#       发表于 2020-2-18 02:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哭有什么用，哭了meaaqua就能联动？
+你们倒是可以给夸哥上谏啊，千字血书meaaqua联动。
+syl剑子仙迹绝笔跟我应无骞有什么关系
+再syl,阿咩现在真的好甜。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 132#       发表于 2020-2-18 02:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46445344&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-17 22:14</a>
+
+有一说一，平心而论，我现在也还没有多么讨厌夸哥就是了，大半年前的我主要还是因为寻得真物而发现真物是假 ...</blockquote>
+不是，你搞搞清楚，那些人是爱苹党，在苹果已死的前提下，本来就只是没几天寿命的残党，最后他们也只是阳光下的白雪逐渐消亡了而已……
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 133#       发表于 2020-2-18 02:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447176&amp;ptid=1914314" target="_blank">蒹葭公子 发表于 2020-2-18 02:29</a>
+不是，你搞搞清楚，那些人是爱苹党，在苹果已死的前提下，本来就只是没几天寿命的残党，最后他们也只是阳 ...</blockquote>
+我寻思他们挖的也不是很准啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 134#       发表于 2020-2-18 02:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447191&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-18 02:32</a>
+
+我寻思他们挖的也不是很准啊</blockquote>
+我不想说逝者的坏话，爱苹党大概率就是emmmmmmmmm
+
+而且当时M楼根本就是病栋（其实现在也是），你难道没见过土6档病栋里一堆人发病的吗？我都见怪不怪了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 135#       发表于 2020-2-18 03:15
+
+
+
+
+其实前世那几个生放听过应该也能判断出这俩人真的只是单纯的关系好啊
+
+syl
+
+三字母为什么每次唱的特别好的时候都是半夜
+
+还是说半夜听歌容易误以为她唱得好？
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 136#       发表于 2020-2-18 03:16
+
+
+
+
+关系好不就是贴贴吗
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 137#       发表于 2020-2-18 03:17
+
+
+
+
+咋这楼还能一转真剑百合的？那我先来：
+
+“只要我和XXXX百合营业，中国人就会像垃圾一样涌过来”
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 138#       发表于 2020-2-18 03:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447341&amp;ptid=1914314" target="_blank">anen 发表于 2020-2-18 03:17</a>
+咋这楼还能一转真剑百合的？那我先来：
+
+“只要我和XXXX百合营业，中国人就会像垃圾一样涌过来” ...</blockquote>
+只要知道一个梗，玩梗小鬼就会像垃圾一样涌来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 139#       发表于 2020-2-18 03:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在贴吧玩不好吗，还不要五块钱
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 140#       发表于 2020-2-18 03:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447380&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-18 03:31</a>
+
+只要知道一个梗，玩梗小鬼就会像垃圾一样涌来</blockquote>
+只要有饵，鱼儿就会像垃圾一样涌过来
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 141#       发表于 2020-2-18 03:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447399&amp;ptid=1914314" target="_blank">anen 发表于 2020-2-18 03:37</a>
+只要有饵，鱼儿就会像垃圾一样涌过来</blockquote>
+只要有人回复，渔夫感就会像垃圾一样涌来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 142#       发表于 2020-2-18 03:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想看贴贴可以推特上写万字长文zqsg@夸哥啊，不知道夸哥会不会理你就是了
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 143#       发表于 2020-2-18 03:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447407&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-18 03:40</a>
+
+只要有人回复，渔夫感就会像垃圾一样涌来</blockquote>
+只要不断回复，这楼就会想垃圾一样不断延伸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 144#       发表于 2020-2-18 03:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447426&amp;ptid=1914314" target="_blank">anen 发表于 2020-2-18 03:52</a>
+只要不断回复，这楼就会想垃圾一样不断延伸</blockquote>
+这才是这个楼的真谛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 145#       发表于 2020-2-18 03:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447337&amp;ptid=1914314" target="_blank">诶呦我去这是哪 发表于 2020-2-18 03:15</a>
+
+其实前世那几个生放听过应该也能判断出这俩人真的只是单纯的关系好啊
+
+syl
+
+三字母为什么每次唱的特别好的时 ...</blockquote>
+不，时差党也觉着今天好听
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 146#       发表于 2020-2-18 06:52
+
+
+
+
+我上钩了，但你🐎没了，这一切，值得吗？
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 147#       发表于 2020-2-18 07:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46447685&amp;ptid=1914314" target="_blank">JustW 发表于 2020-02-18 06:52:39</a>
+我上钩了，但你🐎没了，这一切，值得吗？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在这楼的，每一个是无辜的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 148#       发表于 2020-2-18 07:25
+
+
+
+
+原来你坛还有日语都不会的人，真的是太可怜了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 149#       发表于 2020-2-18 09:12
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-17 22:14
+有一说一，平心而论，我现在也还没有多么讨厌夸哥就是了，大半年前的我主要还是因为寻得真物而发现真物是假 ...</blockquote>
+吐了，【一个还在努力追赶另一个人的脚步】？我还以为看错了，能不恶心人吗
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 150#       发表于 2020-2-18 09:44
+
+
+
+
+什么追赶另一个的脚步  不是当挂件吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 151#       发表于 2020-2-18 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">我给说一句就玩尬了，我寻思阿咩肯定也很羡慕阿夸的高同接吧，也希望有能像企业势一样有给她帮忙的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 152#       发表于 2020-2-18 10:01
+
+
+
+
+好起来了，弱智程度越来越高了
+
+
+
+
+
+                                            
