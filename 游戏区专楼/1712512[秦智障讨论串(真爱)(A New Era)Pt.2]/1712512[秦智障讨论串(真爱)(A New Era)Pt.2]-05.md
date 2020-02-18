@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-18 18:14** 
+> ## **本文件最后更新于2020-02-19 00:05** 
 
 
 
@@ -16846,4 +16846,734 @@ vip位几个教练一通指导，好起来力</blockquote>
 
 
 
-                 
+
+
+-----
+
+####  lemon鱿鱼  
+##### 6966#       发表于 2020-2-18 18:54
+
+
+
+
+大老爹开始了！
+缺哥还回我弹幕了！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 6967#       发表于 2020-2-18 18:54
+
+
+
+
+詹爹连线<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6968#       发表于 2020-2-18 19:02
+
+
+
+
+刚才那防守......前天的结尾没看，大老爹发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6969#       发表于 2020-2-18 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453394&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-2-18 19:02</a>
+
+刚才那防守......前天的结尾没看，大老爹发生了什么</blockquote>
+【Quin】NBA2K20 内线后卫大老爹 直播录像【Part1】_
+[https://www.bilibili.com/video/av89665020](https://www.bilibili.com/video/av89665020)
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 6970#       发表于 2020-2-18 19:10
+
+
+
+
+大老爹回来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6971#       发表于 2020-2-18 19:25
+
+
+
+
+大老爹疯狂咒戴维斯不进<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质湖人内鬼
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 6972#       发表于 2020-2-18 19:25
+
+
+
+
+拼尽一切去罚球<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 6973#       发表于 2020-2-18 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453443&amp;ptid=1712512" target="_blank">107a 发表于 2020-2-18 19:08</a>
+
+【Quin】NBA2K20 内线后卫大老爹 直播录像【Part1】_
+
+https://www.bilibili.com/video/av89665020 ...</blockquote>
+天啊，25，A-，还有粉丝要签名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6974#       发表于 2020-2-18 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46453585&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-2-18 19:26</a>
+
+天啊，25，A-，还有粉丝要签名</blockquote>
+大老爹打爆库里，乔丹人称小老爹
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 6975#       发表于 2020-2-18 19:48
+
+
+
+
+vtb区也有专楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6976#       发表于 2020-2-18 20:04
+
+
+
+
+末节一分雨浇灭马刺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 6977#       发表于 2020-2-18 20:05
+
+
+
+
+马刺派的杀手来了
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 6978#       发表于 2020-2-18 20:06
+
+
+
+
+助理教练47
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 6979#       发表于 2020-2-18 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46446891&amp;ptid=1712512" target="_blank">lemon鱿鱼 发表于 2020-2-18 01:40</a>
+
+小秦这个破坏领主应该是恰饭了吧？这么积极
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+单纯的喜欢刷和拉霸
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 6980#       发表于 2020-2-18 20:36
+
+
+
+
+笑了，大老爹上一次场分差就拉近一些
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 6981#       发表于 2020-2-18 20:43
+
+
+
+
+大老爹，垃圾时间之王
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 6982#       发表于 2020-2-18 20:57
+
+
+
+
+节目效果爆炸
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 6983#       发表于 2020-2-18 21:25
+
+
+
+
+草，呐呐呐呐呐呐呐呐呐
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 6984#       发表于 2020-2-18 21:26
+
+
+
+
+呐呐呐呐呐
+我以为大老爹牛逼了之后节目效果就小了，现在给我笑得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ARE-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 6985#       发表于 2020-2-18 21:26
+
+
+
+
+二次元上篮 我TM笑炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 6986#       发表于 2020-2-18 21:27
+
+
+
+
+AI打得比狗头人好
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 6987#       发表于 2020-2-18 21:32
+
+
+
+
+佳得乐下药了，麻了麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 6988#       发表于 2020-2-18 21:44
+
+
+
+
+胡子胡子胡子……眉毛！
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 6989#       发表于 2020-2-18 21:45
+
+
+
+
+艹拍了个宣传照掉了1000粉
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 6990#       发表于 2020-2-18 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心佳得乐
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 6991#       发表于 2020-2-18 22:11
+
+
+
+
+弹幕爹派詹派演起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 6992#       发表于 2020-2-18 22:14
+
+
+
+
+洛杉矶风云<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6993#       发表于 2020-2-18 22:20
+
+
+
+
+77号wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6994#       发表于 2020-2-18 22:22
+
+
+
+
+明明得分很高但是看起来就是那么弱智，小秦和这个游戏是真的绝配
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 6995#       发表于 2020-2-18 22:24
+
+
+
+
+哈哈哈哈哈哈，77号我操你妈，没想到角色牛逼起来后还是这么爆笑
+
+
+
+
+
+
+
+-----
+
+####  迷路的石头  
+##### 6996#       发表于 2020-2-18 22:24
+
+
+
+ 本帖最后由 迷路的石头 于 2020-2-18 22:26 编辑 
+
+77号的妈妈的确好看
+
+
+<img src="https://img.saraba1st.com/forum/202002/18/222548r2l8g50jl8tg44hp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>u=675589033,228017056&amp;amp;fm=173&amp;amp;app=49&amp;amp;f=JPEG.jpg</strong> (48.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-18 22:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 6997#       发表于 2020-2-18 22:26
+
+
+
+
+怎么这么喜欢破坏之王
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6998#       发表于 2020-2-18 22:27
+
+
+
+
+高强度嘴臭对手、队友、自己乃至解说是挺累的活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 6999#       发表于 2020-2-18 22:29
+
+
+
+
+破坏之王wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  bureaucratic  
+##### 7000#       发表于 2020-2-18 22:30
+
+
+
+
+破坏之王到底塞了多少钱
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 7001#       发表于 2020-2-18 22:36
+
+
+
+
+唉算了算了 今天也看的过瘾了 明天再来吧
+
+
+
+
+
+
+
+-----
+
+####  406129465  
+##### 7002#       发表于 2020-2-18 22:52
+
+
+
+
+破坏之王wcnm，你毁了多少人的大老爹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 7003#       发表于 2020-2-18 22:57
+
+
+
+
+欢迎收看大老爹异界重生记
+
+
+
+
+
+
+
+-----
+
+####  zhhy  
+##### 7004#       发表于 2020-2-18 23:45
+
+
+
+
+这种游戏也未必塞钱了，当年小秦ff14不是玩得也挺投入的
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7005#       发表于 2020-2-18 23:50
+
+
+
+ 本帖最后由 音无奏 于 2020-2-18 23:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">主要是这种联机游戏必须绑定几个人一起玩，既然兄弟都想玩，现在又是特殊时间大家都难找乐子，那就陪着一起玩了呗（当然他自己玩肯定是觉得有乐子的，就是观众看着无聊……）
+
+
+
+
+
+
+
+-----
+
+####  fireadol  
+##### 7006#       发表于 2020-2-18 23:54
+
+
+
+
+这游戏还不如edf有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  shbz  
+##### 7007#       发表于 2020-2-18 23:58
+
+
+
+
+前面说塞钱的，谁塞啊
+
+
+
+
+
+                
