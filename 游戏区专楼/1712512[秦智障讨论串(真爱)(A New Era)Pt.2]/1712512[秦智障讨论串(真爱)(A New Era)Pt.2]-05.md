@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 00:05** 
+> ## **本文件最后更新于2020-02-19 22:06** 
 
 
 
@@ -17576,4 +17576,383 @@ AI打得比狗头人好
 
 
 
-                
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 7008#       发表于 2020-2-19 00:21
+
+
+
+
+阿秦刚才还说买了ns的大菠萝，就是口味变了吧
+
+
+
+
+
+
+
+-----
+
+####  duraa  
+##### 7009#       发表于 2020-2-19 01:15
+
+
+
+
+刷刷刷游戏有兄弟总是好玩的
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7010#       发表于 2020-2-19 17:58
+
+
+
+
+大老爹怎么播的越来越早
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 7011#       发表于 2020-2-19 18:07
+
+
+
+
+浑身冰凉大老爹
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 7012#       发表于 2020-2-19 18:28
+
+
+
+
+被射爆了，大老爹全锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  怀楠凌  
+##### 7013#       发表于 2020-2-19 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好久没看秦川直播了这2K也太有意思了
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 7014#       发表于 2020-2-19 18:41
+
+
+
+
+ 手 感 冰 凉 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 7015#       发表于 2020-2-19 18:53
+
+
+
+
+大老爹必被交易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 7016#       发表于 2020-2-19 18:59
+
+
+
+
+打回来了！
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 7017#       发表于 2020-2-19 19:11
+
+
+
+
+后场组合隆多大老爹
+
+湖人这外线太惨了
+
+
+
+
+
+
+
+-----
+
+####  ruojichong  
+##### 7018#       发表于 2020-2-19 19:16
+
+
+
+
+这无法空切，无法造犯规就没法得分啊
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7019#       发表于 2020-2-19 19:17
+
+
+
+
+少林篮球
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 7020#       发表于 2020-2-19 19:29
+
+
+
+
+破案了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+哈登人称小老爹
+
+
+
+
+
+
+
+-----
+
+####  莉洁莉特  
+##### 7021#       发表于 2020-2-19 20:09
+
+
+
+
+这局狠啊，看开局还以为拉胯，没想到赢40分。
+
+—— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7022#       发表于 2020-2-19 20:09
+
+
+
+
+造犯规把人罚下去了还行
+
+
+
+
+
+
+
+-----
+
+####  kensai_wang  
+##### 7023#       发表于 2020-2-19 20:37
+
+
+
+ 本帖最后由 kensai_wang 于 2020-2-19 20:39 编辑 
+
+大老爹单 qiang 匹马逆转局势！！
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 7024#       发表于 2020-2-19 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">浓爹贴贴笑死我了
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 7025#       发表于 2020-2-19 20:44
+
+
+
+
+皇帝：“该把詹姆斯交易了”
+
+小秦：“交易到哪儿啊，农贸市场吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7026#       发表于 2020-2-19 20:53
+
+
+
+
+A+，大老爹太猛了
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 7027#       发表于 2020-2-19 21:07
+
+
+
+
+大老爹就是审判长，懂了
+
+
+
+
+
+
+
+-----
+
+####  MumuQ  
+##### 7028#       发表于 2020-2-19 21:31
+
+
+
+
+景德镇之子大老爹
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 7029#       发表于 2020-2-19 21:35
+
+
+
+
+单场40分，大老爹，强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 7030#       发表于 2020-2-19 22:04
+
+
+
+
+大老爹被22狂克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+               
