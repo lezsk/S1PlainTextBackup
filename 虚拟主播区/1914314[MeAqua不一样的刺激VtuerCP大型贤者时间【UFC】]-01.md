@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 16:06** 
+> ## **本文件最后更新于2020-02-19 18:03** 
 
 
 
@@ -17287,4 +17287,730 @@ nns<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referre
 
 
 
-                  
+
+
+-----
+
+####  dfbfgd32  
+##### 938#       发表于 2020-2-19 16:12
+
+
+
+
+所以这楼本质是mea774qua楼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 939#       发表于 2020-2-19 17:08
+
+
+
+
+贴贴！贴贴！
+
+<img src="https://i.loli.net/2020/02/19/uwfpZ8Y2AIn3chv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 940#       发表于 2020-2-19 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">咩宝你变了，会蹭热度了，事业民昂首挺胸
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 941#       发表于 2020-2-19 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是真的，她们真好啊
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 942#       发表于 2020-2-19 17:12
+
+
+
+
+卡古拉小姐，你的回复只是短短的两个字么？<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 943#       发表于 2020-2-19 17:12
+
+
+
+
+她们真好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 944#       发表于 2020-2-19 17:13
+
+
+
+
+十八线小主播又过来贴金惹的贴贴壬一阵颅内高潮了，她真好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 945#       发表于 2020-2-19 17:14
+
+
+
+
+贴贴人过年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 946#       发表于 2020-2-19 17:15
+
+
+
+ 本帖最后由 3353764798 于 2020-2-19 17:16 编辑 
+<blockquote>
+</blockquote>贴贴的事 能叫蹭热度吗  作为一生的挚友关心朋友不是应该的吗  楼上这些一看就是没朋友的人 在这两个字中间我看到的只有两个人无暇的友谊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 947#       发表于 2020-2-19 17:17
+
+
+
+
+贴贴！！！！！！！！！！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 948#       发表于 2020-2-19 17:18
+
+
+
+
+洗脚婢又像一条蛆一样黏过来了，真恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 949#       发表于 2020-2-19 17:20
+
+
+
+
+话都被恁们天狗说光了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 950#       发表于 2020-2-19 17:20
+
+
+
+
+meaqua贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 951#       发表于 2020-2-19 17:23
+
+
+
+
+简简单单两个字就表现出了不想贴贴营业但是却是在现实中真的贴贴的那种若即若离感，meaqua贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 952#       发表于 2020-2-19 17:26
+
+
+
+
+想说的都被说完了，但还想留个名，就发个表情好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 953#       发表于 2020-2-19 17:32
+
+
+
+
+只说了两个字说明一直在恰独食，才会无话可说，
+
+直播扯谎两周没联系肯定是她害羞了。
+
+
+贴贴——痛失亲人者的暖心良方。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 954#       发表于 2020-2-19 17:33
+
+
+
+
+md还说你们不是贴贴人，梯子到期了没想到第一个看到这个回复是这楼
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 955#       发表于 2020-2-19 17:34
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-2-19 17:35 编辑 
+
+就是你们守护了我最爱的六字母吗？哭了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 956#       发表于 2020-2-19 17:36
+
+
+
+
+你们是要笑死我，本来还准备去看下回了啥的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 957#       发表于 2020-2-19 17:36
+
+
+
+
+呜呜呜，我哭力，我再也不骂三酱力<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 958#       发表于 2020-2-19 17:37
+
+
+
+
+草，怎么以这个理由送进去的
+
+我看就是鳗区羡慕管人区流量了
+
+今天没乐子看了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 959#       发表于 2020-2-19 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">szd
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 960#       发表于 2020-2-19 17:40
+
+
+
+
+答應我 麻醬 這次可以好好蹭一下大亏哥熱度嗎
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 961#       发表于 2020-2-19 17:41
+
+
+
+
+六字母，你好强大（指快破1000楼）
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 962#       发表于 2020-2-19 17:43
+
+
+
+
+角斗场这是怎么了！一下子索然无味起来
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 963#       发表于 2020-2-19 17:43
+
+
+
+
+s1的贴贴楼别有一番风味，大家都比mea懂贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 964#       发表于 2020-2-19 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46462875&amp;ptid=1914314" target="_blank">mishidexieyu 发表于 2020-2-19 17:43</a>
+角斗场这是怎么了！一下子索然无味起来</blockquote>
+看标题，贤者时间，在等cd呢
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 965#       发表于 2020-2-19 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46462879&amp;ptid=1914314" target="_blank">惑星 发表于 2020-2-19 17:43</a>
+
+s1的贴贴楼别有一番风味，大家都比mea懂贴贴</blockquote>
+mea懂的贴贴已经是旧版本的贴贴了，我们S1贴贴楼掌握着最新的情报
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 966#       发表于 2020-2-19 17:47
+
+
+
+
+樱花妹懂什么贴贴，也就图一乐，真要看贴贴还得看s1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 967#       发表于 2020-2-19 17:49
+
+
+
+
+mea没有在唱首献给朋友的歌，我觉得不够贴。
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 968#       发表于 2020-2-19 17:51
+
+
+
+
+mea酱不唱歌一定是害羞了   没事的   啊夸会来b站感谢自己最好的朋友的哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 969#       发表于 2020-2-19 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46462936&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-02-19 17:49:42</a>
+mea没有在唱首献给朋友的歌，我觉得不够贴。</blockquote>前不久不是唱了wshing吗，够贴了，够贴了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 970#       发表于 2020-2-19 17:52
+
+
+
+
+万众瞩目的咖啡厅第二季就要来了，希望不是尬聊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 971#       发表于 2020-2-19 17:53
+
+
+
+
+tmd 让我做麻早就在贴贴直播中露出跟凛玩双O龙的声音了，用得着现在你们在这无力黑屁？
+
+meaqua是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 972#       发表于 2020-2-19 17:53
+
+
+
+
+咖啡厅第二季可以直播拳皇吗？<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 973#       发表于 2020-2-19 17:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">mea粉真的讨厌夸的没几个，s1这帮人嘴上说的516b限吃人血馒头抢粉丝，其实当晚还是很感动的。他们只是讨厌部分crew。
+但是crew里面讨厌mea的一堆一堆，毕竟智障rp都能认为夸真的智障的一群人，对于mea的屑rp会有直接反感也是很正常的。AMT天天叫，都忘记了前年屑女仆是女仆们不是特指某一个女仆。
+由记某夸粉头子，现贴贴人名言：“mea那么屑，我真的不喜欢mea，我觉得她和夸不配。但是既然这是夸的选择，那么我就只能暂时相信她的选择了” 大概这个意思，基本也算说明了很多crew的心态了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|李在赣神魔？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 974#       发表于 2020-2-19 17:55
+
+
+
+
+三酱能不能像宫园薰那样演奏一曲小提琴呢
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 975#       发表于 2020-2-19 17:57
+
+
+
+
+少一点zqsg，多一点yygq
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 976#       发表于 2020-2-19 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 她们懂个P的贴贴
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 977#       发表于 2020-2-19 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea粉讨厌夸的没几个，据我观察全在s1力
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 978#       发表于 2020-2-19 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46462976&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-19 17:54</a>
+mea粉真的讨厌夸的没几个，s1这帮人嘴上说的516b限吃人血馒头抢粉丝，其实当晚还是很感动的。他们只 ...</blockquote>
+人血馒头是我发明的，谢谢，就在516当晚。
+中国唯一指定夸anti非我莫属。
+但是我支持她俩贴贴，比都给我总胶水粘起来。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 979#       发表于 2020-2-19 18:03
+
+
+
+
+我眼中有梁木，光是看着批站评论区就吐了，哪用的到crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
