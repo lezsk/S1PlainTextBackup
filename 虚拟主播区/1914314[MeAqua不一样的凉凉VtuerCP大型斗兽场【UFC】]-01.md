@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 22:08** 
+> ## **本文件最后更新于2020-02-20 00:05** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_DBwRb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_CE66I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_AooOO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_Cgff0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_rjZQ4" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_vdx53" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_xtXf3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_es3Dc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20640,10 +20640,11 @@ meaqua亡了
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| noaki|-1|感受了一下，还蛮贴的|
 | czhhws|-1|滚|
 
 
@@ -20653,4 +20654,317 @@ meaqua亡了
 
 
 
-            
+
+
+-----
+
+####  Oshino57  
+##### 1127#       发表于 2020-2-19 22:29
+
+
+
+ 本帖最后由 Oshino57 于 2020-2-19 22:31 编辑 
+
+Aqua 这个复活推的挑人机制实在迷惑，真就三线主播不配得到皇帝的回复吗
+
+（指柴腻斯特攻没有本土盘的 mea 和狗妈
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1128#       发表于 2020-2-19 22:31
+
+
+
+
+明明是不为中国的五斗米折腰，你们能不能不要这么双标
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1129#       发表于 2020-2-19 22:32
+
+
+
+
+日本的米和中国的米能一样吗（
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1130#       发表于 2020-2-19 22:36
+
+
+
+
+冲国buff最强的两个人都不舔？ 亏皇膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 1131#       发表于 2020-2-19 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46465499&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-19 22:36</a>
+
+冲国buff最强的两个人都不舔？ 亏皇膨胀了
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+本土大物在墙外贴，冲国大物在阿b贴，这就是 pro 精神罢
+
+努力不是蛮干，精力善用，自他共荣，所谓#天道酬勤#
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 1132#       发表于 2020-2-19 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46465613&amp;ptid=1914314" target="_blank">Oshino57 发表于 2020-2-19 22:49</a>
+
+本土大物在墙外贴，冲国大物在阿b贴，这就是 pro 精神罢
+
+努力不是蛮干，精力善用，自他共荣，所谓#天道酬 ...</blockquote>
+说得好，bilibili干杯
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1133#       发表于 2020-2-19 22:51
+
+
+
+
+看不懂吗，这是这个《位置》上才有的《情商》
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1134#       发表于 2020-2-19 22:53
+
+
+
+
+出警标题了， 怎么就凉凉了？！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1135#       发表于 2020-2-19 22:56
+
+
+
+ 本帖最后由 笋狐 于 2020-2-19 22:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒要康康这个标题将来还能翻出些什么花花来
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl，睿站动态评论区都已经把字幕组皮套点的赞当糖做心理安慰了，emmm...
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1136#       发表于 2020-2-19 23:00
+
+
+
+
+就为了这，必须找个东西当心里安慰就已经够有病的了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1137#       发表于 2020-2-19 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又一次深刻地体会到了被某些温暖大家庭入脑的奇葩杏箱推以“拆了皆切”罪名diss的咩姐到底有多冤
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1138#       发表于 2020-2-19 23:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/19/231302h2sa300ncn2adgkt.png" referrerpolicy="no-referrer">
+
+
+<strong>O`766385O@DGNTW9)EGR7HJ.png</strong> (20.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-19 23:13 上传
+
+
+
+
+
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈，贴贴人真够好笑的呢
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1139#       发表于 2020-2-19 23:43
+
+
+
+
+牙缝里抠糖，是街角魔族不好看么？
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 1140#       发表于 2020-2-19 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">从以前虚空制糖的时候就已经失去控制了 多说又有什么用呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">失去理智的gachi和cp厨大抵都是这样的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1141#       发表于 2020-2-19 23:55
+
+
+
+
+这已经进入自我强化的循环了吧
+
+
+如果从社群里被踹出去还有恢复理智的可能
+
+
+当然比真疯子更麻烦的或许还是浅度小鬼……你也不知道他们什么时候会忘掉这个梗（专注于新梗不代表老梗他们不会继续乱刷）
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1142#       发表于 2020-2-19 23:58
+
+
+
+
+你楼crew和天狗要是能齐心合力把这罪恶的链接斩断多好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1143#       发表于 2020-2-20 00:02
+
+
+
+
+我看不行，因为不光是贴贴人在踩一捧一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+最好也就互不相见了吧
+
+
+
+
+
+           
