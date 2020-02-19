@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 22:06** 
+> ## **本文件最后更新于2020-02-20 04:04** 
 
 
 
@@ -17955,4 +17955,358 @@ A+，大老爹太猛了
 
 
 
-               
+
+
+-----
+
+####  怀楠凌  
+##### 7031#       发表于 2020-2-19 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大老爹下场前分数差不多，结果上场的时候落后22分
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7032#       发表于 2020-2-19 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22号 一生之敌
+
+
+
+
+
+
+
+-----
+
+####  fireadol  
+##### 7033#       发表于 2020-2-19 22:32
+
+
+
+
+草神特么胡子全是兴奋剂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bad_alloc  
+##### 7034#       发表于 2020-2-19 22:56
+
+
+
+
+詹姆斯演起来了
+
+
+
+
+
+
+
+-----
+
+####  新庄運切  
+##### 7035#       发表于 2020-2-19 23:04
+
+
+
+
+最佳第六人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7036#       发表于 2020-2-19 23:06
+
+
+
+
+我一点都不懂篮球,但我感觉大老爹像内鬼...
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 7037#       发表于 2020-2-19 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着大老爹一路变强，笑得不行
+
+
+
+
+
+
+
+-----
+
+####  新庄運切  
+##### 7038#       发表于 2020-2-19 23:22
+
+
+
+
+气急败坏疯狂嘴臭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kazepollar  
+##### 7039#       发表于 2020-2-19 23:23
+
+
+
+
+怪物公司草草草<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 7040#       发表于 2020-2-19 23:25
+
+
+
+
+大老爹遇到瓶颈，该训练学走位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 7041#       发表于 2020-2-19 23:37
+
+
+
+
+#大老爹沉迷空接
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 7042#       发表于 2020-2-20 00:25
+
+
+
+
+大老爹被字母哥打到失去信心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 7043#       发表于 2020-2-20 00:32
+
+
+
+
+三分不投，中投不进，篮下被盖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 7044#       发表于 2020-2-20 00:32
+
+
+
+
+#大老爹退役之战
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7045#       发表于 2020-2-20 00:44
+
+
+
+
+这个真正的音乐广告怪出新高度
+
+
+
+
+
+
+
+-----
+
+####  格雷殿下  
+##### 7046#       发表于 2020-2-20 00:46
+
+
+
+
+#天道酬勤
+
+
+
+
+
+
+
+-----
+
+####  johan·liebert  
+##### 7047#       发表于 2020-2-20 00:46
+
+
+
+
+才发现他玩的是分卫，还以为是中锋呢
+
+
+
+
+
+
+
+-----
+
+####  逻辑自闭症  
+##### 7048#       发表于 2020-2-20 00:46
+
+
+
+
+广告鬼才
+
+
+
+
+
+
+
+-----
+
+####  -_-||  
+##### 7049#       发表于 2020-2-20 01:55
+
+
+
+
+大老爹辱胡建了
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7050#       发表于 2020-2-20 02:16
+
+
+
+
+广告商估计要顾杀手杀了大老爹
+
+
+
+
+
+
+
+-----
+
+####  kiralzb  
+##### 7051#       发表于 2020-2-20 02:16
+
+
+
+
+夜光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7052#       发表于 2020-2-20 02:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看好字母哥双杀大老爹
+
+
+
+
+
+              

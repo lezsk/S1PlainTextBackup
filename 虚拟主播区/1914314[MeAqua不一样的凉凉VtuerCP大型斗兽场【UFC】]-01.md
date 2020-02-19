@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 00:05** 
+> ## **本文件最后更新于2020-02-20 04:06** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_CE66I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_OqABc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_Cgff0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_NDzZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_vdx53" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_LEJ43" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_es3Dc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_geUs2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20967,4 +20967,574 @@ Aqua 这个复活推的挑人机制实在迷惑，真就三线主播不配得到
 
 
 
-           
+
+
+-----
+
+####  落雪无痕  
+##### 1144#       发表于 2020-2-20 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46465832&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-19 23:13</a>
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈，贴贴人真够好笑的呢</blockquote>
+可以，大晚上把我逗笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1145#       发表于 2020-2-20 00:11
+
+
+
+
+妈耶，在六字母人整的活儿已经比小风儿还烂的现在，居然还能有这么个楼。
+
+
+今天六学可有最新进展，他们开始用茶叶梗判断贴不贴了吗？
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 1146#       发表于 2020-2-20 00:11
+
+
+
+
+你们天天论auqe的不是，但却没有看到mea在aquq家中不幸的时候却依然播爆，这很能说明是哪边的问题吧？
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1147#       发表于 2020-2-20 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46466334&amp;ptid=1914314" target="_blank">age45 发表于 2020-02-20 00:11:46</a>
+你们天天论auqe的不是，但却没有看到mea在aquq家中不幸的时候却依然播爆，这很能说明是哪边的问题吧？ ...</blockquote>那肯定啊aqua酱害怕mea酱担心 不告诉她  让她好好直播  这糖真甜啊awsl<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1148#       发表于 2020-2-20 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感情您意思是mea也得跟着一块披麻戴孝？？？
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1149#       发表于 2020-2-20 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">45哥别钓了别钓了
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 1150#       发表于 2020-2-20 00:24
+
+
+
+
+meaqua这“超越友情爱情的羁绊”不值得一起披麻戴孝吗
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1151#       发表于 2020-2-20 00:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德，会来这楼的哪有什么纯良萌新，别钓了别钓了
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 1152#       发表于 2020-2-20 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46466467&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-2-20 00:27</a>
+
+玛德，会来这楼的哪有什么纯良萌新，别钓了别钓了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">也不是什么大事，反正嘛，弱智也好，当鱼也好，假装上钩也好，总是有乐子的
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1153#       发表于 2020-2-20 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要不拉窗帘，总会有萌新不小心点进来的
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1154#       发表于 2020-2-20 00:31
+
+
+
+
+06年的号处女贴在你楼交了，哪儿买的号啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1155#       发表于 2020-2-20 00:37
+
+
+
+
+mea竟然直播玩黑底白字，你也吃我咩人血馒头？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1156#       发表于 2020-2-20 00:42
+
+
+
+
+我亲眼见过的一起贴贴民幻灭还真的是性病那一期的，现实看到同传提到和朋友一起去lh就开始刷大亏，然后mea一转性病的时候就不说话了，第二天大彻大悟从此对连体婴深恶痛绝，笑死了，一朝顿悟
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1157#       发表于 2020-2-20 00:50
+
+
+
+
+提到lovehotel那期，merry桑之前在推上说她周围的朋友一个个都去当AO女优了，我当时就在想咩说的这个槽糕的朋友是不是也是merry桑的朋友之一，毕竟咩和merry桑也是一个圈子的。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1158#       发表于 2020-2-20 00:51
+
+
+
+
+绝了，GHS加大力度，贴贴人洗干净<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1159#       发表于 2020-2-20 00:57
+
+
+
+
+这里是meaqua贴贴楼，不喜欢meaqua的请出克<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 1160#       发表于 2020-2-20 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1161#       发表于 2020-2-20 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去掉粉丝滤镜，去掉自我感动和无端发散，只留下作为观众找乐子的本心和一点点巨魔的心理，一个崭新的暗黑贴贴人就将诞生（大忽悠腔）
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1162#       发表于 2020-2-20 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46466717&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-2-20 01:02</a>
+去掉粉丝滤镜，去掉自我感动和无端发散，只留下作为观众找乐子的本心和一点点巨魔的心理，一个崭新 ...</blockquote>
+一个mk2就诞生了。
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1163#       发表于 2020-2-20 01:12
+
+
+
+<blockquote>笋狐 发表于 2020-2-20 01:02
+去掉粉丝滤镜，去掉自我感动和无端发散，只留下作为观众找乐子的本心和一点点巨魔的心理，一个崭新 ...</blockquote>
+当贴贴人会被渐行渐远的现实打脸+喂屎(例如三小姐得了性病的朋友)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当个暗黑贴贴人可以在贴贴人被打脸的时候嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+当她们真的贴贴的时候还能一转从良跟风喊贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+今日开始做暗黑贴贴人！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 1164#       发表于 2020-2-20 01:46
+
+
+
+
+阿夸复活的推mea跟推不是没回嘛，感情已经破裂<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神楽めあ  
+##### 1165#       发表于 2020-2-20 01:56
+
+
+
+
+楼主这主楼内容怎么回事？直接引流到隔壁论坛？
+就不能好好写点正经内容吗？
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 1166#       发表于 2020-2-20 01:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">她们感情那么好，肯定是阿夸一看到mea回复之后就一通电话过去吃独食了
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">mea今天这么疯，肯定是因为久违的和阿夸说话了吧。这个直播肯定是为阿夸播的，阿夸应该在屏幕前偷笑吧
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1167#       发表于 2020-2-20 02:05
+
+
+
+
+世界上本不存在幻灭，不切实际的人多了，也就有了幻灭。
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1168#       发表于 2020-2-20 02:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">阿咩这么开心的下播了肯定是去和大亏打电话去了，贴贴！
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1169#       发表于 2020-2-20 02:12
+
+
+
+
+今天咩咩这么开心，一定是因为夸夸回归而且恰独食，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1170#       发表于 2020-2-20 02:17
+
+
+
+
+前略，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辛红辣椒杨永信  
+##### 1171#       发表于 2020-2-20 02:30
+
+
+
+
+终于爬完了，论暗黑还是各位比较强
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  发飙的水  
+##### 1172#       发表于 2020-2-20 02:36
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 1173#       发表于 2020-2-20 02:49
+
+
+
+
+希望也就都搁这聊了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+个人还是不希望两边打得头破血流
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1174#       发表于 2020-2-20 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467182&amp;ptid=1914314" target="_blank">czhhws 发表于 2020-02-20 02:49:23</a>
+希望也就都搁这聊了</blockquote>你也太看得起冲国dd了吧，还打起来，怕不是约中山公园吃烤肉
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 1175#       发表于 2020-2-20 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467186&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-02-20 02:50:36</a>
+你也太看得起冲国dd了吧，还打起来，怕不是约中山公园吃烤肉</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是指线下真人快打
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+总之不要扩大化就好了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 1176#       发表于 2020-2-20 03:12
+
+
+
+
+别钓了别钓了 给磕头了
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1177#       发表于 2020-2-20 03:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467200&amp;ptid=1914314" target="_blank">czhhws 发表于 2020-02-20 02:55:37</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扩什么大呢，也就在泥潭抱团取暖，换到nga还是B站里有一个算一个，早就点名挨ban账号了，就是泥潭，今天不也被ban了一个774贴贴
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+          
