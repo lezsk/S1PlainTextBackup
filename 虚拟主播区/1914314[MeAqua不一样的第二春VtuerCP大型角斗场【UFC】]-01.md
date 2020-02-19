@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 02:04** 
+> ## **本文件最后更新于2020-02-19 12:04** 
 
 
 
@@ -29,10 +29,11 @@
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| jojojo2| + 1|文艺复兴|
 | 胡桃丶| + 1|思路广|
 | やト|-1|做人,最紧要开心|
 
@@ -4576,10 +4577,11 @@ vtb不是0和1吗<img src="https://static.saraba1st.com/image/smiley/face2017/13
 
 
 
- 参与人数 5战斗力 +3
+ 参与人数 6战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| planetcd|-1|还没我想的多|
 | TioPlato| + 1|好评加鹅|
 | 追风小星星|-1|确实,那女人说的话都是真的|
 | Alphez| + 1|好评加鹅|
@@ -4901,10 +4903,11 @@ vtb不是0和1吗<img src="https://static.saraba1st.com/image/smiley/face2017/13
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| planetcd| + 1|就是来看菜的啊，下饭|
 | Oshino57| + 1|好评加鹅|
 
 
@@ -7835,6 +7838,25 @@ crew的大家快上啊，这里有个自称老天狗落单了，干掉他为亏�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|思路广|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -8409,6 +8431,25 @@ s1就指望着你楼流量拯救呢
 
 三小姐哪来的虚空黑料，都一字一句自个讲的我还用编？当然我这些黑料在各位眼里不算什么，毕竟狗吃屎也觉得香，爷吃得太多被撑到了。有个好法子，黑料再攒一攒或许可以让老天狗瓶皇给来个类似小英雄七宗罪的活玩玩，那位可早就看不惯你天狗饭圈了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|思路广|
+
+
+
+查看全部评分
 
 
 
@@ -10324,6 +10365,26 @@ mea一边被gachi写zqsg长文重拳出击，一边被黑最喜欢死宅，太�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|欢乐多|
+| lovcavil|-2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11644,6 +11705,26 @@ u1s1，你麻也是类似看人先看b的，可能他确实是个老天狗</bloc
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|思路广|
+| lovcavil|-2|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12358,6 +12439,26 @@ Clay自己承认就算石锤了吗，说不定只是他的rp</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|思路广|
+| lovcavil|-2|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12618,10 +12719,19 @@ syl当初病栋的各位，大有打了钱，我就参与进这对贴贴(我将�
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 11战斗力 -12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| thisisaspider|-1|难怪说话像裁，原来是裁gachi|
+| noaki|-1|凑个热闹|
+| 息衍|-1|思路广|
+| やト|-1|思路广|
+| 商博良|-1|思路广|
+| 时之虫|-1|思路广|
+| spring_VOV|-1|思路广|
+| 恐龙睡衣露水|-1|思路广|
+| lovcavil|-2|思路广|
 | planetcd|-1|这种地方没路人，做足功课别自嗨了.|
 | saybestty|-1|真的吗？|
 
@@ -12647,4 +12757,1389 @@ syl当初病栋的各位，大有打了钱，我就参与进这对贴贴(我将�
 
 
 
-                          
+
+
+-----
+
+####  framita  
+##### 693#       发表于 2020-2-19 02:19
+
+
+
+
+当时不是到处都是说想喷死阿裁但还是暂时别去惹他吗，怎么就变成对阿裁感恩戴德了。我们的世界线变了？
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 694#       发表于 2020-2-19 02:23
+
+
+
+
+脑瘫的脑回路跟人不一样的，别人喷他都能当做夸奖的，他这么理解，大家对阿裁也算是“感恩戴德？”
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 695#         楼主| 发表于 2020-2-19 02:27
+
+
+
+
+有一说一，天狗也不是虫群 能思维一致
+所以确实是有一部分意见是“裁种收到了爆料但选择通知mea让她自己解释，不应该集火怼他”这样子的
+而且也确实有人机翻去道歉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天狗欢乐多，回想起来真好玩
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 696#       发表于 2020-2-19 02:30
+
+
+
+
+话说这人的风格让我想起了草莓牛奶，简直一模一样。同一个人？
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 697#       发表于 2020-2-19 02:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这B说的是“挺多”，典型的混淆，通篇下来都是这套路，骗骗纯良还行
+
+
+若是他通篇自嗨 说得都把自己套进去了还以为很在理，那是真的LOW，这里真没路人
+
+
+
+
+
+
+
+-----
+
+####  灰色与青  
+##### 698#       发表于 2020-2-19 02:45
+
+
+
+
+这位774天狗的发言来看应该被516伤得不轻，因爱生恨可靠性90%吧
+
+
+
+
+
+
+
+-----
+
+####  nns774  
+##### 699#       发表于 2020-2-19 02:52
+
+
+
+
+裁狗字幕组不是还留着吗，自个去看看不就好了，“我替我的同胞给您道歉了”，那叫一个卑微啊，我哪敢编
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider|-1|想必就是你吧|
+| 息衍|-1||
+| やト|-1|思路广|
+| lovcavil|-2|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 700#       发表于 2020-2-19 02:56
+
+
+
+
+其实当初有人猜草莓牛奶是冒菜小号来着
+
+
+
+
+
+
+
+-----
+
+####  GRtime  
+##### 701#       发表于 2020-2-19 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46449738&amp;ptid=1914314" target="_blank">nns774 发表于 2020-02-18 12:25:47</a>
+我也很纳闷她都这样了还在饭盒里跟粉丝装处，难道真的是太磕碜或者774那玩意不行？ ...</blockquote>问你这句话一天了也没个准信，到底有没有呀
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nns774  
+##### 702#       发表于 2020-2-19 03:00
+
+
+
+
+通篇自嗨骗骗纯良可还行，我这一字一句都是有作证的好吗，要不咋能急得一位纯良天狗兄弟就进去了呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 703#       发表于 2020-2-19 03:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">省省吧，撑死和某wiki词条笔者差不多的水平，也就是jack那种暴脾气的选手会被这等弱智言论刺激到，
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 704#       发表于 2020-2-19 03:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">他实实在在的5元被你无中生🐴换了是你血赚，不过那人只是想喷你并不想看你说了什么屁话吧
+
+我姑且看了都是错漏互补，也算是谣言的本质了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 705#       发表于 2020-2-19 03:29
+
+
+
+
+这些弱智言论让我对人类的认知，知性能力产生了怀疑，呜呜呜，人类，你什么时候才能站起来，呜呜呜，我也被刺激到了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 706#       发表于 2020-2-19 03:41
+
+
+
+
+要我说也别拿516和774互抡了，她们一个在天道酬勤一个在找野男人才是不贴贴的原因，天道酬勤和拿男人整活可不比当初一起贴贴有前途，这是好事啊，她们都有光明的未来
+
+你要真喜欢她们贴贴就要喜欢她们不贴贴的现在，这样子是不是很有味道
+
+
+
+
+
+
+
+-----
+
+####  绿茶与猫  
+##### 707#       发表于 2020-2-19 04:00
+
+
+
+
+发病的建议看一遍利兹与青鸟，钓鱼的就算了，这里只有巨魔
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 708#       发表于 2020-2-19 06:54
+
+
+
+
+开了新区516774就能刷这么多楼，周年庆怎么办（
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 709#       发表于 2020-2-19 07:30
+
+
+
+
+当时确实有不少人感谢裁狗给三小姐一个自曝的机会 而不是他做视频讲出来  你们都忘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  jojojo2  
+##### 710#       发表于 2020-2-19 08:42
+
+
+
+
+确实，阿裁做视频可不会加入什么家长每月要10万这种扯淡的理由。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 711#       发表于 2020-2-19 09:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">516那一个小时录播你们也太熟了，倒背如流运用自如啊，比我楼下信基督的老哥对圣经还熟，怕不是无数个夜晚躲在被窝里一边抹泪一边咒骂着看了不知道多少遍了，这就是天狗吗.jpg
+
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 712#       发表于 2020-2-19 09:16
+
+
+
+
+时贴贴楼!!!<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> Meaqua是真的!!
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 713#       发表于 2020-2-19 09:24
+
+
+
+
+尼哥坛贴贴楼什么辣鸡流量，你楼秒了，贴贴正统在s1
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 714#       发表于 2020-2-19 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，祝带🔥玩的开心
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RiVeMo| + 1|欢迎回来|
+| 魔法使い2019| + 1|连你都被钓出来了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nns774  
+##### 715#       发表于 2020-2-19 09:40
+
+
+
+
+516当然看了好多遍，不过不是抹泪，而是看三小姐为了脱罪编个扯淡理由把亲爹妈给送了，乐得不行，看一次乐一次<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 -7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| oifaker|-1|这一切，值得吗|
+| noaki|-1|你把我也逗乐了|
+| SNOWIMEA| + 1|这就是对mea的爱么？太深沉了。.|
+| 木板春香|-1|缺德嘴|
+| 梦魂落叶|-1|思路广|
+| 愛繋璃まつり|-1||
+| 神楽mea|-1||
+| 商博良|-1|思路广|
+| やト|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 716#       发表于 2020-2-19 09:50
+
+
+
+
+怎么都在聊774 有男朋友也能出轨的嘛 出轨百合不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 717#       发表于 2020-2-19 09:50
+
+
+
+
+我不知道怎么委婉的告诉你们，这根本不是贴贴楼 只是一群傻逼在狂欢
+
+
+
+
+
+
+
+-----
+
+####  gggzh  
+##### 718#       发表于 2020-2-19 09:52
+
+
+
+
+大鱼吃小鱼 小鱼吃虾米
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 719#       发表于 2020-2-19 09:54
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-2-19 10:07 编辑 
+
+s1还玩贴贴，几岁了。v出道都要两年了，还非要靠个只完整了1年半的前世团体来强行贴贴不可取。
+
+信这个的不如去信snh，那个时间还长点
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 720#       发表于 2020-2-19 10:21
+
+
+
+
+新id和老id不同之处在于不懂对方的立场，反击会打在棉花上或者过度反击aoe到其他的人。
+
+s1是不管这种打滚人的，扣鹅加鹅也是无意义。举报就更搞笑了，本来就是丢垃圾的地方。
+
+觉得看的恶心可以屏蔽，觉得对方打滚的无趣可以不接话。
+
+不过也只有这种楼才会这样，因为meaqua这种玩意只存在过去和车轱辘里。
+
+抱着老料反复推敲里面的每个字和反复盯着发言寻找里面所有糖是一码货色。
+
+这种贴贴人的残渣搞笑就搞笑在这里。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 721#       发表于 2020-2-19 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46457821&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-19 09:01</a>
+
+516那一个小时录播你们也太熟了，倒背如流运用自如啊，比我楼下信基督的老哥对圣经还熟，怕不是无数 ...</blockquote>
+信基督的有几个看圣经的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 722#       发表于 2020-2-19 10:34
+
+
+
+
+打开小黑屋一个天狗一个crew，虽然meaqua已经不贴贴了，但天狗和crew还是贴贴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 723#       发表于 2020-2-19 10:35
+
+
+
+ 本帖最后由 小博禹 于 2020-2-19 11:11 编辑 
+
+不要这么苛刻吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">meauqa这对只看前年12月末到去年4月末这四个月的话真的很棒的，如果有新人的话，建议把这一段当做第一季，配合上300的咩夸楼，当作一个轻百合动画看
+12月之前的可以当作前传背景适当了解，这样看起来也会更甜。后面的就当烂尾了就行，反正很多动画续集扑街了也不影响人们吹捧第一季<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+以上不是给本楼的怨妇看的，如果真的有新人推荐去看下<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 724#       发表于 2020-2-19 10:40
+
+
+
+
+怨妇楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jojojo2  
+##### 725#       发表于 2020-2-19 10:41
+
+
+
+ 本帖最后由 jojojo2 于 2020-2-19 10:43 编辑 
+
+某人又开始启动多个小号重复扣鹅了，这就是”7年论坛管理经验“？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+息衍         
+
+やト         
+
+商博良
+
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 不管一下？
+
+
+
+
+
+
+
+-----
+
+####  RiVeMo  
+##### 726#       发表于 2020-2-19 10:41
+
+
+
+
+后面开始不就是现实主义大作了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+讲道理后面的剧情才展现了现实性还有人的本**
+
+不过放芳文社作品里这种转折得被喷出地球吧
+
+不适合萌萌人看的
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 727#       发表于 2020-2-19 10:42
+
+
+
+
+不是早说了这里是暗黑贴贴壬的楼了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+无非是把原本说在m楼的怪话换个地方讲<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 728#         楼主| 发表于 2020-2-19 10:42
+
+
+
+
+太好了，最热衷“推文敲字”和选择性立传的祥林嫂来了！
+贴贴楼又又又续上了！！！
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 729#       发表于 2020-2-19 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46458663&amp;ptid=1914314" target="_blank">jojojo2 发表于 2020-2-19 10:41</a>
+
+某人又开始启动多个小号重复扣鹅了，这就是”7年论坛管理经验“？
+
+息衍         
+
+やト         </blockquote>
+2020.2.18补充解释
+
+不当内容中的人身攻击指的是对论坛用户进行人身攻击，如果对其他用户发布的对V的负面评论不认可，请通过扣鹅、发帖挂人对线、内野申诉等方式进行处理。
+
+
+
+
+
+
+
+-----
+
+####  jojojo2  
+##### 730#       发表于 2020-2-19 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46458696&amp;ptid=1914314" target="_blank">aisakahammer 发表于 2020-2-19 10:44</a>
+
+2020.2.18补充解释
+
+不当内容中的人身攻击指的是对论坛用户进行人身攻击，如果对其他用户发布的对V的负面 ...</blockquote>
+喷了，这条能说明你开多个账号追着重复扣鹅的正当性？
+
+你开25个账号给自己赞同的加鹅，不赞同的扣鹅这里就可以从v版改名叫你的个人版了。
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 731#       发表于 2020-2-19 10:50
+
+
+
+
+我现在还蛮好奇在第一波车轱辘转完后，这楼还能讲什么的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+毕竟现在这两个人的关系连黑屁都只有车轱辘的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 732#       发表于 2020-2-19 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46458750&amp;ptid=1914314" target="_blank">梦魂落叶 发表于 2020-2-19 10:50</a>
+我现在还蛮好奇在第一波车轱辘转完后，这楼还能讲什么的
+毕竟现在这两个人的关系连黑屁都只有车轱辘 ...</blockquote>
+就因为没什么了，所以才一直说啊，你看这人从昨天开始一直翻来覆去那两句是不是处啦，516啦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 733#       发表于 2020-2-19 10:53
+
+
+
+
+本就相互放屁倒垃圾的地方，怎么还有人会觉得对方的屁更香，垃圾更棒？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 734#       发表于 2020-2-19 10:55
+
+
+
+
+倒垃圾每次也要倒不一样的啊，谁每天出门都倒一样的垃圾，来点新鲜的成么
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 735#       发表于 2020-2-19 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46458663&amp;ptid=1914314" target="_blank">jojojo2 发表于 2020-2-19 10:41</a>
+
+某人又开始启动多个小号重复扣鹅了，这就是”7年论坛管理经验“？
+
+息衍         
+
+やト         </blockquote>
+我没有权限看IP不知道谁是谁小号噢，建议您给他扣回去，不行那就请您举证然后去内野见嘛<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 736#         楼主| 发表于 2020-2-19 10:58
+
+
+
+
+那建议翻一下去年S1官博的狗叔证言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 737#       发表于 2020-2-19 11:03
+
+
+
+
+快继续啊，你楼再不续上，V区流量都快要被漫区超了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 738#       发表于 2020-2-19 11:10
+
+
+
+
+12-4月那第一季有啥好看的 老套的剧情
+5.16以后的第二季才是神作  <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 739#       发表于 2020-2-19 11:15
+
+
+
+
+wdnmd这楼就是一个粪坑，内容无聊不说，还很负能量<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 740#         楼主| 发表于 2020-2-19 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46458968&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-19 11:10</a>
+12-4月那第一季有啥好看的 老套的剧情
+5.16以后的第二季才是神作  </blockquote>
+复议
+清水萌豚番看腻了，还是扭曲的带劲！
+尤其是建筑王地下恋情、8.19含泪打完最后一炮（LoL）、最后咖啡厅重逢相敬如宾
+这种谁都知道漩涡涌动着 湖面上却波澜不惊的暗战，啊啊啊啊啊啊啊啊啊！！！！
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 741#       发表于 2020-2-19 11:25
+
+
+
+
+第二季是什么，citrus吗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 742#       发表于 2020-2-19 11:25
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-19 11:26 编辑 
+
+要是你推的cp居然两人中间还有一个男人，另外一个还是只想利用这个cp来吸金吸粉的绿茶，你肯定也会和这群人一样的。
+但是，我相信meaaqua会历尽劫波走到一块涩谷结婚的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  海鸟猫巢  
+##### 743#       发表于 2020-2-19 11:26
+
+
+
+
+说是车轱辘，但最能刺激天狗的不就是这些车轱辘吗，天狗总是装作一副渔夫的样子，争先恐后地开杀gachi以示划清我不是gachi，但到了夜深人静的时候保不准又拿起那张半脸或火腿肠的照片一阵手部抽搐默然流泪
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  RiVeMo  
+##### 744#       发表于 2020-2-19 11:29
+
+
+
+
+老生常谈的几个原创动画  第一季观众觉得可圈可点  第二季就大暴死的
+
+革命机   铁血  AZ  
+
+还有s1最O的蝈蝈
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 745#       发表于 2020-2-19 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459158&amp;ptid=1914314" target="_blank">海鸟猫巢 发表于 2020-02-19 11:26:37</a>
+说是车轱辘，但最能刺激天狗的不就是这些车轱辘吗，天狗总是装作一副渔夫的样子，争先恐后地开杀gachi以示 ...</blockquote>不是 你没有女朋友的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 746#       发表于 2020-2-19 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转蝈蝈，求求你，至少这个不要再提了好吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 747#       发表于 2020-2-19 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459158&amp;ptid=1914314" target="_blank">海鸟猫巢 发表于 2020-2-19 11:26</a>
+说是车轱辘，但最能刺激天狗的不就是这些车轱辘吗，天狗总是装作一副渔夫的样子，争先恐后地开杀gachi以示 ...</blockquote>
+这话好像前几天我在哪里看过？
+不过反正都是对着手机做针线活，对着什么做不是做呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 748#       发表于 2020-2-19 11:34
+
+
+
+
+说到蝈蝈是不是可以再讨论下你麻生几个你凛生几个的问题了，多贴啊
+
+
+
+
+
+
+
+-----
+
+####  海鸟猫巢  
+##### 749#       发表于 2020-2-19 11:35
+
+
+
+
+vtuber界的蝈蝈，成了，V区复兴指日可待
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  RiVeMo  
+##### 750#       发表于 2020-2-19 11:37
+
+
+
+
+说起一开始给人期望，然后越拍越烂的剧本
+
+zio和泰迦都是   01现在也没啥可期待的了
+
+霓虹人演戏能不能起码前后逻辑自洽
+
+别想到哪演到哪
+
+糊弄小孩都不能这样糊弄啊
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 751#       发表于 2020-2-19 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459248&amp;ptid=1914314" target="_blank">鷹書たかしょ 发表于 2020-2-19 11:34</a>
+说到蝈蝈是不是可以再讨论下你麻生几个你凛生几个的问题了，多贴啊</blockquote>
+各生一个足球队，球场上互踢，还要互组cp，争取去祸害腐女。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 752#       发表于 2020-2-19 11:39
+
+
+
+ 本帖最后由 SNOWIMEA 于 2020-2-19 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459158&amp;ptid=1914314" target="_blank">海鸟猫巢 发表于 2020-2-19 11:26</a>
+说是车轱辘，但最能刺激天狗的不就是这些车轱辘吗，天狗总是装作一副渔夫的样子，争先恐后地开杀gachi以示 ...</blockquote>
+那是你们以为的能受到刺激，现在516以后留下来还在S1混的还能在意这玩意？真想日主播的在听到516之后早退坑或者转黑了，比如楼里的774一直说自己是资深天狗，可能516之后一蹶不振就变成现在的样子了，说白了还是想日主播，谁成想人家主播有男人了，心里不爽。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真可怜
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 753#         楼主| 发表于 2020-2-19 11:40
+
+
+
+
+阿夸在小麻生日这天复活，S1的贴贴人都不制糖的吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">（虽然就我一个）
+
+那一定是臭阿夸想骗走天狗打给小麻的生日礼物<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">（恶堕中）
+
+不知道辣么怕小凛的小麻敢不敢（有没有）拉她出来散心呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 754#       发表于 2020-2-19 11:42
+
+
+
+
+天狗不是受到了刺激，而是因为他的话太蠢了忍不住想来回复一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某种意义上这还不如前一个问两个人能力的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 755#       发表于 2020-2-19 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459320&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-2-19 11:40</a>
+阿夸在小麻生日这天复活，S1的贴贴人都不制糖的吗（虽然就我一个）
+
+那一定是臭阿夸想骗走天狗打给 ...</blockquote>
+阿夸肯定把自己打扮的漂漂亮亮的藏在大生日蛋糕里，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后两人奶油play
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 756#       发表于 2020-2-19 11:44
+
+
+
+
+也不是，今天很忙，没空打字，甚至没空翻楼
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 757#         楼主| 发表于 2020-2-19 11:44
+
+
+
+
+忍不住不就是刺激到了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">多巴胺不会骗人的
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 758#       发表于 2020-2-19 11:44
+
+
+
+
+我已经通过👀看到不止一段因为凛221复活而高潮的贴贴壬的聊天记录了。
+只能说不愧是贴贴人，思路和角度确实刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 759#       发表于 2020-2-19 11:48
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-19 11:44
+阿夸肯定把自己打扮的漂漂亮亮的藏在大生日蛋糕里，然后小麻没看到夸哥来肯定很失望，然后吃蛋糕 ...</blockquote>
+谢谢兄弟，已经射了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 760#       发表于 2020-2-19 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459358&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-2-19 11:44</a>
+忍不住不就是刺激到了嘛多巴胺不会骗人的</blockquote>
+那可能是咱对刺激这个词的理解不一样，你这个回复就和他的回复一样，因为太蠢想要来告诉你不对而已
+可能最后还要回到昨天半夜的那句
+只要不断有人回复，渔夫感就会像垃圾一样涌来
+
+
+
+
+
+
+
+-----
+
+####  海鸟猫巢  
+##### 761#       发表于 2020-2-19 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459301&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-02-19 11:39:04</a>
+v2.2.0.1</blockquote>有一说一，我觉得mea楼的每一个人都想日主播
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 762#       发表于 2020-2-19 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459428&amp;ptid=1914314" target="_blank">海鸟猫巢 发表于 2020-2-19 11:51</a>
+有一说一，我觉得mea楼的每一个人都想日主播
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+夸楼的也是<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">meaqua贴贴！！！！！
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 763#       发表于 2020-2-19 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459428&amp;ptid=1914314" target="_blank">海鸟猫巢 发表于 2020-2-19 11:51</a>
+有一说一，我觉得mea楼的每一个人都想日主播
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+u1s1，我就是个普通的直播观众，对主播没啥想法
+但露腿合集实在太色了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+腿色和说话有意思就是不一样的事情了
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 764#       发表于 2020-2-19 12:02
+
+
+
+<blockquote>海鸟猫巢 发表于 2020-2-19 11:51
+有一说一，我觉得mea楼的每一个人都想日主播
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+为什么要自己日，让美少女去日不是更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
