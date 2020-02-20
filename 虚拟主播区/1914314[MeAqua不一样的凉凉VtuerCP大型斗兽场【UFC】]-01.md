@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 16:07** 
+> ## **本文件最后更新于2020-02-20 18:05** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_n8XF6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_Q4Ovm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_s3rG8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_CE22h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_DbbT4" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_m2nMZ" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_kusu7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_PUDzZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -25029,4 +25029,1334 @@ meaqua，没有爱就无法看见魔法结局喔
 
 
 
-    
+
+
+-----
+
+####  Ky·Kiske  
+##### 1365#       发表于 2020-2-20 16:07
+
+
+
+
+突然加戏.jpg
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1366#       发表于 2020-2-20 16:08
+
+
+
+
+发散，都可以发散<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 1367#       发表于 2020-2-20 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471950&amp;ptid=1914314" target="_blank">兔耳僵尸 发表于 2020-2-20 16:04</a>
+
+meaqua，没有爱就无法看见魔法结局喔
+
+
+—— 来自 vivo V1824A, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">已经结局了？这不能，我还在等咖啡厅第二季呢，meaqua贴贴！
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1368#       发表于 2020-2-20 16:31
+
+
+
+
+这也要强行拉u18r进场，难道她们的圈子里面只有774一个男人吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1369#       发表于 2020-2-20 16:34
+
+
+
+
+我懂了，774是指第774个男人，前面还有773个<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1370#       发表于 2020-2-20 16:34
+
+
+
+
+六等分的bs,乌冬就是男主
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1371#       发表于 2020-2-20 16:37
+
+
+
+ 本帖最后由 SNOWIMEA 于 2020-2-20 16:40 编辑 
+
+bs前几天最后的三人组杂谈怎么不烤一下啊，烤完虽然一些发散不存在了，但是应该会有更大的发散<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+sly，就是那段就行，直播的时候看群里的只言片语感觉信息量挺大的
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1372#       发表于 2020-2-20 16:38
+
+
+
+
+不是铁粉也没啥烤的必要吧，提到的不就那一段对话而已，光烤那段就够了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1373#       发表于 2020-2-20 16:40
+
+
+
+
+774真爱楼， 喜欢的天天来顶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1374#       发表于 2020-2-20 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472237&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 16:31</a>
+
+这也要强行拉u18r进场，难道她们的圈子里面只有774一个男人吗
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+774轻小说男主角说
+
+那这看起来是一部业界文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1375#       发表于 2020-2-20 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472318&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-02-20 16:37:26</a>
+v2.2.0.1</blockquote>核心内容不是 苹果脾气很差且自闭，不开心也不会说，直接自爆。能劝苹果的只有马自立。 没啥东西啊。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SNOWIMEA| + 1|多谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1376#       发表于 2020-2-20 16:48
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 16:50 编辑 
+
+《我的女友是大人气vtb》青涩酸爽的恋爱生活，在线上频频怪叫rp5岁的她，确是我线下温柔可人的甜蜜女友。有我在为她出谋划策，助她登上vtb的顶峰！
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1377#       发表于 2020-2-20 16:52
+
+
+
+ 本帖最后由 oifaker 于 2020-2-20 17:01 编辑 
+
+其实吧，攻击贴贴人归攻击贴贴人，也没必要把mea打造成受害者的形象，毕竟在她直播一多半都是杂谈，各种话题各个v都提的，提亏的频率也不算高，推特回复也是蛮随意的，舔熟人啦骚扰熟人啦都挺多了，亏相关的频率算是低的了，没啥必要塑造怨妇x形象，蛮好笑的。
+
+社交上与其担心mea还不如担心大亏呢，毕竟mea一直是中央空调定位，社会意义上还是很能生存的一个家伙……
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1378#       发表于 2020-2-20 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472500&amp;ptid=1914314" target="_blank">oifaker 发表于 2020-2-20 16:52</a>
+
+其实吧，攻击贴贴人归攻击贴贴人，也必要把mea打造成受害者的形象，毕竟在她直播一多半都是杂谈，各种话题 ...</blockquote>
+是上学没上过，还是没在死宅簇拥下唱歌跳舞当底下偶像，还是没和男的视频通话，
+
+一个能当底下偶像的说不会社交，别恶心我。
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1379#       发表于 2020-2-20 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472568&amp;ptid=1914314" target="_blank">古战场亡魂 发表于 2020-2-20 16:58</a>
+
+是上学没上过，还是没在死宅簇拥下唱歌跳舞当底下偶像，还是没和男的视频通话，
+
+一个能当底下偶像的说不 ...</blockquote>
+所以是比较级啊，至少从明面上的这些评价来看mea要更吃得开一些
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1380#       发表于 2020-2-20 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472568&amp;ptid=1914314" target="_blank">古战场亡魂 发表于 2020-2-20 16:58</a>
+
+是上学没上过，还是没在死宅簇拥下唱歌跳舞当底下偶像，还是没和男的视频通话，
+
+一个能当底下偶像的说不 ...</blockquote>
+你有和男的视频通话的证据么，没有算造谣嗷
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1381#       发表于 2020-2-20 17:04
+
+
+
+ 本帖最后由 路人庚 于 2020-2-20 17:07 编辑 
+
+ig怎么变得这么情弱了草，被记忆删除了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">等等，难道我是鱼？！ IG 你好强大
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1382#       发表于 2020-2-20 17:05
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 17:10 编辑 
+
+不会社交和社恐不一样啊，还是说大亏线下其他人嘴里的初见面社恐熟了之后神经病也是rp。线下还要rp。真是心机婊。麻将妹也是真真的眼里有梁木的典范了，商业活动的交流和私交方面的交流完全不能相提并论，有的人为了搞活动搞策划，能和女人侃大山一整天，但是你让他没事找个女人喷闲话，那可整不来。不过想了想，大家都是出来表演的，都有自己的面具，真正的自我，除了自己，其他人谁又能知道呢，指不定大亏哥八面玲珑咩啊唯唯诺诺呢，要不怎么连线下都要一再推脱。呜呜呜，麻将一直都被大亏玩弄在股掌之间，麻将什么时候才能站起来。
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 1383#       发表于 2020-2-20 17:07
+
+
+
+
+ig唯一的目的就是让别人多说话，无论立场怎样，只要他的发言让你点一次“发表回复”，他就赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|其实还可以发表评价|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1384#       发表于 2020-2-20 17:09
+
+
+
+
+因为我自己就是个社恐，我很能理解她的心理，你们不懂就没有发言权<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1385#       发表于 2020-2-20 17:10
+
+
+
+
+大抵大亏是真的傻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1386#       发表于 2020-2-20 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">那么答案就只有一个了：我tm点爆“发表回复”！
+
+
+syl
+
+提到眼睛里有梁木，不禁想到眼睛里塞满了梁木，又不禁想到一堆梁木上长满了眼睛（灵感成功，san值-1）<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1387#       发表于 2020-2-20 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472639&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 17:05</a>
+不会社交和社恐不一样啊，还是说大亏线下其他人嘴里的初见面社恐熟了之后神经病也是rp。线下还要rp。真是心 ...</blockquote>
+这就体现出我要翻译bs剩女三人小队杂谈的好处了，三人说大亏脾气不好。不能八面玲珑的
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1388#       发表于 2020-2-20 17:12
+
+
+
+
+不知道的还以为ig领了工资
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 1389#       发表于 2020-2-20 17:13
+
+
+
+
+再怎么看大亏也只是普通人而已，不要擅自加属性好不好，
+
+我说的就是那种有时蠢，有时坏，有时又蠢又坏的普通人。
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1390#       发表于 2020-2-20 17:15
+
+
+
+
+苹果外联能力并不差，最多只能说她线下会怂。 但是mea吗，按照平常情况，她显然是没事情就不想找别人的存在（当然有几个特例她会理），根本不主动去维护人际关系。 谁是真社交障碍，一目了然。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1391#       发表于 2020-2-20 17:15
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-2-20 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472639&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 17:05</a>
+
+不会社交和社恐不一样啊，还是说大亏线下其他人嘴里的初见面社恐熟了之后神经病也是rp。线下还要rp。真是心 ...</blockquote>
+你tm是不回嘴心里不舒服怎么着。
+
+什么都要硬回一句。
+
+明明社交没问题一个个给大天使套不会社交、社恐的人设。
+
+当v前后线下外出、线上线下集体活动也没少去。
+
+社交又不是叫你和每个人都自来熟。
+
+你直接说抑郁症我也就信了，毕竟这年头找个没抑郁症的有点难。
+
+和不熟的人说话不那么畅所欲言，上个讲台发言说不出话、相亲见面找不到话题的人也挺多。
+
+这种假社恐算个p的病整天念叨来念叨去的。
+
+你们是属性同好会的怎么着，不给v加属性会死？建议直接上躁郁症人设，更加合理。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 1392#       发表于 2020-2-20 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472639&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 17:05</a>
+
+不会社交和社恐不一样啊，还是说大亏线下其他人嘴里的初见面社恐熟了之后神经病也是rp。线下还要rp。真是心 ...</blockquote>
+你就别嗯洗了，洗了3栋楼了，歇会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1393#       发表于 2020-2-20 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472743&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 17:15</a>
+苹果外联能力并不差，最多只能说她线下会怂。 但是mea吗，按照平常情况，她显然是没事情就不想找别人的存在 ...</blockquote>
+真社交障碍支持
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1394#       发表于 2020-2-20 17:19
+
+
+
+
+那我只能建议麻将妹看看金憨憨说几人线下的那次杂谈了，我觉得这还是有点问题的，你觉得没问题我觉得有，那咱俩不侃就完事了，都是看虚拟人脑补，你大脑比我强脑补比我真呗。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1395#       发表于 2020-2-20 17:19
+
+
+
+ 本帖最后由 SNOWIMEA 于 2020-2-20 17:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472743&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 17:15</a>
+苹果外联能力并不差，最多只能说她线下会怂。 但是mea吗，按照平常情况，她显然是没事情就不想找别人的存在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1396#       发表于 2020-2-20 17:21
+
+
+
+
+什么社恐不会社交  麻凛就是丑  你看勇者姐姐多自信  都是bs人家就敢露脸<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1397#       发表于 2020-2-20 17:21
+
+
+
+
+嘴里有梁木的图倒是pocky日的时候大头发过
+
+
+吊人发过类似的吗
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1398#       发表于 2020-2-20 17:26
+
+
+
+
+别的不说，麻凛不敢露脸所以估计姿色都不怎么样我是信的，别说什么一个立“颜出都是碧池”一个立“社恐大天使”牌坊，笑死人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 1399#       发表于 2020-2-20 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472858&amp;ptid=1914314" target="_blank">Mika-S 发表于 2020-2-20 17:26</a>
+别的不说，麻凛不敢露脸所以估计姿色都不怎么样我是信的，别说什么一个立“颜出都是碧池”一个立“社恐大天 ...</blockquote>
+有一说一嗷 确实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是我还是想mtrnc，别的不说，看粉丝跳脚就很有味
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1400#       发表于 2020-2-20 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472639&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 17:05</a>
+不会社交和社恐不一样啊，还是说大亏线下其他人嘴里的初见面社恐熟了之后神经病也是rp。线下还要rp。真是心 ...</blockquote>
+说明大家都很pro啊，不管线下真实什么样，台面上还是给足你面子不戳穿你rp的，这点都做不到混nm的主播圈子呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1401#       发表于 2020-2-20 17:31
+
+
+
+
+小土妹戴口罩照片都有了，姿色就那样，也就靠个腿色了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1402#       发表于 2020-2-20 17:32
+
+
+
+
+该去黑了海苔男手机了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1403#       发表于 2020-2-20 17:33
+
+
+
+
+yysy，麻就不说了，没怎么见过有其他的vtuber说她长的怎么样的，估计也就一般水平。凛可是有人说过的，不过评论不是长的很漂亮，而是很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">多么圆滑的回答啊。
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1404#       发表于 2020-2-20 17:33
+
+
+
+
+按照老王国民5ch评价 麻酱颜值7/10。可惜不知道参考标准是啥，但是，苔苔最多5。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1405#       发表于 2020-2-20 17:34
+
+
+
+
+个子矮＝可爱
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1406#       发表于 2020-2-20 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472924&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-02-20 17:33:54</a>
+按照老王国民5ch评价 麻酱颜值7/10。可惜不知道参考标准是啥，但是，苔苔最多5。
+
+ ...</blockquote>粉丝滤镜，肯定打高了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1407#       发表于 2020-2-20 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472924&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 17:33</a>
+按照老王国民5ch评价 麻酱颜值7/10。可惜不知道参考标准是啥，但是，苔苔最多5。
+
+  -- 来自 能手机投票的  ...</blockquote>
+草那是王国民评价的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且我记得不是说的rinco么，5分制打了3.5
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1408#       发表于 2020-2-20 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472918&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-2-20 17:33</a>
+
+yysy，麻就不说了，没怎么见过有其他的vtuber说她长的怎么样的，估计也就一般水平。凛可是有人说过的，不过 ...</blockquote>
+小麻DWU线下联动的时候说过是美少女并且比海苔男好看，也有缝合照片缝出来的正脸可以自行挖掘
+
+你们不都是萌萌二次元吗怎么开始评头论足了，可能是老婆都是完美无瑕的纸片人所以开始外貌协会了
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 1409#       发表于 2020-2-20 17:36
+
+
+
+
+看你楼有种两个婊子的嫖客们比自家姘头到底谁得的性病种类少的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1410#       发表于 2020-2-20 17:36
+
+
+
+
+真的有很多VTB见过麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1411#       发表于 2020-2-20 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472918&amp;ptid=1914314" target="_blank">SNOWIMEA 发表于 2020-2-20 17:33</a>
+yysy，麻就不说了，没怎么见过有其他的vtuber说她长的怎么样的，估计也就一般水平。凛可是有人说过的，不过 ...</blockquote>
+长得漂亮直接说漂亮，长得不怎么样身材好就说性感，不漂亮也不身材好只能说可爱了。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1412#       发表于 2020-2-20 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472954&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 17:36</a>
+小麻DWU线下联动的时候说过是美少女并且比海苔男好看，也有缝合照片缝出来的正脸可以自行挖掘
+
+你们不都是 ...</blockquote>
+dwu有说过这段么，俺失格了，竟然有人评论是美少女。麻的图能看过的都看了，缺个鼻子拼不起来。
+颜话题在楼里挑起来了，想发表一下观点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1413#       发表于 2020-2-20 17:38
+
+
+
+
+我记得小胖子那个分数扣分项有口臭
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 1414#       发表于 2020-2-20 17:38
+
+
+
+
+版主不是钦定你咩姐长得和皮一模一样吗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1415#       发表于 2020-2-20 17:40
+
+
+
+
+那不行，我其实对皮gachi度一般。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1416#       发表于 2020-2-20 17:40
+
+
+
+
+那也太吓人了，真人眼珠子这么大
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1417#       发表于 2020-2-20 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46472967&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-2-20 17:36</a>
+真的有很多VTB见过麻吗</blockquote>
+其实也有两三个吧，虽然大部分都是不怎么会评论的人。亏哥哥暂且不提，dwu，gbr，子兔音，牡丹应该也见过。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1418#       发表于 2020-2-20 17:40
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 17:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有气质，有气质，这种话题肯定不能直接说丑逼啊，不能贬不就只能吹了，直接默认不颜出的都是丑逼就完事了，只有照片的还可能是高P的，没个大段露脸视频的美少女都不能叫美少女，虽说长视频也可以精修，但是成本上有点划不来。每次聊到这种话题，我就好奇GBR到底有多美，甚至因为被粉丝特定连搬了好几次家的，我就是馋她身子.jpg要是评论足够详细了怕不是能有刑侦科的粉丝直接把脸给你画出来喽
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1419#       发表于 2020-2-20 17:41
+
+
+
+
+mc联动，夸夸咩漂亮。
+但是meaqua贴贴，所以不可信。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1420#       发表于 2020-2-20 17:41
+
+
+
+
+我不敢苟同日本人所谓的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凛子小姐估计也就一般货色，说不定是个丑逼
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1421#       发表于 2020-2-20 17:42
+
+
+
+
+修还能修那么土，瓦不信
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1422#       发表于 2020-2-20 17:42
+
+
+
+
+女的夸另一个女的“可爱”不是就基本＝“丑逼”吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1423#       发表于 2020-2-20 17:44
+
+
+
+
+说起来之前看过静香哥的小号露过脸，记得静香哥是老王国民，你们可以去问问他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 1424#       发表于 2020-2-20 17:44
+
+
+
+
+脑补这么多，不要给我啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 1425#       发表于 2020-2-20 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473055&amp;ptid=1914314" target="_blank">肚子疼了 发表于 2020-2-20 17:44</a>
+说起来之前看过静香哥的小号露过脸，记得静香哥是老王国民，你们可以去问问他 ...</blockquote>
+静香姐是凛子anti，眼里有梁木不会给好评价的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1426#       发表于 2020-2-20 17:46
+
+
+
+
+小胖子好歹也是敢去线下live的，也不会丑到哪去，而且还有身高优势吸引铜人
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1427#       发表于 2020-2-20 17:49
+
+
+
+
+你们不是这么说mega的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1428#       发表于 2020-2-20 17:55
+
+
+
+
+静香姐啥时候成凛anti了，造谣要有限度
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1429#       发表于 2020-2-20 17:56
+
+
+
+
+本日报噶吃出警了，
+
+
+日报第100期最上静香还祝夸能一直陪伴在咩身边呢， 这能是凛安提？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 1430#       发表于 2020-2-20 17:59
+
+
+
+
+mea受害者这人设是她自己一直坚持的啊
+
+从来不和人发生冲突，被冲突了也是先回避，等回避不了的时候就跳出来表示自己是受害者
+
+你看她推特回复就是这样，对方正常交流她就正常交流，对方对她示以好感马上就开始装傻/顾左右而言他糊弄过去，拿捏的特别准，真和对面联动也一直是被动的一方，就算之后不交流观众也不会有什么太差的观感
+
+所以无论出什么事无论根本原因在哪，只要第一时间谢罪，总能把锅甩给对面一部分，所以才能在这么多节奏中独善其身
+
+阿夸就比较激进，贴贴就死命贴，不想贴就光速装死，然后有新的目标接着死命贴，平时回推也是疯狂RP怎么扯淡怎么来，根本不懂什么叫过犹不及。
+
+再加上本人虽然不是五岁脑瘫但是情商也真好不到哪去，所以就算没啥事也能整出事来
+
+虽然大家都知道你是演的，可演的太差真的影响观感
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1431#       发表于 2020-2-20 18:02
+
+
+
+
+咩咩的评价一直在大智若愚和大于弱智之间摇摆<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1432#       发表于 2020-2-20 18:02
+
+
+
+
+那能不能给我讲讲mea第一个推特是怎么被封的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 1433#       发表于 2020-2-20 18:02
+
+
+
+
+开了V版之后最大的发现就是V区流量不靠mea，靠的是meaqua和暗黑贴贴人。可怜，mea就算在s1也是挂件啊。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1434#       发表于 2020-2-20 18:03
+
+
+
+
+只是压抑了太久而已
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1435#       发表于 2020-2-20 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不说，和五元的联动，真的被动么
+
+
+
+
+
+  
