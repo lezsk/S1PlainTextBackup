@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 04:04** 
+> ## **本文件最后更新于2020-02-20 22:06** 
 
 
 
@@ -18309,4 +18309,588 @@ A+，大老爹太猛了
 
 
 
-              
+
+
+-----
+
+####  zyw0  
+##### 7053#       发表于 2020-2-20 06:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467085&amp;ptid=1712512" target="_blank">阿库鲁艾特 发表于 2020-02-20 02:16:09</a>
+广告商估计要顾杀手杀了大老爹</blockquote>光头47更衣室枪决大老爹
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  riin1  
+##### 7054#       发表于 2020-2-20 12:59
+
+
+
+
+最近重温xb2的录播，但是分p太多，求问有没有xb2录播精彩时刻的时间轴？
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7055#       发表于 2020-2-20 19:27
+
+
+
+
+有一说一这游戏这一关也抄D3天堂抄的太像了吧
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 7056#       发表于 2020-2-20 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470154&amp;ptid=1712512" target="_blank">riin1 发表于 2020-2-20 12:59</a>
+
+最近重温xb2的录播，但是分p太多，求问有没有xb2录播精彩时刻的时间轴？</blockquote>
+有一说一 看的人血压拉满 不想再看第二遍
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 7057#       发表于 2020-2-20 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470154&amp;ptid=1712512" target="_blank">riin1 发表于 2020-2-20 12:59</a>
+
+最近重温xb2的录播，但是分p太多，求问有没有xb2录播精彩时刻的时间轴？</blockquote>
+看进度条上的弹幕分布，弹幕数量暴涨的位置一般就是槽点或者播过场
+
+
+前期和后期小秦的反应区别很大，前期就突出一个看不起，什么都土
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7058#       发表于 2020-2-20 20:16
+
+
+
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  xunit  
+##### 7059#       发表于 2020-2-20 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+
+  -- ...</blockquote>
+人类一败涂地的直播，黑魂3+DLC的开荒直播，现在在搞的NBA2K20，还有一期回顾黑魂1的直播，下大树洞后怪话连篇。
+
+
+
+
+
+
+
+-----
+
+####  406129465  
+##### 7060#       发表于 2020-2-20 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+  -- ...</blockquote>
+p5，逆转，16年的2k还有魂3开荒效果都不错
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7061#       发表于 2020-2-20 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474396&amp;ptid=1712512" target="_blank">xunit 发表于 2020-02-20 20:23:38</a>
+人类一败涂地的直播，黑魂3+DLC的开荒直播，现在在搞的NBA2K20，还有一期回顾黑魂1的直播，下大树洞后怪 ...</blockquote>一败涂地的录播我看奎恩好像没上传齐，有别的地方看嘛?
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 7062#       发表于 2020-2-20 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+
+  -- ...</blockquote>
+看下第一老婆伊丽莎白吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 7063#       发表于 2020-2-20 20:40
+
+
+
+ 本帖最后由 sanxgh571 于 2020-2-20 20:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+
+  -- ...</blockquote>
+各有千秋，但弹幕量第一的肯定是p5，130个小时这么长然而每一p都有2000多弹幕，可见其节目效果
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 7064#       发表于 2020-2-20 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+
+  -- ...</blockquote>
+人类一败涂地捉迷藏特辑，那次我笑得下巴都酸了，秦国春晚不是白叫的
+
+
+
+
+
+
+
+-----
+
+####  xunit  
+##### 7065#       发表于 2020-2-20 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474453&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:30</a>
+
+一败涂地的录播我看奎恩好像没上传齐，有别的地方看嘛?
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+小秦的斗鱼鱼吧有去网易CC之前不少直播录像，还带弹幕，人类一败涂地的也有，2017年跨年那场，好像18年1、2月还有一场来着。
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7066#       发表于 2020-2-20 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474460&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-02-20 20:31:10</a>
+看下第一老婆伊丽莎白吧</blockquote>这是哪位？一个up主吗?
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  xunit  
+##### 7067#       发表于 2020-2-20 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474453&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:30</a>
+
+一败涂地的录播我看奎恩好像没上传齐，有别的地方看嘛?
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+刚才去斗鱼看了眼，好像因为机制一些直播录像只录了两小时……完整的内容我就不清楚在哪看了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 7068#       发表于 2020-2-20 21:01
+
+
+
+
+大————老————爹————
+
+
+
+
+
+
+
+-----
+
+####  新庄運切  
+##### 7069#       发表于 2020-2-20 21:02
+
+
+
+
+lei了lei了，气人主播来了
+
+
+
+
+
+
+
+-----
+
+####  asami  
+##### 7070#       发表于 2020-2-20 21:02
+
+
+
+
+昨天睡得早，大老爹的头上怎么生草了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7071#       发表于 2020-2-20 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474715&amp;ptid=1712512" target="_blank">xunit 发表于 2020-02-20 21:00:36</a>
+刚才去斗鱼看了眼，好像因为机制一些直播录像只录了两小时……完整的内容我就不清楚在哪看了 ...</blockquote>cc录播我这边看只有到2月8号的，想看弹幕多的桂林毒狗砖，有办法看嘛?
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  臭P遇上臭脚  
+##### 7072#       发表于 2020-2-20 21:06
+
+
+
+
+来了来了，大老爹登场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7073#       发表于 2020-2-20 21:08
+
+
+
+
+猛男寨人均yygq大师
+
+
+
+
+
+
+
+-----
+
+####  xunit  
+##### 7074#       发表于 2020-2-20 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474747&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 21:03</a>
+
+cc录播我这边看只有到2月8号的，想看弹幕多的桂林毒狗砖，有办法看嘛?
+
+
+  -- 来自 能看大图的 Stage1官方 A ...</blockquote>
+[http://cc.163.com/user/361433/video/p10/](http://cc.163.com/user/361433/video/p10/)
+
+CC的录播视频倒是还在，但我点进去没看到有历史弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+可能只能去B站看他自己上传的录像了吧。
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7075#       发表于 2020-2-20 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474844&amp;ptid=1712512" target="_blank">xunit 发表于 2020-02-20 21:14:25</a>
+可能只能去B站看他自己上传的录像了吧。</blockquote>遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7076#       发表于 2020-2-20 21:22
+
+
+
+
+爹派还是乖乖让权给詹派吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 7077#       发表于 2020-2-20 21:33
+
+
+
+
+草，我看到rich ass在弹幕说打了钱到指定邮箱，让秦川氪金变强了去打名人堂……
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7078#       发表于 2020-2-20 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474844&amp;ptid=1712512" target="_blank">xunit 发表于 2020-2-20 21:14</a>
+
+http://cc.163.com/user/361433/video/p10/
+
+CC的录播视频倒是还在，但我点进去没看到有历史弹幕
+
+ ...</blockquote>
+CC的录播弹幕只能用手机app看，机制很傻
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7079#       发表于 2020-2-20 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474453&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:30</a>
+
+一败涂地的录播我看奎恩好像没上传齐，有别的地方看嘛?
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+丢人集锦里有几个是一败涂地转场，大鹅玩的也挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  xunit  
+##### 7080#       发表于 2020-2-20 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46475075&amp;ptid=1712512" target="_blank">上坂蓮華 发表于 2020-2-20 21:37</a>
+
+CC的录播弹幕只能用手机app看，机制很傻</blockquote>
+天杀养猪场<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 7081#       发表于 2020-2-20 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474687&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:57</a>
+
+这是哪位？一个up主吗?
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+阿秦在b站最老的一批视频，生化奇兵无限
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 7082#       发表于 2020-2-20 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46475129&amp;ptid=1712512" target="_blank">Mr.BBWoLf 发表于 2020-02-20 21:44:03</a>
+阿秦在b站最老的一批视频，生化奇兵无限</blockquote>懂了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 7083#       发表于 2020-2-20 22:06
+
+
+
+
+宿命之战感觉要再度落败了
+
+
+
+
+
+             
