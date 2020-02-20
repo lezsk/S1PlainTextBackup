@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 12:04** 
+> ## **本文件最后更新于2020-02-20 14:05** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_d6GYY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_CIi3Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_FH5ii" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_fr6Hr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_sKEkm" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_RxZ66" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_FppNn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_coTx1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21829,10 +21829,14 @@ aqua不在。mea代替她爆播，熬死dd，谋财-&gt;害命
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 9战斗力 +9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 追风小星星| + 1|怎么有正常人|
+| planetcd| + 1|贴贴人自食其果|
+| noaki| + 1|看看人家，学学人家|
+| 言艮| + 1|爷爷你看到了吗，s1meaqua楼有纯良人了.|
 | SNOWIMEA| + 1|正常人真的太少了|
 | dorasir| + 1|希望大家多一点zqsg，少一点yygq.|
 | 魔法使い2019| + 1|是纯良人啊|
@@ -22482,4 +22486,1340 @@ syl，先不说讨厌被人p，这人的风格和杏花村那套芳文社风格�
 
 
 
-         
+
+
+-----
+
+####  雪代suzuno  
+##### 1228#       发表于 2020-2-20 12:05
+
+
+
+
+我要黑屁+钓鱼了！
+话说为啥没人黑屁774才是aqua男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+逻辑上也说得通，这么不就很好解释他对mea下不去屌的理由了吗。也能解释为啥会借mea地方住。
+那么继续推论，皆切变成老死不相往来的样子，是不是因为抢男人？ 
+12.7难道真的是因为没有大乱斗才哭的吗，难道不是抢男人失败又不能和大亏撕破脸的无奈吗？
+你看隔壁皆切就直接撕脸了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1229#       发表于 2020-2-20 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469544&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 12:05</a>
+我要黑屁+钓鱼了！
+话说为啥没人黑屁774才是aqua男朋友
+逻辑上也说得通，这么不就很好解释他对mea下 ...</blockquote>
+你没看过mk2的理论吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1230#       发表于 2020-2-20 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469544&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 12:05</a>
+
+我要黑屁+钓鱼了！
+
+话说为啥没人黑屁774才是aqua男朋友
+
+逻辑上也说得通，这么不就很好解释他对mea下 ...</blockquote>
+而且还能和meaqua同居论逻辑自洽
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1231#       发表于 2020-2-20 12:09
+
+
+
+ 本帖最后由 Dualist彩 于 2020-2-20 12:11 编辑 
+
+懂了，夸皇步步食杀同行其实是为了男人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">夺走你的观众，夺走你的钱包，夺走你的男人，再找下一个目标（求来个这种题材的gal）
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 1232#       发表于 2020-2-20 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">那现在两人渐行渐远也是因为774
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1233#       发表于 2020-2-20 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469097&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 11:22</a>
+
+一期时候利香都吃的进去，有啥吃不进去的。完全看想不想吃。 
+
+holo是个偶像组合不都是梗了嘛，而且麻酱偶像 ...</blockquote>
+是不是偶像又不是看网瘾，主要是看有没有被透过，二手批也配当偶像？要说偶像度谁比得过miku老师？
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 1234#       发表于 2020-2-20 12:20
+
+
+
+
+确实，拍过av的还是拼不过的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不过求求你们不要转进木口了，s1本来没什么木口粉丝你们这一杀真要没了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1235#       发表于 2020-2-20 12:22
+
+
+
+
+懂了，进holo要被透的，麻麻就别进去了，变成三手批就配不上夸夸的二手批了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1236#       发表于 2020-2-20 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们是不是看我们holo不爽？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1237#       发表于 2020-2-20 12:32
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-2-20 12:35 编辑 
+
+两张图送给可能受到家庭暴力后产生男性恐惧大天使，以及见不得女的和男性联动的独角兽。
+
+<img src="https://img.saraba1st.com/forum/202002/20/123225srfafzfbkqmfsrqz.gif" referrerpolicy="no-referrer">
+
+
+<strong>v2-fc59836ab7f3b0c4cd648bd5c03447af_hd.gif</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 12:32 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/123231rz66m6m6ut3quqg6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>v2-9d61518bf9b424029f19994a63782eb9_r.jpg</strong> (44.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 12:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1238#       发表于 2020-2-20 12:32
+
+
+
+
+你们王国民不能开个自己的粉丝楼么（）
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1239#       发表于 2020-2-20 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46464042&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-19 19:41</a>
+
+我就给meaqua残党发出最后一个**吧
+
+meaqua亡了</blockquote>
+你懂什么，这是因为知根知底所以不用专门回复了，走个过场而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1240#       发表于 2020-2-20 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46464295&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-2-19 20:08</a>
+
+夸夸吃咩咩的醋了昨天咩咩被夏哥打桩已经脏了，大天使需要净化咩咩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1241#       发表于 2020-2-20 12:36
+
+
+
+
+看来大家都不关注我的大作了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1242#       发表于 2020-2-20 12:36
+
+
+
+
+好了，我宣布咩夸民将被M&amp;M党人图沙干净
+
+咩夸已经完成了他的历史任务该上断头台了
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1243#       发表于 2020-2-20 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469871&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-20 12:36</a>
+
+看来大家都不关注我的大作了</blockquote>
+什么大作啊
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1244#       发表于 2020-2-20 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469878&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 12:36</a>
+
+好了，我宣布咩夸民将被M&amp;M党人图沙干净
+
+咩夸已经完成了他的历史任务该上断头台了 ...</blockquote>
+M&amp;M又是什么
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1245#       发表于 2020-2-20 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469908&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 12:38</a>
+
+M&amp;M又是什么</blockquote>
+Matsuri X Matsuri 连名字都一样，能不贴吗，比之前某四字母贴多了
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1246#       发表于 2020-2-20 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469926&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 12:40</a>
+
+Matsuri X Matsuri 连名字都一样，能不贴吗，比之前某四字母贴多了</blockquote>
+好！建议移步在下的楼，共商大计：[https://bbs.saraba1st.com/2b/thread-1914434-1-1.html](https://bbs.saraba1st.com/2b/thread-1914434-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1247#       发表于 2020-2-20 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469974&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 12:45</a>
+
+好！建议移步在下的楼，共商大计：https://bbs.saraba1st.com/2b/thread-1914434-1-1.html ...</blockquote>
+M&amp;M党不算扭曲CP，只能算是非主流/冷门CP
+
+
+灯笼船锚这种前世有恩怨，后世一个怎么舔都舔不到的才是扭曲CP
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1248#       发表于 2020-2-20 12:50
+
+
+
+<blockquote>ひびき 发表于 2020-2-20 12:49
+M&amp;M党不算扭曲CP，只能算是非主流/冷门CP
+
+
+灯笼船锚这种前世有恩怨，后世一个怎么舔都舔不到的才是扭曲CP ...</blockquote>
+但是meaqua是官配啊，除此之外的都是扭曲
+
+而且mea肯定不是夏哥最在意的一个
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1249#       发表于 2020-2-20 12:50
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 12:55 编辑 
+
+还是隔壁夸楼说的有意思，大亏就是一地球OL铁分奴，你咩啊就是一纯娱乐玩家，游戏初期大伙都没成型就租组队，后来可不就你走你的阳关道，我过我的独木桥了么，铁分奴的好友列表从来就不讲情意，只看战力，说到底游戏路线完全不同能一时组队就已经是奇迹了，渐行渐远，渐行渐远啊“主播前一阵子双排的人呢，怎么不一起玩了？”“啊，我，我们段位差距太大，拉不了她了。”“就不能开个小号带带她么。”“我这号上分也挺不容易的，我还打算冲个天梯前几名呢，算了吧。”
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 1250#       发表于 2020-2-20 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469926&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 12:40</a>
+
+Matsuri X Matsuri 连名字都一样，能不贴吗，比之前某四字母贴多了</blockquote>
+不是，推佐藤小姐的cp就不要搞六字母那套了可否？
+
+老老实实用佐藤小姐的cp模板叫夏色mea或者夏咩不好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1251#       发表于 2020-2-20 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470028&amp;ptid=1914314" target="_blank">ひびき 发表于 2020-2-20 12:49</a>
+
+M&amp;M党不算扭曲CP，只能算是非主流/冷门CP
+
+
+灯笼船锚这种前世有恩怨，后世一个怎么舔都舔不到的才是扭曲CP ...</blockquote>
+？前世有恩怨？在下愿闻其详
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1252#       发表于 2020-2-20 12:55
+
+
+
+
+你六字母才给三小姐两个字母的位置，人家M&amp;M好歹一人一半
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1253#       发表于 2020-2-20 12:56
+
+
+
+
+M&amp;M听着和彩虹豆似的，难道不是三小姐占100%，佐藤桑占50%么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1254#       发表于 2020-2-20 12:57
+
+
+
+
+中间隔了个星川，其实还是蛮扭的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1255#       发表于 2020-2-20 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470042&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 12:50</a>
+
+但是meaqua是官配啊，除此之外的都是扭曲
+
+而且mea肯定不是夏哥最在意的一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这话说的，hinamea；himea；meamiu；犬山mea；师徒组；母女组等各派别全员出警了啊，这几个从西皮意味上可一点都不扭曲
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1256#       发表于 2020-2-20 12:59
+
+
+
+
+按这么说岂不是六字母才算扭曲西皮
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1257#       发表于 2020-2-20 13:05
+
+
+
+
+明明兰太郎才是最贴的。联动最多，每次mea出事都会挺她，出事回来马上联动，还天天出现在mea直播间里，腿又很好摸。阿亏在mea这里明显德不配位。
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1258#       发表于 2020-2-20 13:05
+
+
+
+<blockquote>笋狐 发表于 2020-2-20 12:58
+你这话说的，hinamea；himea；meamiu；犬山mea；师徒组；母女组等各派别全员出警了啊，这几个从西 ...</blockquote>
+作为一个动画观众（漫区人），你要明白，事实逻辑第二，设定第一，meaqua是设定，所以是官配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 1259#       发表于 2020-2-20 13:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 是海苔男的阴谋,她老是拱火
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1260#       发表于 2020-2-20 13:08
+
+
+
+
+官配不是我大头？？？？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1261#       发表于 2020-2-20 13:11
+
+
+
+
+yysy 官配和设定上的cp都是织田信姬，不懂的看mea版头去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1262#       发表于 2020-2-20 13:13
+
+
+
+
+大头是原作，但动画改编了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1263#       发表于 2020-2-20 13:14
+
+
+
+
+动画改编还能把官配换了的？这还不炎上？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1264#       发表于 2020-2-20 13:18
+
+
+
+
+观众喜欢  你们是老几啊？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1265#       发表于 2020-2-20 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470232&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 13:05</a>
+
+作为一个动画观众（漫区人），你要明白，事实逻辑第二，设定第一，meaqua是设定，所以是官配要不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪儿的设定，holo官网大亏哥的资料里写了还是咋的，二创也就罢了，这么煞有其事的总让人不禁想起当初那几个自诩官配大旗在老病栋出警meall发散的毒唯，怕怕（
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1266#       发表于 2020-2-20 13:22
+
+
+
+<blockquote>肚子疼了 发表于 2020-2-20 13:11
+yysy 官配和设定上的cp都是织田信姬，不懂的看mea版头去</blockquote>
+那个……那个是……对了！那个是日本版的，和国内的版本不一样！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1267#       发表于 2020-2-20 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470219&amp;ptid=1914314" target="_blank">jhouo8989 发表于 2020-2-20 13:05</a>
+明明兰太郎才是最贴的。联动最多，每次mea出事都会挺她，出事回来马上联动，还天天出现在mea直播间里，腿又 ...</blockquote>
+所以说现在明面上早就没有狗屁meaqua联动了啊，这不是德不配位的aqua已经滚下去了吗。你们应该去开个mea兰太郎楼好好讨论而不是天天在这个楼里车轱辘一些屁话给meaqua这种早已死了的弱智cp续命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1268#       发表于 2020-2-20 13:25
+
+
+
+
+NMD，难道我还要给你们一群巨魔论证meaqua才是正统吗？对牛弹琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1269#       发表于 2020-2-20 13:26
+
+
+
+
+再正统没新活就往后稍稍罢
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1270#       发表于 2020-2-20 13:27
+
+
+
+
+兰熊算个屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官配当然是我八美肉774
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 1271#       发表于 2020-2-20 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说什么时候贴贴人才能死绝
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1272#       发表于 2020-2-20 13:30
+
+
+
+
+想啥呢，774就是典型的天降青梅，无敌的好不好。774一出，六字母直接亡了，连扭曲的余地都没有了。甚至于你结合mea以前的各种推特段子，都能吃mea774糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1273#       发表于 2020-2-20 13:32
+
+
+
+
+所以有熊腿照吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1274#       发表于 2020-2-20 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没活的cp就必须靠观众整活，比如暗黑贴贴和背诵516
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1275#       发表于 2020-2-20 13:33
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470485&amp;ptid=1914314" target="_blank">肚子疼了 发表于 2020-2-20 13:30</a>
+想啥呢，774就是典型的天降青梅，无敌的好不好。774一出，六字母直接亡了，连扭曲的余地都没有了。甚至于你 ...</blockquote>
+但是夸皇喜欢做小三啊，证据在外面的vtbx癖楼。所以meaqua774还是分不开，这就是现实版的白色相簿啊
+aqua小三，mea碧池。简直完美。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1276#       发表于 2020-2-20 13:34
+
+
+
+
+联动肯定会有的 别看现在骂得欢  到时候你们都要倒在贴贴的海洋里面！
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1277#       发表于 2020-2-20 13:38
+
+
+
+
+等meaqua咖啡厅第二集出来你们就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1278#       发表于 2020-2-20 13:39
+
+
+
+
+三酱和七酱能不能吃不吃糖还两说，但三酱应该没少吃七酱的脱氧核糖<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1279#       发表于 2020-2-20 13:40
+
+
+
+
+废话，东马和纱和小木曾雪菜甜蜜互动也不妨碍她俩抢一个男人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1280#       发表于 2020-2-20 13:41
+
+
+
+
+我酸了
+我也想吃七酱的脱氧核糖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1281#       发表于 2020-2-20 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470538&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-2-20 13:34</a>
+联动肯定会有的 别看现在骂得欢  到时候你们都要倒在贴贴的海洋里面！</blockquote>
+这就是黑暗贴贴人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1282#       发表于 2020-2-20 13:44
+
+
+
+
+联动时 "我的青春回来啦"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1283#       发表于 2020-2-20 13:47
+
+
+
+
+咩夸不倒，青春永葆<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1284#       发表于 2020-2-20 13:49
+
+
+
+
+你们等着，meaqua咖啡厅之后就是meaqua774床上联动，再来一个忘记关直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把你们河豚全杀了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1285#       发表于 2020-2-20 13:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，如果之后还是类似第一回前半段那般尬聊氛围的话，哪怕再开估计也离关店不远了（
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1286#       发表于 2020-2-20 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是最尊敬的是hime，最喜欢的是aqua么，那么谁才是咩啊能够共度余生的男/女人呢？啊，忘了前面这个说的是VTB里面的了，现在的版本就不好说了。
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1287#       发表于 2020-2-20 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470517&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-20 13:33</a>
+
+但是夸皇喜欢做小三啊，证据在外面的vtbx癖楼。所以meaqua774还是分不开，这就是现实版的白色相簿啊
+
+aqua ...</blockquote>
+怎么看出喜欢做小三的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1288#       发表于 2020-2-20 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这一切都要从夸皇回复774的那个？开始
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1289#       发表于 2020-2-20 13:57
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-2-20 13:58 编辑 
+
+如果我没记错的话， 774和夸互动后不是对着虚空发了一大串"对不起"吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 1290#       发表于 2020-2-20 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大亏生气了不让774上床
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1291#       发表于 2020-2-20 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470729&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 13:53</a>
+
+怎么看出喜欢做小三的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202002/20/135754zvmssimhsmziohcd.png" referrerpolicy="no-referrer">
+
+
+<strong>211322j66bobpqcyo5o6b1.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 13:57 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/135902bornz0z2qaqr9any.png" referrerpolicy="no-referrer">
+
+
+<strong>211323qz4jn2ewycnklvl7.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 13:59 上传
+
+
+
+
+
+如此
+
+
+
+
+
+
+211322j66bobpqcyo5o6b1.png
+(1.26 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-20 13:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/135835ya444bv5zww4wum4.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+223420bk1m1bfzbktmm78g.png
+(1.07 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-20 13:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/135817ktjpu5tjzu8tqmrj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1292#       发表于 2020-2-20 13:59
+
+
+
+
+这里是贴贴楼，白河豚gck
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1293#       发表于 2020-2-20 14:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说有没有774学家啊，想看看对774的深度刨析
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1294#       发表于 2020-2-20 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470816&amp;ptid=1914314" target="_blank">kbtit 发表于 2020-2-20 14:01</a>
+话说有没有774学家啊，想看看对774的深度刨析</blockquote>
+请去b站找乐一。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1295#       发表于 2020-2-20 14:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">爬，喜欢支持第三者有不是喜欢做第三者，喜欢女二号的又不是现实中就是女二号的位置，夸皇的阅读理解都不会做，还自称华语圈唯一夸anti,mk2真是德不配位，不要在继续让我失望了.jpg
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1296#       发表于 2020-2-20 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470830&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 14:02</a>
+爬，喜欢支持第三者有不是喜欢做第三者，喜欢女二号的又不是现实中就是女二号的位置，夸皇的阅读理 ...</blockquote>
+上一个替第三者说话的人是琼瑶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+她已经做了小三了。
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1297#       发表于 2020-2-20 14:04
+
+
+
+
+给774开个专楼吧，在这个楼只准咩夸
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1298#       发表于 2020-2-20 14:05
+
+
+
+<blockquote>普通人止戈 发表于 2020-2-20 13:59
+这里是贴贴楼，白河豚gck</blockquote>
+漫区滚出Vtb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+      
