@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 18:05** 
+> ## **本文件最后更新于2020-02-20 20:05** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_Q4Ovm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_egQaO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_CE22h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_OfIgR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_m2nMZ" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_I9iZf" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_PUDzZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_gMs8n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26353,10 +26353,1000 @@ mea受害者这人设是她自己一直坚持的啊
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不说，和五元的联动，真的被动么
+ 本帖最后由 惘时之轮 于 2020-2-20 18:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 
 
-  
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 1436#       发表于 2020-2-20 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473227&amp;ptid=1914314" target="_blank">惑星 发表于 2020-2-20 18:02</a>
+
+那能不能给我讲讲mea第一个推特是怎么被封的</blockquote>
+mea一开始的人设是嘴臭暴躁不良少女啊，和网友对线被封也是RP的一部分（）
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1437#       发表于 2020-2-20 18:07
+
+
+
+
+她不是迫害者吗，怎么成被害者了，你们天狗真有趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1438#       发表于 2020-2-20 18:07
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-2-20 18:08 编辑 
+
+没开v版前最大的流量不也是m楼里meaqua暗黑贴贴人车轱辘
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1439#       发表于 2020-2-20 18:09
+
+
+
+
+这楼里真的有天狗和crew吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1440#       发表于 2020-2-20 18:09
+
+
+
+
+贴贴最强！贴贴最强！
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1441#       发表于 2020-2-20 18:10
+
+
+
+
+推特被封那得diss蓝鸟啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">针对小管人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 1442#       发表于 2020-2-20 18:10
+
+
+
+
+不忘初心的话，大概还是有的，巨魔总抵有个地儿呀。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1443#       发表于 2020-2-20 18:11
+
+
+
+
+天狗被告变原告，习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1444#       发表于 2020-2-20 18:15
+
+
+
+
+是天狗，天狗杀了天狗
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1445#       发表于 2020-2-20 18:17
+
+
+
+
+这要变成哲学情商学习楼了。mea明显性格有弱点，她真要去蹭腿，能蹭的又不少。吊人太在乎别人的感受了，只敢对对她友善的人凶一下。
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这和天狗擅长内部肃清有异曲同工之妙
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1446#       发表于 2020-2-20 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">往好了说叫情商高，往坏了说叫心机婊喜欢反咬一口，什么事情都能把自己第一时间置于受害者的位置撇清关系博得同情心，别的不说，舆论方面就直接先+100了，不过看了这么久，你圈有这脑子的没几个，大多事情暴露都是反转反转再反转的
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 1447#       发表于 2020-2-20 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473325&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 18:11</a>
+
+天狗被告变原告，习惯了</blockquote>
+您钓鱼就钓鱼，别曲解我的意思谢谢
+
+我只是说mea处理问题的方法如此，怎么就成原告了？哪次mea出事不是马上先谢罪的？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1448#       发表于 2020-2-20 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473420&amp;ptid=1914314" target="_blank">诶呦我去这是哪 发表于 2020-2-20 18:20</a>
+
+您钓鱼就钓鱼，别曲解我的意思谢谢
+
+我只是说mea处理问题的方法如此，怎么就成原告了？哪次mea出事不是马 ...</blockquote>
+是是是，mea是犯了错主动道歉的好孩子，和犯了错误装傻的带恶人阿夸完全不一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1449#       发表于 2020-2-20 18:23
+
+
+
+ 本帖最后由 无限舰制 于 2020-2-20 18:24 编辑 
+
+窝里横还挺像猫的，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+但追着打还是有必要的
+
+
+syl，这人特长确实是谢罪啊，频繁到了反而会让对方不爽的程度
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1450#       发表于 2020-2-20 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说的是nt天狗又不是咩，硬举例子就是那年情人节炎上，基本都是nt天狗自己组织的，后来有人提起来部分人嘴里就变成圈外的咩anti故意煽动自己情绪才去炎上的了,哦对，还有说大姐开播就是刻意煽动粉丝情绪让粉丝去炎上咩的呢。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1451#       发表于 2020-2-20 18:28
+
+
+
+
+你大姐开播在那儿拿咩迟到疯狂整活收钱，说是煽风点火还特别冤枉了不成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就跟夸516时候唱🌻的操作异曲同工
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1452#       发表于 2020-2-20 18:28
+
+
+
+
+不要让我笑了，能在特殊事件中，损失最小化，收益最大化，就是情商高的体现。不然为啥说精英销售和精英公关都是高情商职业哪？（而且打工角度赚的最多）
+当然，以弱者的眼光，这帮人就是死狐狸，心机婊，利用利益诱饵，信息不对称，知识或者智商优势，去欺骗广大的普通人。
+套用名言：被人骗一定是被骗的人错，因为你太蠢。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1453#       发表于 2020-2-20 18:29
+
+
+
+
+不要让我笑了，能在特殊事件中，损失最小化，收益最大化，就是情商高的体现。不然为啥说精英销售和精英公关都是高情商职业哪？（而且打工角度赚的最多）
+当然，以弱者的眼光，这帮人就是死狐狸，心机婊，利用利益诱饵，信息不对称，知识或者智商优势，去欺骗广大的普通人。
+套用名言：被人骗一定是被骗的人错，因为你太蠢。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1454#       发表于 2020-2-20 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473468&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 18:25</a>
+
+说的是nt天狗又不是咩，硬举例子就是那年情人节炎上，基本都是nt天狗自己组织的，后来有人提起来部 ...</blockquote>
+难道不是吗?真当你们帕里坡温暖大家庭?人栞女士大龄人妻吃过的x不比你mea个雏看过的片都多?还想跟人玩心机?老老实实跪下来认错好吧。
+
+说到帕里坡，别忘了高女士跟某裁关系密切，谁知道是不是她给某裁透的底呢?
+
+恐怕整个帕里坡信得过的只有老熟人的miu了哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+（以上内容一条五毛，大概六点三十发）
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1455#       发表于 2020-2-20 18:34
+
+
+
+
+miu和阿律关系好，miu也不可信了，呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1456#       发表于 2020-2-20 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我不清楚事实如何，但是那天炎上咩的大多数是nt天狗这个我应该是没有记错的吧，事后回顾是被别人诱导了情绪就能把自己傻fufu上推炎上的行为正当化了，这不就是被告变原告么，我又不是p箱推，究竟如何我也管不着
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1457#       发表于 2020-2-20 18:42
+
+
+
+
+“当你麻因为实在太菜结果明明先出手却变成被对方追着打的状态该怎么进行道德评价”
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1458#       发表于 2020-2-20 18:46
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 18:48 编辑 
+
+“我本不想这么做，是，是那个魅魔！对，对，没错，我是被那个魅魔 魅惑了。”（泥潭怎么能打魅魔反过来却屏蔽的，神必）
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1459#       发表于 2020-2-20 18:49
+
+
+
+
+看看傻紫睡过头迟到的时候，同为一家之长的白少主是怎么做的好吧。事后粉丝去炎上少主了吗?说到底还是某些人之间本来就有嫌隙，睡过头只不过是一个契机好吧
+
+
+
+
+
+
+
+-----
+
+####  e2nck  
+##### 1460#       发表于 2020-2-20 18:53
+
+
+
+
+太弱智了这楼 你们是有多闲<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1461#       发表于 2020-2-20 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473651&amp;ptid=1914314" target="_blank">e2nck 发表于 2020-2-20 18:53</a>
+太弱智了这楼 你们是有多闲
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+过年了，大家脑子里长满了蘑菇。
+
+
+
+
+
+
+
+-----
+
+####  花泽酸菜  
+##### 1462#       发表于 2020-2-20 18:57
+
+
+
+
+本来关系就没多好吧，后面跟大姐都没啥联系的，直播模仿大姐的时候估计心里还在骂人bitch
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1463#       发表于 2020-2-20 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473586&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-2-20 18:42</a>
+“当你麻因为实在太菜结果明明先出手却变成被对方追着打的状态该怎么进行道德评价” ...</blockquote>
+别说哦，当初夸皇迫害别人过不了收益化，结果到了pubg里一转受害者的角色，培养出了第一批脑瘫crew和脑瘫贴贴人。还是夸皇牛逼。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1464#       发表于 2020-2-20 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473670&amp;ptid=1914314" target="_blank">花泽酸菜 发表于 2020-2-20 18:57</a>
+本来关系就没多好吧，后面跟大姐都没啥联系的，直播模仿大姐的时候估计心里还在骂人bitch ...</blockquote>
+酸菜你来了，正好拿来做酸菜鱼。
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1465#       发表于 2020-2-20 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473293&amp;ptid=1914314" target="_blank">JustW 发表于 2020-02-20 18:09:09</a>
+这楼里真的有天狗和crew吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是眼中有梁木的暗黑贴贴人，你在期待什么呢
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1466#       发表于 2020-2-20 19:11
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 19:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不是同一个事件哪来的被害者和加害者原被告的转化，mk2再评价，是时候找个更合格的夸anti力
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂|-1|鉴定：ig幼年体|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1467#       发表于 2020-2-20 19:22
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473740&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 19:11</a>
+不是同一个事件哪来的被害者和加害者原被告的转化，mk2再评价，是时候找个更合格的夸anti力 ...</blockquote>
+这该不是一个事？贴贴圣经不就是因为迫害mea所以来的惩罚吗，你傻了？没有必然关系？我到现在仍然觉得凑阿库娅是活该。更何况这次直播还有台本呢。你夸就该楚楚可怜哦
+那分不清青红皂白就来说mea的crew算不得帮凶喽。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1468#       发表于 2020-2-20 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1469#       发表于 2020-2-20 19:36
+
+
+
+
+阿夸平时是什么人，三字母平时是什么人，我相信大家都看在眼里，清者自清
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1470#       发表于 2020-2-20 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46473968&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 19:36</a>
+阿夸平时是什么人，三字母平时是什么人，我相信大家都看在眼里，清者自清 ...</blockquote>
+不是很清，恁讲讲？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1471#       发表于 2020-2-20 19:37
+
+
+
+
+md，看到ig发的话就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">受不了了
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1472#       发表于 2020-2-20 19:39
+
+
+
+
+ig又赢了， ig总是赢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1473#       发表于 2020-2-20 19:39
+
+
+
+
+我觉得ig说这话的时候可能也不知道，他现在正在想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1474#       发表于 2020-2-20 19:39
+
+
+
+
+我懂了，你在黑屁你自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  二岩枫  
+##### 1475#       发表于 2020-2-20 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“你品，你细品”有那味了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1476#       发表于 2020-2-20 19:42
+
+
+
+
+“自己心里已经有答案了，还要来问我？”
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1477#       发表于 2020-2-20 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“难道还非要我说出来吗，你摸着自己的良心好好想想罢”
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1478#       发表于 2020-2-20 19:46
+
+
+
+
+谜语人滚出大都会
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 1479#       发表于 2020-2-20 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">怎么都50页了这楼，太闲了吧
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1480#       发表于 2020-2-20 19:49
+
+
+
+
+三酱比阿夸也就早出道一个月，现在两个人都出道一年半
+
+三酱出过多少次节奏？阿夸又出过多少次节奏？
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1481#       发表于 2020-2-20 19:49
+
+
+
+
+那我单方面宣布IG胜利了 
+
+不服的扣我鹅
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1482#       发表于 2020-2-20 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474094&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 19:49</a>
+
+三酱比阿夸也就早出道一个月，现在两个人都出道一年半
+
+三酱出过多少次节奏？阿夸又出过多少次节奏？ ...</blockquote>
+感觉夸宝给S1带来了无尽的节奏风暴和这一千多层楼
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1483#       发表于 2020-2-20 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474106&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 19:50</a>
+
+感觉夸宝给S1带来了无尽的节奏风暴和这一千多层楼</blockquote>
+那是因为你们看阿夸眼红而已<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1484#       发表于 2020-2-20 19:53
+
+
+
+
+这ig就是硬钓，s1早就没鱼了！
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1485#       发表于 2020-2-20 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474118&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 19:51</a>
+那是因为你们看阿夸眼红而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我寻思宁家主子那么拙劣的表演迟早会被所有人都看透。眼红什么，眼红她早猝死吗？
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1486#       发表于 2020-2-20 19:55
+
+
+
+
+你是说夸哥得了急性结膜炎？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1487#       发表于 2020-2-20 19:56
+
+
+
+
+眼红那种居高临下的快感啊  一堆人舔你回你消息你可以挑选着回复  没被回到的还得想办法换个方式继续舔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1488#       发表于 2020-2-20 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474158&amp;ptid=1914314" target="_blank">素人不相识 发表于 2020-2-20 19:55</a>
+
+你是说夸哥得了急性结膜炎？</blockquote>
+那可要小心了！得了眼结膜血管膨胀了新冠病毒可是能进去的！
+
+crew们快给夸宝送全套防化服
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1489#       发表于 2020-2-20 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿夸不出节奏那是我们天狗隐忍受气，咩啊的节奏还不都是crew⛵天狗带起来的，他们人多，我们打不过啊。
+
+
+
+
+
+
+
+-----
+
+####  愛繋璃-まつり-  
+##### 1490#       发表于 2020-2-20 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474151&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-20 19:54</a>
+
+我寻思宁家主子那么拙劣的表演迟早会被所有人都看透。眼红什么，眼红她早猝死吗？ ...</blockquote>
+rinco的curryman舍不得用Guardian Angel留着给她用，怎么会猝死？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1491#       发表于 2020-2-20 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474188&amp;ptid=1914314" target="_blank">愛繋璃-まつり- 发表于 2020-2-20 19:58</a>
+rinco的curryman舍不得用Guardian Angel留着给她用，怎么会猝死？</blockquote>
+我还盼着她赶紧死，如果她尸体被偷了，不用想了，犯人肯定是我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
