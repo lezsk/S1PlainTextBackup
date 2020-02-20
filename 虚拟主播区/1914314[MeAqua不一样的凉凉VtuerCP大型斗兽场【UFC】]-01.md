@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 14:05** 
+> ## **本文件最后更新于2020-02-20 16:07** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_CIi3Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_n8XF6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_fr6Hr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_s3rG8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_RxZ66" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_DbbT4" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_coTx1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_kusu7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21829,10 +21829,11 @@ aqua不在。mea代替她爆播，熬死dd，谋财-&gt;害命
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 10战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| czhhws| + 1||
 | 追风小星星| + 1|怎么有正常人|
 | planetcd| + 1|贴贴人自食其果|
 | noaki| + 1|看看人家，学学人家|
@@ -23612,92 +23613,33 @@ aqua ...</blockquote>
 
 
 
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 14:46 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470729&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-20 13:53</a>
 
 怎么看出喜欢做小三的</blockquote>
 
-<img src="https://img.saraba1st.com/forum/202002/20/135754zvmssimhsmziohcd.png" referrerpolicy="no-referrer">
-
-
-<strong>211322j66bobpqcyo5o6b1.png</strong> (1.26 MB, 下载次数: 0)
-
-下载附件
-
-2020-2-20 13:57 上传
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202002/20/135902bornz0z2qaqr9any.png" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202002/20/144601nqrpayzae909hx94.png" referrerpolicy="no-referrer">
 
 
 <strong>211323qz4jn2ewycnklvl7.png</strong> (1.32 MB, 下载次数: 0)
 
 下载附件
 
-2020-2-20 13:59 上传
+2020-2-20 14:46 上传
 
 
 
 
 
-如此
+<img src="https://img.saraba1st.com/forum/202002/20/144556wjkkxb4kx8xw5j8v.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-211322j66bobpqcyo5o6b1.png
-(1.26 MB, 下载次数: 0)
-
-
-
+<strong>211322j66bobpqcyo5o6b1.png</strong> (1.26 MB, 下载次数: 0)
 
 下载附件
 
+2020-2-20 14:45 上传
 
-2020-2-20 13:58 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202002/20/135835ya444bv5zww4wum4.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-223420bk1m1bfzbktmm78g.png
-(1.07 MB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-2-20 13:58 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202002/20/135817ktjpu5tjzu8tqmrj.png" referrerpolicy="no-referrer">
 
 
 
@@ -23780,10 +23722,14 @@ aqua ...</blockquote>
 
 
 
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 14:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46470830&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-20 14:02</a>
 爬，喜欢支持第三者有不是喜欢做第三者，喜欢女二号的又不是现实中就是女二号的位置，夸皇的阅读理 ...</blockquote>
 上一个替第三者说话的人是琼瑶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 她已经做了小三了。
+我们再来专门分析一下，如果774mea在前，那么夸就是小三。
+如果meaqua在前，那么aqua喜欢第三者，第三者是774，所以夸皇喜欢774。
+结论meaqua774永不分手。
 
 
 
@@ -23822,4 +23768,1265 @@ aqua ...</blockquote>
 
 
 
-      
+
+
+-----
+
+####  plazum  
+##### 1299#       发表于 2020-2-20 14:05
+
+
+
+<blockquote>普通人止戈 发表于 2020-2-20 14:04
+给774开个专楼吧，在这个楼只准咩夸</blockquote>
+已经有另一个没有774的楼了，标题也是meaqua
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1300#       发表于 2020-2-20 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你这论证让我怀疑你概率和逻辑也不咋地，能不能拿出来点有劲的东西啊
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1301#       发表于 2020-2-20 14:07
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-20 14:04
+上一个替第三者说话的人是琼瑶
+
+她已经做了小三了。</blockquote>
+为了黑已经不顾逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1302#       发表于 2020-2-20 14:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是那个疑似草牛先提的774，还真不一定会拉这个死人出来聊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1303#       发表于 2020-2-20 14:08
+
+
+
+
+他拯救了你区的流量
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1304#       发表于 2020-2-20 14:09
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 14:12 编辑 
+
+我们再来专门分析一下，如果774mea在前，那么夸就是小三。
+如果meaqua在前，那么aqua喜欢第三者，第三者是774，所以夸皇喜欢774。
+结论meaqua774永不分手。
+再有，夸皇是不是曾经想插足大福与熊猫人之间。
+再者，之前也一直流传着凛子抢了某个人男朋友，因此连累爱小姐和某人断交的故事。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1305#       发表于 2020-2-20 14:10
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-20 14:12 编辑 
+
+喜欢支持第三者不就是从六字母中默默退出，给mea774留下位置么，你这逻辑越来越弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不对，我悟了，这才是华语圈唯一夸ANTI应有的水准啊，不顾概率的逻辑的黑，你以为他是弱智，实际上他是在弱智RP从大家都想不到的层面来黑屁，MK2，你好伟大。MK2，永远的神。
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1306#       发表于 2020-2-20 14:10
+
+
+
+
+我meaqua不需要流量，不要没话找话
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 1307#       发表于 2020-2-20 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">774aqua在前，mea是第三者，夸皇喜欢mea
+
+meaqua贴贴！
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1308#       发表于 2020-2-20 14:11
+
+
+
+<blockquote>plazum 发表于 2020-2-20 14:05
+已经有另一个没有774的楼了，标题也是meaqua</blockquote>
+那个是正经咩夸，这个是咩夸角斗，总之都不应该出现咩774等其他cp。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1309#       发表于 2020-2-20 14:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这还华语第一？你这是不把Y老哥放在眼里，来人上大亏哥无情论
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1310#       发表于 2020-2-20 14:13
+
+
+
+<blockquote>普通人止戈 发表于 2020-2-20 14:11
+那个是正经咩夸，这个是咩夸角斗，总之都不应该出现咩774等其他cp。</blockquote>
+也有道理
+
+但是774不是Vtb啊
+
+ANMR的774倒是更像Vtb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1311#       发表于 2020-2-20 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">屠龙者必将成为龙，所有的一切都连起来了，这——就是宿命
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1312#       发表于 2020-2-20 14:19
+
+
+
+
+草 终于有意思起来了，一直下三路真的很无聊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1313#       发表于 2020-2-20 14:26
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-2-20 14:29 编辑 
+
+y1s1， 我对mk2的理论水平已经不满很久了。 今天就由在下献丑发表一下我的猜想：
+
+
+《二创毁灭咩夸论》
+
+abstract - 对于咩夸渐行渐远这个现象， 研究者们众说纷纭已久， 依然没有一个能让大众接受的说法。 
+
+笔者通过长期的圈子观察， 对企业行为方式的考察， 得出了一个新的猜想， 望对同行们有所启发。 
+
+首先， 我的结论是 - 反客为主， 脱离V（和企业）掌控的二创使Holo的决策者最终做出了切割。本文的讨论集中于
+
+1. 长期b限特供
+
+2. 咖啡厅和打钱和在谁的直播间播？
+
+3. 二创的流量和曝光度
+
+....
+
+....
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1314#       发表于 2020-2-20 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471079&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-2-20 14:26</a>
+
+y1s1， 我对mk2的理论水平已经不满很久了。 今天就由在下献丑发表一下我的猜想：
+
+
+《二创毁灭咩夸论》</blockquote>
+爬，都是省略号算个锤子理论
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1315#       发表于 2020-2-20 14:28
+
+
+
+
+不行，你这太复杂了，crew不可能看懂。
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1316#       发表于 2020-2-20 14:30
+
+
+
+
+大亏无情论那都上个世纪的活化石了  整点新活好吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 1317#       发表于 2020-2-20 14:30
+
+
+
+
+mk2除了话多理论水平还不如yexuning<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1318#       发表于 2020-2-20 14:32
+
+
+
+
+516人血馒头好歹我搞出来的，夸皇男朋友石也是。774aqua也是。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1319#       发表于 2020-2-20 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">MK2看不懂就觉得CREW也看不懂了，CREWMK2贴贴！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1320#       发表于 2020-2-20 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471093&amp;ptid=1914314" target="_blank">oifaker 发表于 2020-2-20 14:27</a>
+
+爬，都是省略号算个锤子理论</blockquote>请原谅我， 并允许我当个谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1321#       发表于 2020-2-20 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1322#       发表于 2020-2-20 14:35
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-20 14:37 编辑 
+
+有一说一，贴贴谜语人都可以用昨天晚上mea回复aqua来制糖了。实在空虚。贴贴人的想象力只有在如此方向上才能如此飞跃，他们咋不往相反方向想想？
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1323#       发表于 2020-2-20 14:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴人不往那个方向想叫你ma贴贴人呢，至于往相反方向想，补充可能性，那是我们暗黑贴贴人的活，可是就像你说的那样，它不空虚么？
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1324#       发表于 2020-2-20 14:48
+
+
+
+
+暗黑贴贴贴贴贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1325#       发表于 2020-2-20 14:52
+
+
+
+
+虚空制糖反而需要想象力吧，暗黑贴贴人需要啥想象力，口嗨就完事了。话说你们去看看斑鸠佬昨晚在b博发的虚空咩夸糖，好甜，好爽。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| planetcd| + 1|多谢提醒，笑尿了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1326#       发表于 2020-2-20 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471289&amp;ptid=1914314" target="_blank">普通人止戈 发表于 2020-2-20 14:52</a>
+
+虚空制糖反而需要想象力吧，暗黑贴贴人需要啥想象力，口嗨就完事了。话说你们去看看斑鸠佬昨晚在b博发的虚 ...</blockquote>
+可惜亏皇甚至不肯动用她可爱的小脑瓜子思考哪怕5秒钟敷衍一下
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1327#       发表于 2020-2-20 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">亏皇这不是再故意搞迷惑操作给你楼讨论热度么，“……前略，某外国主播得知一华语论坛新开VTB版担心这版开始没有流量甚至后劲不足，后略……”
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1328#       发表于 2020-2-20 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471389&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 15:05</a>
+
+可惜亏皇甚至不肯动用她可爱的小脑瓜子思考哪怕5秒钟敷衍一下</blockquote>
+当然是为了体恤粉丝啊，你看要是她回复了，画师岂不是还得再制一波糖。亏亏大天使，不想让粉丝太辛苦呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 1329#       发表于 2020-2-20 15:08
+
+
+
+<blockquote>SumW5 发表于 2020-2-20 15:05
+可惜亏皇甚至不肯动用她可爱的小脑瓜子思考哪怕5秒钟敷衍一下</blockquote>
+害，人家夸哥脑子里千层博弈的结果是不回复，你才看到第几层？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1330#       发表于 2020-2-20 15:10
+
+
+
+
+惊闻这楼流量快没了，于是特地来为大家添上2块旧柴火和1块新柴火
+
+大家加油<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/150519ba1taku931pg3akk.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (53.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 15:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/150837iqf1fp3bp6969oam.png" referrerpolicy="no-referrer">
+
+
+<strong>4.png</strong> (21.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/150539w79595195ei13ee7.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (24.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 15:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1331#       发表于 2020-2-20 15:11
+
+
+
+
+mk2狂喜
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1332#       发表于 2020-2-20 15:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意料之外（指明面上回复哪怕是装的也不干），情理之中（忆往昔峥嵘岁月稠）。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1333#       发表于 2020-2-20 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471439&amp;ptid=1914314" target="_blank">路人庚 发表于 2020-2-20 15:10</a>
+
+惊闻这楼流量快没了，于是特地来为大家添上2块旧柴火和1块新柴火
+
+大家加油</blockquote>
+庾酱基德啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1334#       发表于 2020-2-20 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1335#       发表于 2020-2-20 15:24
+
+
+
+
+来个大手子分析一波 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1336#       发表于 2020-2-20 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">也许可能会有误解（真的会有吗？），再补充一个
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/152931xwvszdjpr6ppdwce.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (9.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 15:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Adagaki_Aki  
+##### 1337#       发表于 2020-2-20 15:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 1338#       发表于 2020-2-20 15:33
+
+
+
+
+乌冬的好きな人推不是鸡汤定型文吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过16岁好巧啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1339#       发表于 2020-2-20 15:36
+
+
+
+
+乌冬大亏贴贴！
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1340#       发表于 2020-2-20 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471439&amp;ptid=1914314" target="_blank">路人庚 发表于 2020-2-20 15:10</a>
+
+惊闻这楼流量快没了，于是特地来为大家添上2块旧柴火和1块新柴火
+
+大家加油</blockquote>
+这说的不就是三酱吗
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1341#       发表于 2020-2-20 15:37
+
+
+
+
+虽然是老家伙，但是分析还是听不厌的，多来点带手子的分析<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1342#       发表于 2020-2-20 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471698&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 15:37</a>
+这说的不就是三酱吗</blockquote>
+对话在18年124，想想18年127卡古拉小姐发生了什么，亏小姐喜欢第三者<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这应该发到绿帽楼的
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1343#       发表于 2020-2-20 15:41
+
+
+
+
+这就是紫色相簿，爱了爱了！！！！
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1344#       发表于 2020-2-20 15:45
+
+
+
+
+18年的16岁肯定不是凛酱这个老女人了 是麻酱   4-7号这三天究竟发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1345#       发表于 2020-2-20 15:47
+
+
+
+
+三酱被透了然后甩了呗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1346#       发表于 2020-2-20 15:48
+
+
+
+
+就不能mea看到了aqua被774透？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1347#       发表于 2020-2-20 15:49
+
+
+
+
+日语文盲求大佬翻译下啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1348#       发表于 2020-2-20 15:49
+
+
+
+
+18年124这俩老女人一个17一个18啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1349#       发表于 2020-2-20 15:50
+
+
+
+
+现有的证据都具有微妙的两面性，无论从哪个方向进行推论都可以恰到好处的没有问题
+
+这种宛若海猫黑箱一样的作品实在是让人欲罢不能<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+比如我先说一句红色真实：18年在场的人里没有一个人是16岁<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1350#       发表于 2020-2-20 15:52
+
+
+
+
+18年的16岁，219的诞生日，不用我多说了吧，怎么一股闺蜜有了男友然后作为好友敲打男友的即视感的，这也太二次元力
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1351#       发表于 2020-2-20 15:53
+
+
+
+
+确定不是和闺蜜男友私通？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1352#       发表于 2020-2-20 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471830&amp;ptid=1914314" target="_blank">路人庚 发表于 2020-2-20 15:50</a>
+
+现有的证据都具有微妙的两面性，无论从哪个方向进行推论都可以恰到好处的没有问题
+
+这种宛若海猫黑箱一样的 ...</blockquote>
+u18r是不是16岁？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1353#       发表于 2020-2-20 15:54
+
+
+
+
+你这年份月份混着来把一堆星际选手绕进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 1354#       发表于 2020-2-20 15:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/155437n49ckc27u9t9iur7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200220154859.jpg</strong> (225.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 15:54 上传
+
+
+
+
+
+这人的喜欢的人xxxxx不是常用定型推吗~~~所以一直搞不懂乌冬这个人~~~
+
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1355#       发表于 2020-2-20 15:57
+
+
+
+
+没准是跟亏皇炫耀自己透到了小麻 看那表情就像在yygq 尤其是亏皇的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1356#       发表于 2020-2-20 15:57
+
+
+
+
+我倒是希望他不曝光乌冬的生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1357#       发表于 2020-2-20 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46471857&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 15:54</a>
+
+u18r是不是16岁？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">但首先你要证明u18r当时“在场”啊
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 1358#       发表于 2020-2-20 15:58
+
+
+
+
+红色真实草  蓝色真实来了来了  
+阿乌说的是某个麻友 结果小麻却因为麻友的帮助住进了他家   阿夸所说的支持第三者   其实是小麻和阿乌的恋情啊 meaqua贴贴
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1359#       发表于 2020-2-20 15:59
+
+
+
+
+《咩夸联动之时》原作- 龙骑士774<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1360#       发表于 2020-2-20 16:01
+
+
+
+
+meaqua原来是这么深奥的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1361#       发表于 2020-2-20 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">龙骑士？那谁是龙
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1362#       发表于 2020-2-20 16:03
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么在车轱辘乌冬
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1363#       发表于 2020-2-20 16:04
+
+
+
+
+meaqua，没有爱就无法看见魔法结局喔
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1364#       发表于 2020-2-20 16:04
+
+
+
+
+咩咩多拉贡，夸夸不死鸟，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+    
