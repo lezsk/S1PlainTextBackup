@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 04:06** 
+> ## **本文件最后更新于2020-02-20 12:04** 
 
 
 
@@ -18494,7 +18494,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_OqABc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPyqzDVUcAAs2sj?format=jpg&amp;name=large" id="aimg_d6GYY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18509,7 +18509,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_NDzZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPcGqEjVUAATDkY?format=jpg&amp;name=large" id="aimg_FH5ii" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18559,7 +18559,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_LEJ43" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
+<img src="https://pbs.twimg.com/media/EPbthSVUUAAc4TM?format=jpg&amp;name=small" height="680" id="aimg_sKEkm" onclick="zoom(this, this.src, 0, 0, 0)" width="625"/)
 
 
 
@@ -18590,7 +18590,7 @@ apex那回我刚好爬完病栋，吃屎赶上了热乎的。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_geUs2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EPaxvS-UEAIJkAo?format=jpg&amp;name=large" id="aimg_FppNn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21537,4 +21537,949 @@ mea竟然直播玩黑底白字，你也吃我咩人血馒头？<img src="https:/
 
 
 
-          
+
+
+-----
+
+####  weiweiEX  
+##### 1178#       发表于 2020-2-20 04:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467182&amp;ptid=1914314" target="_blank">czhhws 发表于 2020-2-20 02:49</a>
+希望也就都搁这聊了
+个人还是不希望两边打得头破血流</blockquote>
+这边不就是屎坑互泼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于会不会变成两边头破血流，这应该主要由粉丝构成决定
+现在mea和holo的联动的还挺多的，有比较大的重合粉丝比例，那就打不起来
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 1179#       发表于 2020-2-20 04:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+一边整天YY虚空制糖
+
+
+一边整天YY她们俩心理活动
+
+
+在我看来你们都挺贴贴的 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1180#       发表于 2020-2-20 07:18
+
+
+
+
+墙内贴贴人，墙外陌生人
+
+夸皇，这也在你的计算之中吗？夸皇，你好强大！
+
+继续这样下去的话，也许连狐皇都能食杀！
+
+郡道roa贴贴！
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1181#       发表于 2020-2-20 07:20
+
+
+
+
+lizean贴贴！
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1182#       发表于 2020-2-20 07:23
+
+
+
+
+我不服！！！！！郡道绿仙贴贴！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1183#       发表于 2020-2-20 07:27
+
+
+
+
+狐皇什么臭弟弟  早拉夸了  现在要食杀的是龙皇<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1184#       发表于 2020-2-20 07:55
+
+
+
+
+龙皇别想了，人家是降维打击，还是想想怎么抱龙皇大腿吧，mea774aqua三个人捆在一起也不够龙皇打的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1185#       发表于 2020-2-20 08:11
+
+
+
+
+警惕和平演变成斗虫楼
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1186#       发表于 2020-2-20 08:14
+
+
+
+
+aqua不在。mea代替她爆播，熬死dd，谋财-&gt;害命
+
+如今aqua回来，mea就退位了，害命-&gt;谋财
+
+糖，awsl
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">复制真好玩
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1187#       发表于 2020-2-20 08:20
+
+
+
+
+警惕和平演变为贴贴言论品鉴楼
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1188#       发表于 2020-2-20 08:27
+
+
+
+
+00后情弱麻玩不过你凛不正常么？麻酱u18贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1189#       发表于 2020-2-20 08:30
+
+
+
+
+有一说一，三酱爬回去抱u18r大腿还可以的，希望三酱远离VTB
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 1190#       发表于 2020-2-20 08:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467588&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-20 07:18</a>
+
+墙内贴贴人，墙外陌生人
+
+夸皇，这也在你的计算之中吗？夸皇，你好强大！
+
+继续这样下去的话，也许连狐皇都能 ...</blockquote>
++1
+
+这次推特回复了郡道还回复了组长，其心用意险恶，简直是司马昭之心路人皆知
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1191#       发表于 2020-2-20 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46467588&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-02-20 07:18:48</a>
+墙内贴贴人，墙外陌生人
+
+夸皇，这也在你的计算之中吗？夸皇，你好强大！
+
+继续这样下去的话，也许连狐皇都能 ...</blockquote>其他我不知道，夸皇食杀泥潭是一定的，一天下来V区90%贴都是夸皇相关
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 1192#       发表于 2020-2-20 10:19
+
+
+
+
+谈一下我看meaqua至今的感受吧。。。
+
+从去年3月开始看这对CP，本来认为她们只是无话不谈的好朋友关系，后来在4、5月份那浓厚的贴贴氛围下误以为是真正的百合，最后还是被无情地打破了。
+
+虽然我没有到处刷贴贴，但对meaqua现在这个处境还是有点愧疚，贴贴行为会不会影响了她们原本的关系呢？
+
+现在直播间和评论区还是有人到处乱刷对方，看着很别扭，希望这种只会添乱的行为能冷却下来。
+
+希望到最后她们还是很好的朋友吧。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SNOWIMEA| + 1|正常人真的太少了|
+| dorasir| + 1|希望大家多一点zqsg，少一点yygq.|
+| 魔法使い2019| + 1|是纯良人啊|
+| 儒门正御应无骞| + 1|是正常人|
+| jhouo8989| + 1|感动，是正常人|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 1193#       发表于 2020-2-20 10:32
+
+
+
+
+干，加了鹅才发现是小号
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1194#       发表于 2020-2-20 10:33
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-2-20 10:36 编辑 
+
+在下有一个理论: 
+
+holo的staff在监视这个新建的vtb版， 一看到你们的暗黑贴贴能量就吓得让大亏远离mea了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+棒打鸳鸯<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+看看你们干的好事!!!<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1195#       发表于 2020-2-20 10:34
+
+
+
+
+嗯？我就是holo的人啊
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1196#       发表于 2020-2-20 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1197#       发表于 2020-2-20 10:53
+
+
+
+
+A酱一周年还来推下zqsg，这个锅不接嗷。倒不如说大亏哥那自律性要真不愿意会听你holo士大夫安排吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，说到这里拜年祭缺席越来越有内味了呢（甩钩
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1198#       发表于 2020-2-20 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46468687&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-2-20 10:33</a>
+
+在下有一个理论: 
+
+
+holo的staff在监视这个新建的vtb版， 一看到你们的暗黑贴贴能量就吓得让大亏远离mea了[f ...</blockquote>
+泥潭配吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 1199#       发表于 2020-2-20 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46468797&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-20 10:48</a>
+
+开始甩锅holo的sb staff了吗？ 以前a酱对mea还是蛮热情的吧
+
+
+  -- 来自 能手机投票的 Stage1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">不要黑A酱，她还和咩有互动呢，锅要甩给夸不知名的P
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1200#       发表于 2020-2-20 11:04
+
+
+
+
+阿夸的某不知名p都把阿夸搞自爆了，还是别提那个sb了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
+holo肯定想收编过mea就是了，但是为啥有天时地利人和的时候没谈下来，我也蒙在鼓里。真收进holo，不就可以随意贴贴了吗！
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 1201#       发表于 2020-2-20 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46468842&amp;ptid=1914314" target="_blank">dent 发表于 2020-2-19 18:54</a>
+
+不要黑A酱，她还和咩有互动呢，锅要甩给夸不知名的P</blockquote>
+你说的这个P，是不是石先说的夸皇的男朋友，原来是吃醋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1202#       发表于 2020-2-20 11:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">收编然后给holo送钱？我三小姐可没这么傻
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 1203#       发表于 2020-2-20 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46468932&amp;ptid=1914314" target="_blank">dorasir 发表于 2020-2-20 11:05</a>
+
+你说的这个P，是不是石先说的夸皇的男朋友，原来是吃醋了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">这个切入角度很新颖
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1204#       发表于 2020-2-20 11:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/20/110918bji5u0buzimispud.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200220110854.jpg</strong> (21.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-20 11:09 上传
+
+
+
+
+
+图来
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1205#       发表于 2020-2-20 11:10
+
+
+
+
+天狗又在yy了，也不撒泡尿照照自己主子长什么逼样，那有偶像组合要把姘妇搞进来的，倒贴钱都不要<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1206#       发表于 2020-2-20 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46468978&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-20 11:10</a>
+天狗又在yy了，也不撒泡尿照照自己主子长什么逼样，那有偶像组合要把姘妇搞进来的，倒贴钱都不要 ...</blockquote>
+所以夸皇有个高学历男朋友？
+
+
+
+
+
+
+
+-----
+
+####  wudingan  
+##### 1207#       发表于 2020-2-20 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">md在V区也是流量王了，确实是大物
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1208#       发表于 2020-2-20 11:18
+
+
+
+
+mea那个体量  holo吃得下吗！！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 1209#       发表于 2020-2-20 11:19
+
+
+
+
+这楼应该让p站贴贴粉多看看，那群人把我恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1210#       发表于 2020-2-20 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469071&amp;ptid=1914314" target="_blank">gaayas 发表于 2020-2-20 11:19</a>
+这楼应该让p站贴贴粉多看看，那群人把我恶心坏了</blockquote>
+他们交不出五块钱的
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 1211#       发表于 2020-2-20 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469062&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-20 11:18</a>
+
+mea那个体量  holo吃得下吗！！！
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+就那区区13w刚过银盾线的订阅数，被ban2次才8w的推关注数，日常1200的可怜同接数也好意思和杏花村谈价钱？是看不起夸还是看不起yagoo呢<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 1212#       发表于 2020-2-20 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469078&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-20 11:20</a>
+
+他们交不出五块钱的</blockquote>
+只要看，不要回复，不然这楼炸了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1213#       发表于 2020-2-20 11:22
+
+
+
+
+一期时候利香都吃的进去，有啥吃不进去的。完全看想不想吃。 
+holo是个偶像组合不都是梗了嘛，而且麻酱偶像度比不上holo的网瘾少女们？我不服！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1214#       发表于 2020-2-20 11:23
+
+
+
+
+石头人不是说夸皇分手了吗，想想看和夸因为所谓私事停播的时间重合，大抵就是这个时候。
+
+不过夸夸本来是想带咩咩上分去东蛋的，看来咩没有这个野心了于是裂痕大概就是这么开始的
+
+毕竟夸夸以后是要去东蛋的，十八线小主播还是吃一记 RINCO KICK
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1215#       发表于 2020-2-20 11:24
+
+
+
+ 本帖最后由 笋狐 于 2020-2-20 11:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那么，蓝发大姐姐正式被收编前的数据是多少呢
+
+
+syl，先不说讨厌被人p，这人的风格和杏花村那套芳文社风格也不搭啊，成天下三路谈男人是想把holo炸了吗
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1216#       发表于 2020-2-20 11:26
+
+
+
+ 本帖最后由 ひびき 于 2020-2-20 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469089&amp;ptid=1914314" target="_blank">dent 发表于 2020-2-20 11:21</a>
+
+就那区区13w刚过银盾线的订阅数，被ban2次才8w的推关注数，日常1200的可怜同接数也好意思和杏花村谈价钱 ...</blockquote>
+你也不看看中国财布多有钱，两天60w的SC，情人节一晚上20几万
+
+
+
+倒不如说收进来是双输的局面，对于mea，要白交分成；对于木口，516这种事放在企业扛不住的，人见就是前例
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1217#       发表于 2020-2-20 11:40
+
+
+
+
+唉， 如果凛真的像暗黑贴贴民说的一样心机， 那我反而要嘎吃了。 萝莉身高， 巨乳， 5岁rp， 实际腹黑心机一盘大棋。 什么叫2次元啊!? <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 1218#       发表于 2020-2-20 11:42
+
+
+
+
+二不起二不起
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 1219#       发表于 2020-2-20 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">你是打块比蓝发大姐姐好,还是唱的比蓝发大姐姐好.还是长得比蓝发大姐姐好,蓝发大姐姐再怎么说也做过湾区陪酒女,同居富二代下不去屌的还是别嗦了吧,最多也只做过超市收银员.
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">而且holo要的是'原石'
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 1220#       发表于 2020-2-20 11:45
+
+
+
+
+钓，疯狂的钓
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1221#       发表于 2020-2-20 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469278&amp;ptid=1914314" target="_blank">zilch_ren 发表于 2020-02-20 11:43:18</a>
+而且holo要的是'原石'</blockquote>星街做过陪酒女？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1222#       发表于 2020-2-20 11:50
+
+
+
+
+去年2～5月holo有啥，你当是现在啊。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">油管同接订阅涨的慢，sc高不起来，该摸鱼的摸鱼，该ghs的ghs。中国市场还碰上彩虹强势进驻准备人海淹死holo。当时全社能勉强和彩虹掰掰手腕的只有夸皇一人。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1223#       发表于 2020-2-20 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46469247&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-2-20 11:40</a>
+
+唉， 如果凛真的像暗黑贴贴民说的一样心机， 那我反而要嘎吃了。 萝莉身高， 巨乳， 5岁rp， 实际腹黑心机 ...</blockquote>
+饭勺（指正）
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1224#       发表于 2020-2-20 11:53
+
+
+
+
+这一转星街我没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1225#       发表于 2020-2-20 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，有人说进holo要体量啥的，在下才好奇星街被收编前的数据啊，这也能转，鱼塘待久了看啥都是钩咯
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1226#       发表于 2020-2-20 12:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">数据就是一般底边水平啊，刚进的时候好像就3000订阅吧
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1227#       发表于 2020-2-20 12:04
+
+
+
+
+体量那个是我前两天看见有人说holo不敢收猫宫  吃不下  <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+         
