@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-12 15:51** 
+> ## **本文件最后更新于2020-02-22 01:11** 
 
 
 
@@ -3413,4 +3413,385 @@ In the end, the company hopes to have a handful of antibodies that can be packag
 
 
 
-                                            
+
+
+-----
+
+####  coldhot3  
+##### 168#       发表于 2020-2-12 22:01
+
+
+
+<blockquote>aiplus 发表于 2020-2-11 20:05
+最近没有新的消息了，连新谣言都没有了
+
+静观其变吧</blockquote>
+说明至少没好到直接破盲了，也没出tgn1412那样的事情
+
+
+
+
+
+
+
+-----
+
+####  lampharelove  
+##### 169#       发表于 2020-2-12 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46349189&amp;ptid=1911821" target="_blank">tillnight 发表于 2020-2-7 08:52</a>
+
+**** 作者被禁止或删除 内容自动屏蔽 ****</blockquote>
+患者病程到了中晚期，病毒负荷会自行下降，因为接下来重点就是引发的自身免疫风暴和肺组织一起自爆了。
+
+
+
+
+
+
+
+-----
+
+####  lampharelove  
+##### 170#       发表于 2020-2-13 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46390135&amp;ptid=1911821" target="_blank">walawa 发表于 2020-2-11 18:45</a>
+
+体内和体外实际是两种情况，可能体外会很好但是体内不一定有效果的也多了去了。
+
+
+说实话，不是很看好，你 ...</blockquote>
+我孤陋寡闻，但是在我的认识里，体外实验/动物实验效果好，上了临床实验就失败的药物，要么是针对的疾病发病过程复杂，多因素发病，或者实验动物模型不能很好模拟真实疾病情况，比如比如高血压/恶性肿瘤/腹主动脉瘤这种。
+
+而对于R药这样一个精确针对病毒复制过程开火+IC50超级低的药物，作用机制明确，副作用在ebola的I期临床已经证实了可以接受，此次针对新冠早中期病人的临床实验我认为基本没有失败的可能（此时的主要矛盾就在于抑制病毒的复制），重症和晚期患者效果不好说因为此时的主要矛盾在于炎性因子风暴和自身免疫过程，和病毒本身已经没啥关系。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| dpdwx|-1|精确靶点+ic50低的angiostatin已经死过了，.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ❃✽✾✶✻✼  
+##### 171#       发表于 2020-2-13 00:59
+
+
+
+<blockquote>lampharelove 发表于 2020-2-13 00:33
+我孤陋寡闻，但是在我的认识里，体外实验/动物实验效果好，上了临床实验就失败的药物，要么是针对的疾病 ...</blockquote>
+因为致病因素的移除和痊愈之间还有很大的距离
+
+
+另一方面体外有效和体内有效还有代谢的距离     
+
+
+从这个药之前对埃博拉的临床来看    这两方面应该都有问题
+
+
+甚至有人说就这个报道说的给药有效都是设计的功劳     在病程后半段给药     给不给都会大幅好转的       估计给双黄连也行
+
+
+
+
+疾病的治疗是系统性的     一切以临床实验为准     其它都是假的     要是业内可以分析分析   对自己的工作能提供资料    最重要还是动手做     
+
+
+一般人没有动手做的能力    关注这个就是中了算计     把这些信息披露给大众一律可以认为别有用心     证监会警告
+
+
+
+
+
+
+
+-----
+
+####  aiplus  
+##### 172#       发表于 2020-2-13 22:13
+
+
+
+
+
+2月13日，据中国临床试验注册中心显示，「托珠单抗」登记了一项在新型冠状病毒肺炎(COVID-19)中的有效性及安全性的多中心、随机对照临床研究（注册号：ChiCTR2000029765 ）。
+
+
+
+该项研究的目的是评估托珠单抗治疗普通型NCP（含重症高危因素）及重型NCP患者的有效性和安全性 。
+
+[https://mp.weixin.qq.com/s/8U78yWUpdDz4Y_F27UjxDw](https://mp.weixin.qq.com/s/8U78yWUpdDz4Y_F27UjxDw)
+
+
+国内于2013年3月首次获批，用于治疗对改善病情的抗风湿药物（DMARDs）治疗应答不足的中到重度活动性类风湿关节炎的成年患者。与甲氨蝶呤（MTX）或其它 DMARDs 联用。
+
+此前新冠肺炎一线治疗的专家表示，新冠病人有的早期发病并不是非常凶险，但是后期突然会一个加速，从表面上看，病人的体内可能启动了一种炎症的风暴，这种炎症的风暴导致了各个器官功能的衰竭，很多病人死于肺外的多器官功能的衰竭。
+
+
+炎症风暴也就是我们说的细胞因子风暴，指机体感染微生物后引起体液中多种细胞因子如TNF-α、IL-1、IL-6、IL-12、IFN-α、IFN-β、IFN-γ、MCP-1和IL-8等迅速大量产生的现象，是引起急性呼吸窘迫综合症和多器官衰竭的重要原因。
+
+
+中国免疫学会表示，经过初步临床观察，2019-新型冠病毒感染重症患者出现了IL-6，TNF-a，IFN-γ等促炎性细胞因子的显著升高，具有细胞因子风暴的特征。
+
+
+新冠肺炎重症患者体内发生激烈的免疫细胞因子风暴，不但发烧、消耗大，而且免疫细胞攻击自身正常的组织，危重患者在多重夹击下，极易丧命。
+
+
+托珠单抗是重组人IL-6单克隆抗体，可与可溶解型和膜结合型IL-6受体(sIL-6R和mIL-6R)特异性结合，抑制IL-6介导的信号转导，从而降低炎症反应。曾在 PD-1 使用过程中引起的细胞因子风暴中发挥作用。
+
+
+本次登记的临床试验不仅包括普通NCP患者还包括重症患者，目前登记的众多新冠肺炎临床试验中，仅有1/4针对重症患者，重症患者的临床用药也非常有限，我们也期待托珠单抗对新冠肺炎重症患者起效。
+
+
+
+
+
+
+
+
+-----
+
+####  aiplus  
+##### 173#       发表于 2020-2-14 11:48
+
+
+
+
+上班摸鱼，把WHO 2018年关于瑞德西韦以及其他三种埃博拉药物的总结看了一遍
+
+[https://www.who.int/ebola/drc-20 ... erapeutics.pdf?ua=1](https://www.who.int/ebola/drc-2018/summaries-of-evidence-experimental-therapeutics.pdf?ua=1)
+
+
+瑞德西韦制剂成品是冻干粉，常温保存可以至少三年，所以不需要冷链运输
+
+使用是输液形式，用生理盐水配液至350ml，前面的视频也印证了这一点
+
+
+另外mab114这个单抗，是来源于埃博拉痊愈者的血清中分离提取，然后拿到CHO细胞里去大规模培养表达结合新冠那个痊愈者血浆抗体的新闻，这也是条路，但是研发过程太漫长了，等不起……
+
+
+
+
+
+
+
+-----
+
+####  ycwzq  
+##### 174#       发表于 2020-2-14 11:54
+
+
+
+
+用CarT的时候，针对CRS还有一招：血浆置换
+
+
+
+
+
+
+
+-----
+
+####  aiplus  
+##### 175#       发表于 2020-2-14 12:04
+
+
+
+ 本帖最后由 aiplus 于 2020-2-14 12:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46414255&amp;ptid=1911821" target="_blank">ycwzq 发表于 2020-2-14 11:54</a>
+
+用CarT的时候，针对CRS还有一招：血浆置换</blockquote>
+差不多就是李院士的人工肝 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+[https://m.weibo.cn/detail/4470885110731003](https://m.weibo.cn/detail/4470885110731003)
+
+
+
+
+
+
+
+-----
+
+####  iceplatinum  
+##### 176#       发表于 2020-2-14 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46402300&amp;ptid=1911821" target="_blank">lampharelove 发表于 2020-2-13 00:33</a>
+
+我孤陋寡闻，但是在我的认识里，体外实验/动物实验效果好，上了临床实验就失败的药物，要么是针对的疾病 ...</blockquote>
+这药就是针对埃博拉的，那为什么失效了 ？
+
+
+
+
+
+
+
+-----
+
+####  aiplus  
+##### 177#       发表于 2020-2-14 14:05
+
+
+
+ 本帖最后由 aiplus 于 2020-2-14 14:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46414366&amp;ptid=1911821" target="_blank">iceplatinum 发表于 2020-2-14 12:10</a>
+
+这药就是针对埃博拉的，那为什么失效了 ？</blockquote>
+ 在埃博拉上，瑞德西韦的效果是被后来的单抗（NIH的mab114，和再生元的单抗鸡尾酒）比下去了，所以提前中止试验 
+
+
+去年8月NATURE的报道[https://www.nature.com/articles/d41586-019-02442-6](https://www.nature.com/articles/d41586-019-02442-6) <blockquote>Both drugs outperformed two other experimental treatments in the unprecedented multi-drug clinical trial in the DRC, the World Health Organization, INRB and NIAID said in a joint statement on 12 August. Preliminary data from the first 499 people enrolled in the study show that 29% of people given REGN-EB3 died, compared with 34% of those who received mAb114.
+
+
+By contrast, 53% of patients who received the anti-viral drug remdesivir died, as did 49% of those who received ZMapp, an antibody treatment that was tested during a major Ebola outbreak in West Africa from 2014 to 2016.</blockquote>[https://www.niaid.nih.gov/news-events/independent-monitoring-board-recommends-early-termination-ebola-therapeutics-trial-drc](https://www.niaid.nih.gov/news-events/independent-monitoring-board-recommends-early-termination-ebola-therapeutics-trial-drc)
+
+
+另一个NIH的新闻链接，独立统计机构当时建议提前中止试验，因为两种新单抗比瑞德西韦和ZMAPP的生存率数据强很多
+ <blockquote>The trial is monitored by an independent Data and Safety Monitoring Board (DSMB) that meets periodically to review interim safety and efficacy data and to make recommendations to the study team and the sponsors. As a result of their August 9, 2019 review, the DSMB recommended that the study be stopped and that all future patients be randomized to receive either REGN-EB3 or mAb114 in what is being considered an extension phase of the study. This recommendation was based on the fact that an early stopping criterion in the protocol had been met by one of the products, REGN-EB3. The preliminary results in 499 study participants indicated that those individuals receiving REGN-EB3 or mAb114 had a greater chance of survival compared to those participants in the other two arms.</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  aiplus  
+##### 178#       发表于 2020-2-15 12:11
+
+
+
+ 本帖最后由 aiplus 于 2020-2-15 12:12 编辑 
+
+<img src="https://xqimg.imedao.com/17046f80967764a3fd1e7fcc.jpeg!custom.jpg" referrerpolicy="no-referrer">
+[https://mp.weixin.qq.com/s/mccvALc0ULIgjfl36Frz7Q?url=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q&amp;share_menu=1&amp;sinainternalbrowser=topnav&amp;mid=4472156840707221&amp;luicode=10000011&amp;lfid=100103type%3D1%26q%3D%E5%BE%AA%E8%AF%81%E7%9A%84%E5%B4%A9%E6%BA%83&amp;u=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q](https://mp.weixin.qq.com/s/mccvALc0ULIgjfl36Frz7Q?url=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q&amp;share_menu=1&amp;sinainternalbrowser=topnav&amp;mid=4472156840707221&amp;luicode=10000011&amp;lfid=100103type%3D1%26q%3D%E5%BE%AA%E8%AF%81%E7%9A%84%E5%B4%A9%E6%BA%83&amp;u=https%3A%2F%2Fmp.weixin.qq.com%2Fs%2FmccvALc0ULIgjfl36Frz7Q)
+
+
+
+
+
+
+
+-----
+
+####  不是橘子皮  
+##### 179#       发表于 2020-2-15 12:18
+
+
+
+<blockquote>引用第177楼aiplus于2020-02-15 12:11发表的  :
+
+本帖最后由 aiplus 于 2020-2-15 12:12 编辑 https://mp.weixi......</blockquote>
+@aiplus
+
+
+不要倒垃圾，非专业人士指手画脚的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
+
+
+
+
+
+
+
+-----
+
+####  第八协奏曲  
+##### 180#       发表于 2020-2-21 23:46
+
+
+
+ 本帖最后由 第八协奏曲 于 2020-2-21 23:49 编辑 
+
+危重症患者大部分是老年患者，大部分有严重的多疾病并发症
+
+比如浙江温州的死亡病例就是控制不住糖尿病并发症造成的内脏衰竭
+
+这种情况R药是没办法
+
+以武汉的确诊病例数量，死亡数量短期无明显下降一点都不奇怪。
+
+—— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  ❃✽✾✶✻✼  
+##### 181#       发表于 2020-2-22 00:52
+
+
+
+
+瑞德西韦基本上无效了       从叫唤实验到现在一个自然病程过去了
+
+
+磷酸氯奎倒是比较对味
+
+
+
+
+
+
+
+-----
+
+####  memory-s1  
+##### 182#       发表于 2020-2-22 00:55
+
+
+
+
+瑞德西韦是以我们医院为主展开了临床研究。我们整体的目标的入组人数，重症的病例大概是400多人，轻症有300多人。目前的入组情况，是以2:1的比例来投药，就是让活性药组的人数稍微多一些，安慰剂组的人数少一点。但是临床大夫实际上是能够感觉到哪个药是安慰剂，哪个药是活性药，整体的感觉瑞德西韦的效果还是比较明显，能够阻止重症滑向危重症的这么一个状况。
+
+
+作者：冷哲
+
+链接：[https://www.zhihu.com/question/370079300/answer/1023552418](https://www.zhihu.com/question/370079300/answer/1023552418)
+
+来源：知乎
+
+著作权归作者所有。商业转载请联系作者获得授权，非商业转载请注明出处。
+
+
+原话，具体结果还是等揭盲
+
+
+
+
+
+                                           
