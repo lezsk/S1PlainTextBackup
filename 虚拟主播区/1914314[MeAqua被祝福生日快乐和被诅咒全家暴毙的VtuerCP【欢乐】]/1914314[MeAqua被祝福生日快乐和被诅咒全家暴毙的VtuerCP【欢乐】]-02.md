@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-21 22:09** 
+> ## **本文件最后更新于2020-02-22 00:13** 
 
 
 
@@ -1617,4 +1617,819 @@ me=凑
 
 
 
-                                              
+
+
+-----
+
+####  草牛  
+##### 1595#       发表于 2020-2-21 22:10
+
+
+
+
+大家忍一忍，等夸皇在华数字全面超过三小姐特供贴贴就结束了，现在就差个粉丝数了，大概还要两个月吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 1596#       发表于 2020-2-21 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46484781&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-21 22:07</a>
+
+话说整这个冲国特供，是默认冲国人不看她404直播了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反了，是404不喜欢贴贴人
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1597#       发表于 2020-2-21 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0202年还能康到贴贴人渐行渐远真实幻灭，今天便是文艺复兴？
+
+
+那，装傻和真傻你选一个呗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1598#       发表于 2020-2-21 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，你们暗黑贴贴人也太麻烦了吧，人家都说了holo和2434等企业势还有其他个人势的朋友来关心了，复活推因为推特出了点问题没能一一回复
+
+一碗水端平谁都不提，还指望单独提一句谁？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1599#       发表于 2020-2-21 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46484857&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-2-21 22:14</a>
+草，你们暗黑贴贴人也太麻烦了吧，人家都说了holo和2434等企业势还有其他个人势的朋友来关心了，复 ...</blockquote>
+三酱这不位子特殊吗（中国限定），理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1600#       发表于 2020-2-21 22:17
+
+
+
+
+我本来就是从去年3月视监M楼的，只不过看看某人做不做绝
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1601#       发表于 2020-2-21 22:17
+
+
+
+
+别说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大亏就是个奋斗比，你说她错了吗也没怎么错，但是注定是要跟过去的女人渐行渐远的
+
+
+
+
+
+
+
+-----
+
+####  花泽酸菜  
+##### 1602#       发表于 2020-2-21 22:19
+
+
+
+
+来晚了？结果出来没，值多少钱
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1603#       发表于 2020-2-21 22:22
+
+
+
+
+夸宝竟然拿吃辣开玩笑整活，作为四川人我很痛心
+
+本来每年过年能回老家吃几次火锅的幸福在今年也不复存在，在这种关头你拿这个开玩笑我是真的忍受不了
+
+我本来以为吃辣整活只是个玩笑，没想到真的搞了
+
+好吧，我就不该有什么期待，反正也不缺我一个
+
+本来我早就脱粉mea了，只是作为一个夸粉，一个贴贴人才依旧留在这里
+
+现在是真的渐行渐远，只能问心无愧地退了，祝大家都幸福吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 1604#       发表于 2020-2-21 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46484897&amp;ptid=1914314" target="_blank">花泽酸菜 发表于 2020-2-21 22:19</a>
+
+来晚了？结果出来没，值多少钱</blockquote>
+[https://vup.darkflame.ga/ranking ... ;sortby=participant](https://vup.darkflame.ga/ranking/day?groupby=individual&amp;sortby=participant)
+
+随便看看就行
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1605#       发表于 2020-2-21 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，真谈功利直播的话虚无发表回实属8行，建议睿站突击复刻限定歌回emoemo曲向日葵安排上，一曲含金量可比自虐吃辣高多了（
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1606#       发表于 2020-2-21 22:25
+
+
+
+
+贴贴人别急，等下次大亏B限，十有八九会有糖的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1607#       发表于 2020-2-21 22:27
+
+
+
+
+因为家里人去世的复活配信，跑b站突击唱向日葵，你们贴贴人是不是脑子出了什么问题？？？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|好好读空气啊kora（|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 1608#       发表于 2020-2-21 22:31
+
+
+
+ 本帖最后由 Asukalangley33 于 2020-2-21 22:36 编辑 
+
+三小姐在复活神迹期间出现在了组长频道
+
+
+大概是三小姐在大天使那说的话被淹没在了满屏SC里面了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1609#       发表于 2020-2-21 22:32
+
+
+
+ 本帖最后由 草牛 于 2020-2-21 22:33 编辑 
+
+转动我的贴贴脑给你一个答案
+向日葵一出，说明夸皇是在三酱的帮助下走出阴霾的，是互相扶持的老夫妻，meaqua贴贴
+
+哦对了，楼上说的是三小姐出现在组长直播间了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1610#       发表于 2020-2-21 22:34
+
+
+
+
+夸夸是企业势，麻麻是个人势，能一样吗，你们不能理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wpcc  
+##### 1611#       发表于 2020-2-21 22:34
+
+
+
+
+夸宝这么努力赚钱一定是因为东京墓地很贵吧真是孝顺呢。sc140w 集金不死鸟，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 1612#       发表于 2020-2-21 22:34
+
+
+
+
+暗黑贴贴人是真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 1613#       发表于 2020-2-21 22:37
+
+
+
+
+靠，sc才140w，这数字有点少啊。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 1614#       发表于 2020-2-21 22:37
+
+
+
+
+新的计量单位出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那谁来算一算大天使一年收入值多少个咖喱人啊
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1615#       发表于 2020-2-21 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485017&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-2-21 22:34</a>
+夸夸是企业势，麻麻是个人势，能一样吗，你们不能理解一下</blockquote>
+明天卡古拉小姐就是动物园的人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1616#       发表于 2020-2-21 22:41
+
+
+
+
+要被兔姨恶堕了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 1617#       发表于 2020-2-21 22:43
+
+
+
+
+一咖喱人=140w?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1618#       发表于 2020-2-21 22:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸宝这次回的乡下，不用在东京买墓地，除非是用来埋XX的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1619#       发表于 2020-2-21 22:46
+
+
+
+<blockquote>暗心舞踏 发表于 2020-2-21 22:14
+草，你们暗黑贴贴人也太麻烦了吧，人家都说了holo和2434等企业势还有其他个人势的朋友来关心了，复 ...</blockquote>
+其他个人势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+指苔苔，啊不对，苔苔已经过气了，夸圣应该是指真·最强个人势时雨妈
+
+
+
+
+
+
+
+-----
+
+####  我单推副会长  
+##### 1620#       发表于 2020-2-21 22:51
+
+
+
+
+你们不要过高的拔高道德要求。
+
+把熊猫人和peko遭遇同样的事情的反应强行和凑阿夸进行对比。
+
+一个关sc复播？一个装作没事的样子直接进行3D回。
+
+她们是她们，凑阿夸是凑阿夸。
+
+她和crew复读复读自己天使就算了，她们也没真信，
+
+你们信了闹哪样？
+
+你们实在看不惯就当着今天是摆酒席，没有人会因为白事而苛责办酒席的靠死人赚钱。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1621#       发表于 2020-2-21 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485177&amp;ptid=1914314" target="_blank">我单推副会长 发表于 2020-2-21 22:51</a>
+
+你们不要过高的拔高道德要求。
+
+把熊猫人和peko遭遇同样的事情的反应强行和凑阿夸进行对比。
+
+一个关sc复播？ ...</blockquote>
+说这些话之前你能把那个朝圣楼关了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我单推副会长  
+##### 1622#       发表于 2020-2-21 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485209&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-21 22:56</a>
+
+说这些话之前你能把那个朝圣楼关了吗</blockquote>
+朝圣楼里有什么问题，模仿鸟神楼发的，也没啥黑称。
+
+v圈第一流量，有个朝圣楼很过分吗？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1623#       发表于 2020-2-21 23:10
+
+
+
+
+我是看不出来麻将妹到底是真鱼还是在钓鱼
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1624#       发表于 2020-2-21 23:19
+
+
+
+
+日子过去了，这楼名也该改了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1625#       发表于 2020-2-21 23:19
+
+
+
+
+没去holo，不能往死里贴了呜呜
+
+
+
+
+
+
+QQ图片20200221225107.jpg
+(209.57 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-2-21 23:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/21/231940qpunthu5vg48qqht.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1626#       发表于 2020-2-21 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485430&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-2-21 23:19</a>
+
+没去holo，不能往死里贴了呜呜</blockquote>
+ANMR影之成员出现在ANMR有什么好奇怪的吗<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1627#       发表于 2020-2-21 23:50
+
+
+
+
+一个恰咖喱人的人血馒头，一个恰朋友的人血馒头，meaqua贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1628#       发表于 2020-2-21 23:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我以前一直觉得咩啊一直车轱辘的那个打工面试经历就是两个人先后去了holo面试结果大亏上了把你咩刷下去了来着，不过也无所谓了，他们都有光明的未来.jpg
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1629#       发表于 2020-2-22 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485675&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-21 23:50</a>
+一个恰咖喱人的人血馒头，一个恰朋友的人血馒头，meaqua贴贴！</blockquote>
+叹气
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1630#       发表于 2020-2-22 00:01
+
+
+
+
+打了一晚上游戏，现在流向是什么样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1631#       发表于 2020-2-22 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46484886&amp;ptid=1914314" target="_blank">proxima 发表于 2020-2-21 22:17</a>
+别说了大亏就是个奋斗比，你说她错了吗也没怎么错，但是注定是要跟过去的女人渐行渐远的
+
+ ...</blockquote>
+叹气
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1632#       发表于 2020-2-22 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485741&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-02-21 23:59:28</a>
+我以前一直觉得咩啊一直车轱辘的那个打工面试经历就是两个人先后去了holo面试结果大亏上了把你咩刷下去了来 ...</blockquote>小麻被刷那是因为年龄不够啊 不然轮得到大亏？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1633#       发表于 2020-2-22 00:03
+
+
+
+
+不会真有人觉得三酱能和阿夸比吧，她游戏杂谈唱歌哪一点比阿夸强？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1634#       发表于 2020-2-22 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485759&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-22 00:01</a>
+打了一晚上游戏，现在流向是什么样的</blockquote>
+MEA要进入动物园，夸是真家出事了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1635#       发表于 2020-2-22 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485771&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-22 00:03</a>
+
+小麻被刷那是因为年龄不够啊 不然轮得到大亏？
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+你这么一讲也有点道理，不过也不至于啊，隔壁彩虹还收真铜呢，它杏那时候体量又不大，没必要把这好原石丢了罢，不过说到底都是脑补，但是至少能为如今的不仲论铺下一砖一瓦
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1636#       发表于 2020-2-22 00:10
+
+
+
+
+Mea得到了咖喱人，夸失去了咖喱人。这么总结简单明了不。
+
+
+
+
+
+                                             

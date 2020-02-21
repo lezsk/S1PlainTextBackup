@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-20 22:06** 
+> ## **本文件最后更新于2020-02-22 00:09** 
 
 
 
@@ -5982,7 +5982,7 @@ CC的staff当年可是拍着胸脯跟大伙保证说给缺哥哥最舒适的直�
 
 
 
-[https://www.bilibili.com/video/av76541865?p=1](https://www.bilibili.com/video/av76541865?p=1)
+
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱智到我了，太草了
 
 
@@ -7377,7 +7377,7 @@ cc直播间除了**哥复读机就是节奏狗（播新作尤其明显）
 万能的泥潭
 
 我想求一下莎花T恤上的Q版莎花图不知道有没有人理我</blockquote>
-[https://www.bilibili.com/video/av76889497](https://www.bilibili.com/video/av76889497)
+
 
 典藏版送的贴纸上面有，不知道外网有没有人弄扫描版<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
@@ -14571,7 +14571,7 @@ cc录像出来了，最后半小时能拍成电影<img src="https://static.sarab
 
 
 
-[https://www.bilibili.com/video/av84908774](https://www.bilibili.com/video/av84908774)
+
 
 新年整活歌曲出新了
 
@@ -14635,7 +14635,7 @@ cc录像出来了，最后半小时能拍成电影<img src="https://static.sarab
 
 
 
-[https://www.bilibili.com/video/a ... 3477075763748960650](https://www.bilibili.com/video/av85011037?from=search&amp;seid=13477075763748960650)
+
 
 这个秦喵喵配音还蛮不错的
 
@@ -16912,7 +16912,7 @@ vip位几个教练一通指导，好起来力</blockquote>
 
 刚才那防守......前天的结尾没看，大老爹发生了什么</blockquote>
 【Quin】NBA2K20 内线后卫大老爹 直播录像【Part1】_
-[https://www.bilibili.com/video/av89665020](https://www.bilibili.com/video/av89665020)
+
 
 
 
@@ -18893,4 +18893,535 @@ CC的录播弹幕只能用手机app看，机制很傻</blockquote>
 
 
 
-             
+
+
+-----
+
+####  暗月杀人兔  
+##### 7084#       发表于 2020-2-20 22:17
+
+
+
+
+大老爹杀死了比赛
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 7085#       发表于 2020-2-20 22:19
+
+
+
+
+两记灌篮杀死比赛！77号！你就仅限于此了吗！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7086#       发表于 2020-2-20 22:21
+
+
+
+
+我怀疑大老爹买了双百的菠菜
+
+
+
+
+
+
+
+-----
+
+####  恶意之刃  
+##### 7087#       发表于 2020-2-20 22:40
+
+
+
+
+宅男魂穿nba球员之路，md太精彩了
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 7088#       发表于 2020-2-20 23:29
+
+
+
+
+大老爹下场就领先20分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 7089#       发表于 2020-2-20 23:39
+
+
+
+
+大老爹变强之谜
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 7090#       发表于 2020-2-20 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46474347&amp;ptid=1712512" target="_blank">巫师萨满 发表于 2020-2-20 20:16</a>
+
+奎恩玩游戏有哪些有意思的直播啊?闲在家里把泰坦，全战模拟器看完了，还有哪些直播效果爆棚的录播啊?
+
+
+  -- ...</blockquote>
+kenshi只狼传<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7091#       发表于 2020-2-21 00:11
+
+
+
+
+总觉得大老爹看着眼熟,终于想起来像谁了,徐大sao啊.
+
+
+
+
+
+
+
+-----
+
+####  csj6655  
+##### 7092#       发表于 2020-2-21 00:16
+
+
+
+
+#大老爹一踢四
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7093#       发表于 2020-2-21 00:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">湖人队霸真是专横跋扈，急需字母哥来一记修正拳
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 7094#       发表于 2020-2-21 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46476334&amp;ptid=1712512" target="_blank">TTAA 发表于 2020-2-20 23:39</a>
+大老爹变强之谜</blockquote>
+偷偷修改难度
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 7095#       发表于 2020-2-21 00:45
+
+
+
+
+这个比打了快一周nba了还不清楚什么叫三秒……当众质疑国际篮球规则！
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 7096#       发表于 2020-2-21 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46476873&amp;ptid=1712512" target="_blank">sanxgh571 发表于 2020-2-21 00:45</a>
+
+这个比打了快一周nba了还不清楚什么叫三秒……当众质疑国际篮球规则！</blockquote>
+这哪是一周的问题，几年前他在马刺做名宿的时候也不知道三秒啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 7097#       发表于 2020-2-21 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔了几年秦川的NBA直播还是这么谐
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7098#       发表于 2020-2-21 01:22
+
+
+
+
+草，居然把77号搞下去了。
+77号：88号wcnm
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 7099#       发表于 2020-2-21 01:23
+
+
+
+
+一场比赛干下去对面3个 草
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7100#       发表于 2020-2-21 01:27
+
+
+
+
+77号疯狂殴打大老爹
+
+
+
+
+
+
+
+-----
+
+####  逆袭的黑月  
+##### 7101#       发表于 2020-2-21 03:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">秦川被字母哥暴打是昨天录像什么时候....刚刚自己打也被字母哥打爆了 字母哥全场61分我从第一个球开始手感冰凉到第四节...
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7102#       发表于 2020-2-21 03:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这种大好优势自己浪没的局看得太难受了啊啊啊啊啊啊啊啊，现实比赛吃了那么多了游戏又要吃
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 7103#       发表于 2020-2-21 10:20
+
+
+
+
+稍微讲下2k这个游戏。超巨不是啥恶心人的难度，只是不会给你太多浪的机会，大老爹现在这个能力值而且作为一个并不是很懂篮球的人来说打得也还算不错了。虽然自去年十月nba那破事发生后就没再打过2k了，但作为历代都买主打超巨难度的来说，想体验平衡感好点的难度其实就是超巨最合适，因为往下就是打100场赢100场，不管在哪个队，像湖人现在这样的超巨都能擦屁股已经很强了。19开始超巨体验比18以前要好，因为防守明显上来了，18以前那会真的气人，眼神防守，内线完全防不动盖不了，只能自己狂带，哪像现在内线盖帽那么顶，而全明星电脑才跟傻子一样，除了个别球星。
+
+目前大老爹需要提升的地方太多，体育游戏当然是需要练的，fifa也好2k也好还有ufc，高难度当然不能给你乱打。最基本的，现在要球和传球简直太随便了，去弱队哪有龙妈给擦屁股。技术上，战术跑位接球停顿很多，在传球途中直接按投篮键进无缝衔接投球这个是得会的。持球三威胁完全不会，叫挡拆左右推下摇杆配合闪电第一步直接就能杀进去了。上篮分球也不会。
+
+然后大老爹这个模板其实不错的，2k本来就不存在啥完美模板，啥都想要其实就是啥都不能封顶，但打nba倒不需要太好，会玩的情况下80数据基本就能稳定40＋三双起步，2k20倒是篮板真的没以前好拿了。詹姆斯历代都不好用，2k最强的就是投篮侠，快速出手加投篮倾向高的，在高难度就是bug一样的存在。名人堂难度的话，基本就是自己全力带，不只是抢运球，还得保持身位预判抢传球刷抢断每场6，7个左右才不至于打得太被动。
+
+2k打超巨以上主要是心态容易出问题，由于不能浪总的来说需要打得比较专注，累，而2k也存在所谓的得分荒，即所谓的这段时间容易怎么打怎么没有，会打的比较烦躁，这个就需要自己调整了。现在这个乱要球传球，不合理出手的毛病最终还是得去超巨练练好好改改，我是不管哪个难度都看得挺开心的，吃瘪也好pro也好，就是弹幕总说超巨ai弱智没意思蛮烦的，倒不如说全明星电脑一堆空位都进不了那不是弱智是啥。虽然现在大老爹的实力可能更适合去全明星难度的辣鸡队练练，不过说到底，游戏怎么爽怎么玩就是了，马上也要次世代2k了，希望每年都有2k看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fkf90| + 1|pro|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  阿库鲁艾特  
+##### 7104#       发表于 2020-2-21 13:03
+
+
+
+
+昨晚弹幕竟然有湖人队真粉 惊到我了
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 7105#       发表于 2020-2-21 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46478545&amp;ptid=1712512" target="_blank">banjia0815 发表于 2020-2-21 10:20</a>
+
+稍微讲下2k这个游戏。超巨不是啥恶心人的难度，只是不会给你太多浪的机会，大老爹现在这个能力值而且作为一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">可是2k同队球员随着你变强会变弱智来鼓励氪金这是官方承认的阿
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 7106#       发表于 2020-2-21 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46480404&amp;ptid=1712512" target="_blank">古代人皮克 发表于 2020-2-21 13:50</a>
+
+可是2k同队球员随着你变强会变弱智来鼓励氪金这是官方承认的阿</blockquote>
+有链接么，虽然显然官方想你氪金，但我觉得不至于是这种逻辑。氪金的重头全在mt上，mc根本花不了几个钱，你的能力上限升级远跟不上正常赚的vc，90以后升个2级多出来的钱足够开新档直冲80。
+
+我个人没体验出来随着自己变强同难度下队友有边菜的趋势，随着变强你的使用率会大幅度提升，一场比赛就这么多分，如果你分数增加队友自然得分会下降，具体到各项数据，如果你传球把握的好，往往核心队友都是总体得分下降，出手数大幅度减少但拥有更高的命中。至于具体赛场表现，就昨天我看超巨这几场，防守端直观感觉比全明星好多了，全明星一堆对面空位不中，而超巨才是两边防守都够狠。进攻端，只要跑战术，你跑不好队友就是蠢不会应变，当然超巨开始有人防就很难命中是真的，所以都得吸引包夹来换简单得分和空位才行。
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 7107#       发表于 2020-2-21 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46478545&amp;ptid=1712512" target="_blank">banjia0815 发表于 2020-2-21 10:20</a>
+稍微讲下2k这个游戏。超巨不是啥恶心人的难度，只是不会给你太多浪的机会，大老爹现在这个能力值而且作为一 ...</blockquote>
+看秦川玩得兴起我也时隔好几年买了一次2k，结果感觉太拉跨而且没时间玩光速退款<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我本来打mc想整个字母哥类型的，但感觉好像特别难，这代身高一高运动能力大幅度下降，游戏里面想整个阿杜字母哥这种2.08以上的sf也太难了，感觉还是身高中等的投篮怪最简单。
+感觉秦川有点技能树点歪了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看了下他的三板斧就是快攻空切碰瓷，投篮几乎没有，第四节一没体力就8行了。
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7108#       发表于 2020-2-21 23:18
+
+
+
+
+今天的造车水平有一说一大概都不如小学生，极其丢人
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 7109#       发表于 2020-2-21 23:39
+
+
+
+ 本帖最后由 LilighT 于 2020-2-21 23:44 编辑 
+
+草，笑死了，今年最有乐子的一回
+
+
+
+
+
+
+
+-----
+
+####  fireadol  
+##### 7110#       发表于 2020-2-21 23:40
+
+
+
+
+死星瞬间爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 7111#       发表于 2020-2-21 23:41
+
+
+
+
+眼泪都笑出来了，完美致敬
+
+
+
+
+
+
+
+-----
+
+####  Eina  
+##### 7112#       发表于 2020-2-21 23:43
+
+
+
+
+笑死我了，一般人还真玩不出这么弱智的效果
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 7113#       发表于 2020-2-21 23:51
+
+
+
+
+不是非得打篮球才能防守瓦解
+
+
+
+
+
+            
