@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-16 12:01** 
+> ## **本文件最后更新于2020-02-21 22:03** 
 
 
 
@@ -1331,7 +1331,7 @@ KLK作为扳机社亮相作已经算是很成功了啦，天元厨不要产生KL
 
 
 
-扳机靠klk一炮当红之后我觉得好看的只有忍杀露露子 其他都中规中矩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国家队还好算jzds的锅[f:211]求求今石哥哥来一部真正能放心吹爆扳机的番
+扳机靠klk一炮当红之后我觉得好看的只有忍杀露露子 其他都中规中矩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">求求今石哥哥来一部真正能放心吹爆扳机的番
 
 
 
@@ -1649,7 +1649,7 @@ aniki——！
 
 
 
-为什么今年要早回国我也想去LA的expo啊[f:210][f:209]
+为什么今年要早回国我也想去LA的expo啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
 
@@ -2261,8 +2261,7 @@ C3C40688E1F6F6E8980EA84FFC0D86BB.jpg
 
 
 
-
-[c:282]喷了手里拿的好像鹤望兰
+<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">喷了手里拿的好像鹤望兰
 
 
 
@@ -2441,8 +2440,7 @@ C3C40688E1F6F6E8980EA84FFC0D86BB.jpg
 
 
 
-
-[c:282]
+<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
 
@@ -4107,7 +4105,7 @@ QQ浏览器截图20190123094215.png
 
 
 
-这脸为啥是男的，我不能接受[f:211]
+这脸为啥是男的，我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
 
@@ -4993,7 +4991,7 @@ promare和炎炎消防队乍看100字简介是挺像的，又基本算同期，�
 
 
 
-PV里卡米那开鹤望兰对决亚历克西斯[c:282]
+PV里卡米那开鹤望兰对决亚历克西斯<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
 
@@ -8134,7 +8132,7 @@ HVN3((TJ56]$K[DMR~PK{`F.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46335992&amp;ptid=1527698" target="_blank">煙空 发表于 2020-2-5 20:47</a>
 
 但他们老大去对面当古美门的秘书了</blockquote>
-正是如此[f:245]
+正是如此<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 而且还非常路人，很气
 
@@ -8697,7 +8695,7 @@ EVA有沉没成本啊，又不是一开始就开始基的，这部就单纯路�
 
  本帖最后由 moekyo 于 2020-2-6 00:34 编辑 
 
-那天出了1080看看吧，U2也没看到有人发，现在就有那个傻逼幻之的[f:246]
+那天出了1080看看吧，U2也没看到有人发，现在就有那个傻逼幻之的<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
 
 
 
@@ -8714,8 +8712,7 @@ EVA有沉没成本啊，又不是一开始就开始基的，这部就单纯路�
 
 
 看到原画最后一位JZGG我笑傻了
-
-[c:291]：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。
+<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。
 
 
 
@@ -9031,7 +9028,7 @@ TM看完这片我居然有点理解腐女了是怎么回事<img src="https://sta
 看到原画最后一位JZGG我笑傻了
 
 ：国家队我也没办法啊，**主力全在这儿了，我都要来帮着画原画。 ...</blockquote>
-人工呼吸就是jzgg的原画哦[c:291]
+人工呼吸就是jzgg的原画哦<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
 
 
 
@@ -9407,7 +9404,7 @@ Lio的专用BGM是OP曲《觉醒》，收在superfly的专辑里了，不在ost�
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
 
 AEAA25963C2342B60EF57089FC8D499D8CC97E0D.torrent
-(81.09 KB, 下载次数: 39)
+(81.09 KB, 下载次数: 52)
 
 
 
@@ -10973,7 +10970,7 @@ galo对leo说的那个你让我点起人生中第一次火 是什么意思
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46354998&amp;ptid=1527698" target="_blank">powwow 发表于 2020-2-7 20:55</a>
 
 galo对leo说的那个你让我点起人生中第一次火 是什么意思</blockquote>
-我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子[f:209]不过lio的那团火真耐用啊，挡了两个大招，后面还能救人，之前那个小姐姐死的好冤
+我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">不过lio的那团火真耐用啊，挡了两个大招，后面还能救人，之前那个小姐姐死的好冤
 
 
 
@@ -11032,7 +11029,7 @@ galo对leo说的那个你让我点起人生中第一次火 是什么意思</bloc
 我本来以为意思是男主也觉醒了那个火的能力然后救醒了lio，然后再一想好像不是这个样子不过lio的 ...</blockquote>
 万能火焰，leo神队友
 
-光是觉醒火能力为啥会那么不好意思<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，之前还有个胸部衣服破损的特写。其实我看到那直觉是yu huo，一想不对啊[f:245]
+光是觉醒火能力为啥会那么不好意思<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 小姐姐是说第一个没救过来的吗……leo也被抽过，真皮实。
 
@@ -11397,7 +11394,7 @@ nmd人工呼吸先二指挑下巴把嘴合拢<img src="https://static.saraba1st.
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46338235&amp;ptid=1527698" target="_blank">冰原狼 发表于 2020-2-6 01:09</a>
 
 人工呼吸就是jzgg的原画哦</blockquote>
-[c:279]炖屎哥美少女画够了来画美少年
+<img src="https://static.saraba1st.com/image/smiley/carton2017/279.png" referrerpolicy="no-referrer">炖屎哥美少女画够了来画美少年
 
 
 
@@ -11775,8 +11772,7 @@ nmd人工呼吸先二指挑下巴把嘴合拢你要搞基直说啊今石哥哥�
 
 
 
-
-[c:283]堆色块的情书是坏文明
+<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">堆色块的情书是坏文明
 
 <img src="https://p.sda1.dev/0/0211c8f0c54ed609d2f4e1caf0279b53/121716brrdyg0prekf3tjg.jpeg.jpg" referrerpolicy="no-referrer">
 
@@ -12182,7 +12178,7 @@ nmd人工呼吸先二指挑下巴把嘴合拢你要搞基直说啊今石哥哥�
 
 
 举个例子，《fs ...</blockquote>
-[f:218]你把它当成人工呼吸不行吗。救火队员搞个人工呼吸有啥奇怪的，海滩上那么多男救生员都是基佬吗。诚然里面有卖腐元素，但是我觉得安排的也挺合理的
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">你把它当成人工呼吸不行吗。救火队员搞个人工呼吸有啥奇怪的，海滩上那么多男救生员都是基佬吗。诚然里面有卖腐元素，但是我觉得安排的也挺合理的
 
 
 
@@ -12401,7 +12397,7 @@ fsn那个也别大哥笑二哥了，本质黄油，这里不操那里也要草�
 
 
 
-太tm爽了这才是**那味啊，叉手抱胸站在地球上真是男人的浪漫啊。堺雅人一开始觉得声线幼了，后面狂起来反而非常契合。开幕佐仓翘屁股开飞机突发性国家队ptsd一下[c:283]——————
+太tm爽了这才是**那味啊，叉手抱胸站在地球上真是男人的浪漫啊。堺雅人一开始觉得声线幼了，后面狂起来反而非常契合。开幕佐仓翘屁股开飞机突发性国家队ptsd一下<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">——————
 
 绝了tigger竟然是屏蔽词
 
@@ -12892,4 +12888,708 @@ lio从冰里挣脱，化龙杀回来那段，狂气四溢，太爽了
 
 
 
-                           
+
+
+-----
+
+####  飞霞精灵  
+##### 663#       发表于 2020-2-16 14:33
+
+
+
+
+好看，最近几年几乎是唯一能让我这老害跟着燃起来的萝卜动画。
+
+等啥时候进个机战吧。剧情明显可以再拉长完整一些。
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 664#       发表于 2020-2-16 18:06
+
+
+
+
+说起来男主角一边胳膊经常会变色是咋回事
+
+
+
+
+
+
+
+-----
+
+####  grax  
+##### 665#       发表于 2020-2-17 21:38
+
+
+
+
+所谓废燃讲的就是这种片子吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  铅笔的粉  
+##### 666#       发表于 2020-2-17 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46433803&amp;ptid=1527698" target="_blank">requiem116 发表于 2020-2-16 18:06</a>
+
+说起来男主角一边胳膊经常会变色是咋回事</blockquote>
+他那是左胳膊套了个袖套一类的东西吧
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 667#       发表于 2020-2-17 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46445587&amp;ptid=1527698" target="_blank">铅笔的粉 发表于 2020-2-17 22:40</a>
+
+他那是左胳膊套了个袖套一类的东西吧</blockquote>
+时有时无的我开始还以为是打光啥的
+
+比如在冰湖那我就以为是光线不同造成的
+
+结果看人画的同人图还有专门还原这点的搞得我挺迷的
+
+剧情里好像没有专门提到过这个袖套是啥？
+
+
+
+
+
+
+
+-----
+
+####  铅笔的粉  
+##### 668#       发表于 2020-2-17 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46445623&amp;ptid=1527698" target="_blank">requiem116 发表于 2020-2-17 22:44</a>
+
+时有时无的我开始还以为是打光啥的
+
+比如在冰湖那我就以为是光线不同造成的
+
+结果看人画的同人图还有专门还 ...</blockquote>
+你看他刚出场救火那里光着上身，是肩膀上的带子+左手臂的袖套一个整体，除了领奖章穿警察制服那身之外胳膊一直是那个颜色，这就属于他的个人特色服饰
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 669#       发表于 2020-2-17 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46433803&amp;ptid=1527698" target="_blank">requiem116 发表于 2020-2-16 18:06</a>
+说起来男主角一边胳膊经常会变色是咋回事</blockquote>
+前日谈里救那个妹子的时候手臂被烧到了，正片里带了个丝袜袖套吧
+
+
+
+
+
+
+
+-----
+
+####  momol  
+##### 670#       发表于 2020-2-17 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46445623&amp;ptid=1527698" target="_blank">requiem116 发表于 2020-2-17 22:44</a>
+
+时有时无的我开始还以为是打光啥的
+
+比如在冰湖那我就以为是光线不同造成的
+
+结果看人画的同人图还有专门还 ...</blockquote>
+前传动画
+
+救妹子的时候胳膊被烧伤了，所以戴了袖套来遮盖。
+
+同人里脱掉袖套会露出伤疤。
+
+
+
+
+
+
+
+-----
+
+####  cwlo  
+##### 671#       发表于 2020-2-18 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有爽到
+
+
+
+
+
+
+
+-----
+
+####  Theory_茶叶  
+##### 672#       发表于 2020-2-18 09:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我承认，我也想草里欧。
+
+
+
+
+
+
+
+-----
+
+####  有乐亭八云  
+##### 673#       发表于 2020-2-18 13:26
+
+
+
+ 本帖最后由 有乐亭八云 于 2020-2-18 13:28 编辑 
+
+同样都是消防主题，如果说炎炎观感过于粘滞犹如没有空调的三伏天<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+开场反派（防剧透）的pose真是太有型了，3D无论是镜头还是色调都有点像蜘蛛侠平行世界里结尾boss战，加上今石洋之独特的金田细作画，赏心悦目。泽野的几首主题BGM也在水准之上，虽然有那么两三首人声用了至少3次，但依然瑕不掩瑜。
+
+男主人设+声线都差点大哥搞混了，结果大哥在男二边上做小弟呢。堺雅人虽然声线和人设不太搭，没想到后面吼起来一股dio味儿（木大木大感受一下），好评，倒是男2拉了跨。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+吐槽留后面，这片子还真是废燃……<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+开场今石叫你怎么摆pose拉镜头男的爽快一下，可越到后面越没新东西，还是钢巴立那一套，情怀也要建立在创新的基础上不是。
+
+剧情上明明男女主冰湖那段那么浪漫，结果结尾来个男男主的kiss，还特意强调是第一次…………点火，玩的要素太多观感太割裂了。
+
+
+
+p.s. 所以说澳大利亚山火越燃越烈是在拯救全人类么……
+
+这片子一般人肯定看得很爽，但如果从天元开始看今石洋之作品的话，确实还有些鸡肋了。
+
+
+
+
+
+
+
+-----
+
+####  shiwenbaobao  
+##### 674#       发表于 2020-2-18 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46430301&amp;ptid=1527698" target="_blank">ulir 发表于 2020-2-16 10:32</a>
+
+男二的主题曲很喜欢，感觉人也挺好说话的甚至要啥给啥，导致回头看登场那段总觉得他们演过头了 ...</blockquote>
+要的就是这种演过头的味啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+你想想一开始他们配上这么牛逼的音乐凹造型，还用火给自己造个那样的椅子托着头，一想到铠甲下面是那样美少年的外表，是被两个部下敬爱的好boss，这不是很可爱又很帅吗；等到黑色铠甲破了露出美少年外表那才惊艳啊；之后再次反转发现即使是美少年但行为举止都很man，完全不是画女硬说男那种，攻击力又这么强，这才是lio的醍醐味呀（不好意思自己表达不清楚，写了这么多）
+
+
+还有我超喜欢galo弄个小投影仪介绍自己的装备是极东古代灭火的balabala那段，给了一个lio托着头看他的镜头，我都能想象面具之下那个不明所以又一脸“你是笨蛋吗”的小表情了，而且表情真要画出来就没意思了，要的就是这种留白，总之lio真是又萌又帅哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  ulir  
+##### 675#       发表于 2020-2-18 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46450905&amp;ptid=1527698" target="_blank">shiwenbaobao 发表于 2020-2-18 14:17</a>
+
+要的就是这种演过头的味啊
+
+你想想一开始他们配上这么牛逼的音乐凹造型，还用火给自己造个那样的椅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我说的不是这种表面上的反差对比……是leo很man的行动下唯独这个部分对比他整个作品包括前传在内的行事风格显得有点OOC的味道
+
+
+比如说leo所有的火焰操作看得出其实他不用剑这种概念的攻击的，坐在椅子上装逼也仅限于登场，leo其他时候都没有类似的pose，后面那个开车绕圈圈+挑衅更加不符合他后面的表现，因为知道他们这次行动本身就是有意为之，所以我才说是演过头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 676#       发表于 2020-2-18 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46446018&amp;ptid=1527698" target="_blank">冰原狼 发表于 2020-2-17 23:31</a>
+
+前日谈里救那个妹子的时候手臂被烧到了，正片里带了个丝袜袖套吧</blockquote>
+多谢
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 677#       发表于 2020-2-18 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46446184&amp;ptid=1527698" target="_blank">momol 发表于 2020-2-17 23:51</a>
+
+前传动画https://www.bilibili.com/video/av53504423
+
+救妹子的时候胳膊被烧伤了，所以戴了袖套来遮盖。
+
+ ...</blockquote>
+多谢
+
+
+
+
+
+
+
+-----
+
+####  冰原狼  
+##### 678#       发表于 2020-2-18 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451542&amp;ptid=1527698" target="_blank">ulir 发表于 2020-2-18 15:24</a>
+
+我说的不是这种表面上的反差对比……是leo很man的行动下唯独这个部分对比他整个作品包括前传在内 ...</blockquote>
+lio虽然后面变成有求必应屋，但其实一直有一颗中二之心吧……机械降神那个外壳和matoi的进化型也是他即兴（？）设计的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且男主放幻灯片的时候他就看了一眼就记住了，表面上是冷静的美少年其实审美和男主一样是G社味的（
+
+话说回来，男人谁不想穿皮套骑机车乘超级拉风的巨大机器人呢！
+
+
+
+
+
+
+
+-----
+
+####  ulir  
+##### 679#       发表于 2020-2-18 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451919&amp;ptid=1527698" target="_blank">冰原狼 发表于 2020-2-18 16:10</a>
+
+lio虽然后面变成有求必应屋，但其实一直有一颗中二之心吧……机械降神那个外壳和matoi的进化型也是他即兴 ...</blockquote>
+leo应该是记忆力很好，而且审美明显吊打，不过很明显他就是嫌弃男主那套啊，上来就机车骑脸了不是么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+以及我说的是脱狱和变龙时他动作本身很实在，导致登场各种中二pose都像在演
+
+
+
+
+
+
+
+-----
+
+####  shiwenbaobao  
+##### 680#       发表于 2020-2-18 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451542&amp;ptid=1527698" target="_blank">ulir 发表于 2020-2-18 15:24</a>
+
+我说的不是这种表面上的反差对比……是leo很man的行动下唯独这个部分对比他整个作品包括前传在内 ...</blockquote>
+我可能表达的不清楚，我其实基本上是赞成你的观点的，但不赞成你说他OOC了，我觉得哪个男孩子不喜欢配着泽野的音乐凹造型装逼呢？我甚至能脑补出他之前带着手下纵火时候没少干这种装逼的事，反正他实力足够；
+
+后面他明显也是喜欢这样弄的呀，不是捏了这么酷炫的一条龙吗（），还有人家乘直升机，他偏要像家教里面那样飞；只是后面他老是吃瘪，加上男主更加二，被抢了风头而已<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">。
+
+平时喜欢搞这样中二十足的铠甲，这次故意入狱更要好好宣扬一番，先弄个机车再弄火龙，最后再弄一把剑，花里胡哨的弄点不明所以然而就是很帅啊！的东西；这样的男孩子谁能拒绝呢
+
+
+
+
+
+
+
+-----
+
+####  shiwenbaobao  
+##### 681#       发表于 2020-2-18 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451542&amp;ptid=1527698" target="_blank">ulir 发表于 2020-2-18 15:24</a>
+
+我说的不是这种表面上的反差对比……是leo很man的行动下唯独这个部分对比他整个作品包括前传在内 ...</blockquote>
+对了其实洞穴里面那一段，意境真的很美，但是也可以理解成他不停的在凹造型＋讲一些不明所以但是很酷炫的话。虽然我这样理解有点对不起那位小姐姐呢……
+
+
+
+
+
+
+
+-----
+
+####  金鱼  
+##### 682#       发表于 2020-2-19 02:24
+
+
+
+
+我今天就要看到里欧草加洛的产出！
+
+
+
+
+
+
+
+-----
+
+####  蓝川澈  
+##### 683#       发表于 2020-2-19 20:48
+
+
+
+
+爽就完事儿了，就是这个味儿，情怀满点<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+看之前没关注cv，听到雅人叔声音的时候还犹疑了一下，后面打cv的那几个画面真是帅。声线确实匹配地也合适，本来执政官台面上就得是个亲民形象，雅人叔暴走的声音也不出戏，蛮好的。
+
+你要说换个专业的来会不会更好些，大概吧。但是选堺雅人给BOSS赋声突出一个稳和准，要什么100分，90分演技换一个商业大成功，能把自己喜欢的作品安利出去我肯定举双手赞成啦。
+
+要说为啥出戏，应该是真人形象怎么也比不上动画里人物的夸张形象，一旦脑海里闪过演员本人的样子、然后一比较，就蛋疼了。建议靠厨力克服（
+
+
+
+
+
+
+
+-----
+
+####  Azrael_0  
+##### 684#       发表于 2020-2-20 07:57
+
+
+
+
+这片子看完感觉就像天元突破的余烬
+
+
+
+
+
+
+
+-----
+
+####  strayark  
+##### 685#       发表于 2020-2-20 16:01
+
+
+
+ 本帖最后由 strayark 于 2020-2-20 16:03 编辑 
+
+严重“偏科”的作品，在3D CG和2D的美术结合方面做出了新高度与独创性。但剧情实在过于勉强。
+
+
+先说说缺点的剧情：
+
+写这种大格局故事，大量的时间是少不了的，以电影的长度描写实在太难。
+
+故事/背景设定层面，涉及到这种世界性问题，必然要牵扯到大量的人，像片子里一个人说了算，一个人瞎决策的这种政治描写太扯了，这可不是封建时代。
+
+而科技方面的设定也需要一定量的解释去提高其说服力，而片子里的方舟、穿越时空、突然时空扭曲然后地核与promare宇宙连接起来了等等的设定都没有任何解释。
+
+还有为什么全球就lio一个人那么厉害、博士怎么入侵网络的等等，中间甚至有官方吐槽自己的剧情，两男主掉到博士那里属于巧合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+角色刻画方面，基本都是蜻蜓点水，写一点就不再深入了。galo被kray背叛的时候反应的平淡有点出乎意料，女科学家为了妹妹可以杀掉全球的人，这一点也需要描写出很大的心理纠结不然太奇怪了，等等
+
+
+总的来说就是篇幅不够。所以我觉得中岛如果写一个格局相对小一点的故事的话，合理性上不会那么拉胯。
+
+可能是因为大格局也是为极端废燃服务的，没有这种格局，废燃不会达到相应的高度。
+
+中岛这种风格的故事，还是适合长篇动画。
+
+
+
+然后就是优点：
+
+就我个人感觉来说，promare在3D CG和2D的美术结合方面做出了新高度与独创性。
+
+其实不单只是美术方面，还包括概念设计。
+
+可以看出三角形代表的是burnish，四边形代表的是普通人类。
+
+动画组可能是基于这种几何形状，在画2D的烟雾、火焰、冰块、碎片等特效作画时，大量使用直线（线段），所以看起来就像很多多边形组合起来一样。同时在设计大多机械和背景时，也保留了大量的直线。
+
+以及，场景除了景物、物品多是有棱有角的形状以外，画面上也会有很多纵横交错的线条，比如大楼的窗户的线条，比如室内地板的板砖线条。
+
+这些追求的全都是几何感，给人以干净、简洁的感觉。
+
+
+而在色彩方面，也是寻求简化的风格，刻意采用单调的颜色，复杂的也顶多是渐变色，而大多情况下好像都是纯色。
+
+
+线条、形状和色彩都追求了简化、干净的风格。致使整个世界观给人的整体印象就是简洁、干净。
+
+这和3D CG本身简洁干净、线条平整的特点就非常搭配。
+
+所以在背景和机械上大量使用了3D后，我也没怎么感觉到违和。
+
+而3D CG还有透视感强的特点，运用到背景上可谓再适合不过了。再配合运镜就更加能体现出透视感，看着就很舒服。
+
+
+至于角色，也有使用3D的时候，但大部分情况下还是2D。因为角色的表情和运动相比机械要复杂多了，所以用3D的话会比较难有表现力。
+
+另外，后面也有机械使用2D作画的情况，所以其实是3D 2D混用，但有分主次和时机。
+
+
+----------------
+
+
+打戏方面，因为机械是使用了3D，就不能像2D作画一样各种形变来产生张力与爆发感，这也是3D的缺点。
+
+但另一方面，3D CG因为不会像2D一样考虑透视变化的问题，所以运镜就自由多了，自由的运镜也意味着可能会有更多的长镜头。因为直接把镜头运过去就行了，不需要切。长镜头有利于调动情绪和维持情绪，这一点正好能和废燃的风格搭配。
+
+而片子里也确实有大量的旋转镜头以及长镜头，有的镜头真是长的出乎意料。都可以看得心潮澎湃。
+
+
+trigger在这片子里放弃了他们一部分2D的优势，但却把3D CG的优势发挥得淋漓尽致，实在厉害。
+
+真属于那种走极端的流派。天元突破的时候各种草稿线的脏乱漫画风格+超夸张形变制造了超强了爆发力。
+
+promare则是特别干净，为体现概念设计意图，大胆将形状与色彩的设计走向另一个极端，独创性极强。
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 落日六号_| + 1|好评加鹅|
+| 尼特子很辛苦哟| + 1|好评加鹅|
+| hagiwara| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zlzhcqblf  
+##### 686#       发表于 2020-2-20 16:49
+
+
+
+
+打起来大#色#块+转圈圈看的很不舒服
+
+
+
+
+
+
+
+-----
+
+####  Freakyyu  
+##### 687#       发表于 2020-2-21 11:03
+
+
+
+
+刚看完，后半段剧情填的就是屎，但我知道肯定也没几个人在乎剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看萝卜和作画就完事了。但最后那个强行上宇宙让我短暂地犯了PTSD。
+还一大问题就是男一男二的棒读，让我全程出戏。堺雅人虽然也差点意思但比他俩强多了，主要还是声线和人物形象不搭。
+美术风格就看个人喜好了，我并不讨厌这种。
+看到前面有人工呼吸剧情我就预料到后面会有借着人工呼吸卖腐了，全片也就那一小段大概不到一分钟卖腐场景，还算能接受。
+看完之后在bangumi上给了6分，只能说我虽然喜欢萝卜，但更挑剔剧情。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Ivansher  
+##### 688#       发表于 2020-2-21 17:36
+
+
+
+
+画面是真————的燃
+
+剧情是真——————————————————————————————的土
+
+
+
+
+话虽如此只要引进了不管线上线下都打钱
+
+
+
+
+
+
+
+-----
+
+####  EdwardFrost  
+##### 689#       发表于 2020-2-21 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我trigger要是在剧本上花一分钱我就是狗
+
+配音有点捧读啊，是新人吗
+反派的声线挺不错
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  氯氮平片  
+##### 690#       发表于 2020-2-21 18:11
+
+
+
+
+豆瓣周榜第一，不知道用的什么算法
+<img src="http://tva2.sinaimg.cn/large/006ajUXPly1gc46kvju8kj30u01rcnpd.jpg" referrerpolicy="no-referrer">
+[https://m.douban.com/subject_collection/movie_weekly_best](https://m.douban.com/subject_collection/movie_weekly_best)
+
+
+
+
+
+
+
+-----
+
+####  氯氮平片  
+##### 691#       发表于 2020-2-21 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46482606&amp;ptid=1527698" target="_blank">EdwardFrost 发表于 2020-2-21 18:02</a>
+
+我trigger要是在剧本上花一分钱我就是狗
+
+
+配音有点捧读啊，是新人吗</blockquote>
+主角组配音都是请的专业演员，在声优领域可能算新人
+
+
+
+
+
+
+
+-----
+
+####  利维亚的白狼  
+##### 692#       发表于 2020-2-21 19:25
+
+
+
+
+我发现**作品TV版就很好，前期集集有笑点，后期正向燃到炸（在一片苦大仇深燃里面真挺难得的……），而且像忍杀啦婊|子天使啦都是创意十足的作品。但电影无论是名作落叶还是promare都会让我在中期失去耐心。落叶还胜在时长够短，promare我大概从50分钟起一直到1时30分都是1.25倍速<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+                          
