@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-22 00:05** 
+> ## **本文件最后更新于2020-02-22 22:04** 
 
 
 
@@ -16898,4 +16898,772 @@ WT应该就是想表现出御田的武士浪人，侠客感。
 
 
 
-                     
+
+
+-----
+
+####  JC_AR  
+##### 51843#       发表于 2020-2-22 02:21
+
+
+
+
+带小眼镜的是佐隆的师傅嘛？
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 51844#       发表于 2020-2-22 04:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46486648&amp;ptid=98922" target="_blank">JC_AR 发表于 2020-2-22 02:21</a>
+
+带小眼镜的是佐隆的师傅嘛？
+
+
+—— 来自 Xiaomi MI 8, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+眼镜肯定是狂死郎啊！
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51845#       发表于 2020-2-22 07:46
+
+
+
+
+说起来在时夫人看信，日和和桃子睡觉的场景，可以看到7个纸气球，一个红的六个白的，有人猜除了路标，和之国还能找到六块正文
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51846#       发表于 2020-2-22 09:00
+
+
+
+
+说起来，蛋糕岛现在来看，除了山治的表现不符合大家的期望，其他是不是都还不错
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 51847#       发表于 2020-2-22 09:03
+
+
+
+<blockquote>天下至贱 发表于 2020-2-21 16:11
+其实个人认为是原本御田的一部分设定是安在白胡子身上的，无论与罗杰在樱花树下的畅谈对饮，还是最早以藏的 ...</blockquote>
+确实感觉如此
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 51848#       发表于 2020-2-22 09:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487532&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-22 09:00</a>
+
+说起来，蛋糕岛现在来看，除了山治的表现不符合大家的期望，其他是不是都还不错 ...</blockquote>
+布琳被攻略那里我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 51849#       发表于 2020-2-22 09:08
+
+
+
+
+现在解决和之国这事可以一次办了两个皇，以后的进度可以更快，黑胡子 革命军 世界政府可以一起说。
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 51850#       发表于 2020-2-22 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46486648&amp;ptid=98922" target="_blank">JC_AR 发表于 2020-2-22 02:21</a>
+
+带小眼镜的是佐隆的师傅嘛？
+
+
+—— 来自 Xiaomi MI 8, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+虽然一开始我也这么想，但仔细一合计时间轴对不上
+
+索隆两年后21岁，古伊娜比索隆大两岁，如果耕四郎=传次郎的话，就得在那个状态下拖家带口离开和之国，于情于理都说不通
+
+从SBS来看，“几十年前曾有和之国的船到达东海”，耕四郎应该就是这艘船上的某人（霜月耕三郎）的后人
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51851#       发表于 2020-2-22 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487618&amp;ptid=98922" target="_blank">icewolf01 发表于 2020-2-22 09:19</a>
+
+虽然一开始我也这么想，但仔细一合计时间轴对不上
+
+索隆两年后21岁，古伊娜比索隆大两岁，如果耕四郎=传次 ...</blockquote>
+另一个角度来说
+
+
+传次郎就是最后的翻盘点了
+
+
+一个在回忆中以智谋出名，最适合搞事的角色，在另外别人拼死拼活奋斗的时候自己去东海娶妻生子过小日子，说得过去么
+
+
+
+
+
+
+
+-----
+
+####  wyinjie111  
+##### 51852#       发表于 2020-2-22 09:37
+
+
+
+<blockquote>Van夫膜开 发表于 2020-2-21 23:36
+我觉得御田这个人的某些特质放到凯多身上更好一些，甚至更能符合凯多四皇的设定。
+
+
+凯多自幼出身好，然后跟 ...</blockquote>
+靠。你这一说很带感啊
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51853#       发表于 2020-2-22 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487649&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-22 09:23</a>
+
+另一个角度来说
+
+
+传次郎就是最后的翻盘点了</blockquote>
+和之国动画OP完全就是在明示传次郎=狂死郎了。
+
+
+
+
+
+
+12DF2414-228C-4D66-B52D-3DA2CFB6964F.png
+(1.33 MB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-2-22 09:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/095446mjqt67ghbb6768bq.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+C95A393E-147C-40D8-8CE6-B00674C8F424.png
+(1001.04 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-22 09:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/095445dlh1fzwlml2mldzc.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+DF5D22CE-5EFF-44A0-9590-2033A5597673.png
+(1.06 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-22 09:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/095444tlrpvr3m3ox3711o.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+37C8E14F-D3B5-4433-A160-76D3F6493BF7.png
+(1.01 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-22 09:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/095444qyy2t6h2xkuqwxwh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51854#       发表于 2020-2-22 10:08
+
+
+
+ 本帖最后由 灰狼 于 2020-2-22 10:11 编辑 
+<blockquote>仟音一心 发表于 2020-2-22 09:54
+和之国动画OP完全就是在明示传次郎=狂死郎了。</blockquote>
+我记得之前也有人说过，OP看看就好，光看动画目前锦卫门回忆里御田还是叫人砍死的，，
+
+狂死郎主要是看着实在不像一个50多岁的人（虽然看童子41年没啥变化这个也不是事）.除了狂死郎还有一个丑三小子可能有身份
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 51855#       发表于 2020-2-22 10:31
+
+
+
+<blockquote>Snaky 发表于 2020-2-21 20:51
+我不认为WT不爱OP了，如果有他完全可以加速完结而不是不停地创造出众多的新角色
+
+但我确实认为WT最近几年 ...</blockquote>
+wt讲故事能力明显上升了，主要现在都是两章捏成一章讲，导致小毛病都被放大了。德岛这篇幅放两年前绝对得腻死。现在穿插其他人故事和各种搞笑环节使得还说的过去。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51856#       发表于 2020-2-22 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487904&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-22 10:08</a>
+
+我记得之前也有人说过，OP看看就好，光看动画目前锦卫门回忆里御田还是叫人砍死的，，
+
+狂死郎主要是看着实 ...</blockquote>
+还有个相似处：发际线形状都是这种圆锯齿形，显然刻意为之。
+
+丑三小子也可能是传次郎的另一个马甲。
+
+其实知道小紫=日和的时候已经不用猜了。
+
+
+
+
+
+
+FC06A030-3D54-4AD5-8903-798F3AC01403.png
+(51.27 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-22 10:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/104146cjjesyzblgfbdzee.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+7C2FEE5E-B180-43E7-9542-49EDAA178702.png
+(187.05 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-22 10:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/22/104145fv88u9404lrl8r2v.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 51857#       发表于 2020-2-22 10:47
+
+
+
+
+问题是现在还不知道传次郎是被传送过来的还是就这样经营了二十年人设，是前者的话那应该能搬来救兵，后者就只能背后捅捅刀子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  GGLUCK  
+##### 51858#       发表于 2020-2-22 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485574&amp;ptid=98922" target="_blank">Van夫膜开 发表于 2020-2-21 23:36</a>
+
+我觉得御田这个人的某些特质放到凯多身上更好一些，甚至更能符合凯多四皇的设定。
+
+
+凯多自幼出身好，然后跟 ...</blockquote>
+跟你下面一楼结合在一起，把御田的故事分别拆开给凯多，白胡子之后
+
+合理好多，凯多瞬间就立起来了
+
+
+
+
+
+
+
+-----
+
+####  dfas0077  
+##### 51859#       发表于 2020-2-22 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46487532&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-22 09:00</a>
+
+说起来，蛋糕岛现在来看，除了山治的表现不符合大家的期望，其他是不是都还不错 ...</blockquote>
+大妈以及杰尔玛也都不符合期待
+
+
+
+
+
+
+
+-----
+
+####  GGLUCK  
+##### 51860#       发表于 2020-2-22 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46475194&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-2-20 21:51</a>
+
+其实很多剧情转折，感觉就是wt先有了“跳舞五年”和“煮一小时”的想法才设计的 ...</blockquote>
+没错，就是为了硬凑梗和设定创造的剧情
+
+从他的名字和前期桃之助的伏笔来看，早就决定好了凑石川五右卫门的设定了
+
+
+御田的感觉就是取了名字和大背景，然后决定了死法，再在中间加上各种剧情
+
+结果剧情和死法割裂了
+
+
+
+
+
+
+
+-----
+
+####  GGLUCK  
+##### 51861#       发表于 2020-2-22 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488282&amp;ptid=98922" target="_blank">dfas0077 发表于 2020-2-22 11:02</a>
+
+大妈以及杰尔玛也都不符合期待</blockquote>
+大妈篇现在回过头去可以让人记住的：
+
+1. 卡塔库里
+
+2. 滑水榨汁女
+
+3. 布林的吻
+
+
+其他都没有记忆点了，大妈就是个没有任何逻辑的疯婆子，也没有显示出来有容纳万国的气量，总让我觉得背后一定有一个真正控制万国的政治家角色，回忆篇章里发疯吃掉所有人那段，原来我也猜测有伏笔，不会轻易吃掉，结果就这么没下文了。。。
+
+
+至于杰尔马，除了neta忍者战队外，没有任何记忆点，1，2，4一个模子出来的，0也是因为女性角色，和以前的女性角色比起来，除了眉毛毫无特点 
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 51862#       发表于 2020-2-22 11:58
+
+
+
+
+转个评论
+ <blockquote>尾田对于凯多的塑造一直有前后矛盾的问题。一开始渲染的是一个蛮不讲理凶狠残忍的形象，仅仅因为多弗拉明戈拿不出smile就要杀了他，和他做了多年生意的多弗拉明戈还默认了这件事。德岛篇就是围绕这个矛盾才展开的。结果到了凯多正式登场，却成了一个爱才之人，路飞基德这些想要搞他的超新星他一个都没杀。如果是这样，那多弗拉明戈根本就不需要害怕嘛，大不了整团投靠凯多去。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  theory0  
+##### 51863#       发表于 2020-2-22 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488321&amp;ptid=98922" target="_blank">GGLUCK 发表于 2020-2-22 11:08</a>
+
+大妈篇现在回过头去可以让人记住的：
+
+1. 卡塔库里
+
+2. 滑水榨汁女</blockquote>
+目前这一段我觉得还有展开的可能，修女这么容易被吃掉了？
+
+而且从之前的设定来看，修女的心机和运营能力明显是超强的，所以万国的实际控制者如果是修女的话肯定更合理。
+
+
+
+
+
+
+
+-----
+
+####  蔡卓妍  
+##### 51864#       发表于 2020-2-22 15:40
+
+
+
+
+感觉wt还是去逛下bbs好了… 
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51865#       发表于 2020-2-22 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46488321&amp;ptid=98922" target="_blank">GGLUCK 发表于 2020-2-22 11:08</a>
+
+大妈篇现在回过头去可以让人记住的：
+
+1. 卡塔库里
+
+2. 滑水榨汁女</blockquote>
+修女那段显然留着在之后展开的，现在正好大妈也在和之国，又有双重人格表现，会展示的。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51866#       发表于 2020-2-22 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46490303&amp;ptid=98922" target="_blank">theory0 发表于 2020-2-22 14:49</a>
+
+目前这一段我觉得还有展开的可能，修女这么容易被吃掉了？
+
+而且从之前的设定来看，修女的心机和运营能力 ...</blockquote>
+有猜测是修女死前将自己的灵魂附在了大妈身上，因为两个灵魂公用一个身体的副作用失忆了，但是人格还在大妈体内，所以可以用果实能力但不记得自己是谁，大妈的主人格会因为思食症觉醒但一直停留在小时候的状态。
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 51867#       发表于 2020-2-22 16:49
+
+
+
+
+传次郎和阿修罗十年前还挑战过一次凯多，
+所以耕四郎是不可能的，狂死朗基本上肯定了，关键是他用什么方法完成伪装
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 51868#       发表于 2020-2-22 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46481440&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-2-21 16:11</a>
+
+其实个人认为是原本御田的一部分设定是安在白胡子身上的，无论与罗杰在樱花树下的畅谈对饮，还是最早以藏的 ...</blockquote>
+樱花树不一定只有和之国才有，乔巴那个庸医养父以前就看到过某处盛开的樱花树而觉得改行做医生，这个伏笔至今没填
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 51869#       发表于 2020-2-22 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46485574&amp;ptid=98922" target="_blank">Van夫膜开 发表于 2020-2-21 23:36</a>
+
+我觉得御田这个人的某些特质放到凯多身上更好一些，甚至更能符合凯多四皇的设定。
+
+
+凯多自幼出身好，然后跟 ...</blockquote>
+那凯多怎么跟大妈扯上关系就很难安排了，凯多（青）与大妈（红）还有和之国更有可能是在neta桃太郎讨伐赤鬼青鬼的故事
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 51870#       发表于 2020-2-22 20:04
+
+
+
+
+OP里有名字的角色，从来没有被木仓打死过的吧？
+
+
+直到和之国篇，连续打死康家和御田。
+
+
+真的是 “海楼石弹头” 不成？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51871#       发表于 2020-2-22 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46493032&amp;ptid=98922" target="_blank">C男人 发表于 2020-2-22 20:04</a>
+OP里有名字的角色，从来没有被木仓打死过的吧？
+
+
+直到和之国篇，连续打死康家和御田。</blockquote>
+贝尔梅尔、乙姬王妃、迪亚斯、斯卡莱特、霍名古圣、柯拉松：？
+
+
+
+
+
+                    
