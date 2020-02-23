@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-23 22:05** 
+> ## **本文件最后更新于2020-02-24 00:05** 
 
 
 
@@ -3605,6 +3605,25 @@ mea咖喱人也出事了？这就是咩夸的羁绊之力吗
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|草|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3661,4 +3680,432 @@ mea咖喱人也出事了？这就是咩夸的羁绊之力吗
 
 
 
-                                           
+
+
+-----
+
+####  plazum  
+##### 1705#       发表于 2020-2-23 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502783&amp;ptid=1914314" target="_blank">若风之景 发表于 2020-2-23 21:59</a>
+
+讨厌的地方
+
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 S1Next-鹅版 v2.1.2</blockquote>
+哦……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1706#       发表于 2020-2-23 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502769&amp;ptid=1914314" target="_blank">plazum 发表于 2020-2-23 21:57</a>
+梁木是什么意思啊</blockquote>
+大概是变得能从同样的东西里看出之前看不见的东西吧(指不好的东西)
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1707#       发表于 2020-2-23 22:18
+
+
+
+
+比喻成眼中钉估计差不多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+在圣天使的五岁rp面前不值一提
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1708#       发表于 2020-2-23 22:21
+
+
+
+
+看山是山，看水是水。
+
+看山不是山，看水不是水。
+
+看山还是山，看水还是水。
+
+
+——走到哪了？要停下吗？
+
+——这样啊，保重。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1709#       发表于 2020-2-23 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502975&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-2-23 22:21</a>
+看山是山，看水是水。
+
+看山不是山，看水不是水。
+
+看山还是山，看水还是水。</blockquote>
+好
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 1710#       发表于 2020-2-23 22:23
+
+
+
+
+从rp和rp的rp里看出梁木来，那这梁木我觉得也是rp的。
+
+—— 来自 HUAWEI RVL-AL09, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1711#       发表于 2020-2-23 22:25
+
+
+
+ 本帖最后由 plazum 于 2020-2-23 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502949&amp;ptid=1914314" target="_blank">豆芽123 发表于 2020-2-23 22:18</a>
+
+比喻成眼中钉估计差不多
+
+
+在圣天使的五岁rp面前不值一提</blockquote>
+<[img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1712#       发表于 2020-2-23 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46502986&amp;ptid=1914314" target="_blank">矢吹奈子 发表于 2020-2-23 22:23</a>
+
+从rp和rp的rp里看出梁木来，那这梁木我觉得也是rp的。
+
+
+—— 来自 HUAWEI RVL-AL09, Android 9上的 S1Next- ...</blockquote>
+从虚拟人组的虚拟cp中看出虚拟梁木来，这不正是vtuber的醍醐味吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然像净土连体婴看出zqsg甚至人生意义也是一种选择就是了
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 1713#       发表于 2020-2-23 22:45
+
+
+
+
+铲楼本来是大家共建的通天巴别塔，可上帝生气了，让大家产生了不同的语言，羁绊也就消失了。
+所以大家一起重新爬铲楼吧，找回原来的自己。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1714#       发表于 2020-2-23 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503196&amp;ptid=1914314" target="_blank">spring_VOV 发表于 2020-2-23 22:45</a>
+铲楼本来是大家共建的通天巴别塔，可上帝生气了，让大家产生了不同的语言，羁绊也就消失了。
+所以大家一起 ...</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1715#       发表于 2020-2-23 22:51
+
+
+
+
+太V了，太V了.jpg
+
+梁木是一个叫基督中文的微博号整天宣传基督教，结果被狗粉丝盯上了，整天在他微博底下刷有没有梁木卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1716#       发表于 2020-2-23 22:55
+
+
+
+
+没有梁木怎么黑屁啊，黑屁不就是这么开始的吗，当你抓住一个看上去可以挑刺的点却简简单单用“就这么点事算了”的理由搪塞过去的话，还哪来的巨魔文创啊
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1717#       发表于 2020-2-23 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503318&amp;ptid=1914314" target="_blank">⑨个饼干 发表于 2020-2-23 22:55</a>
+没有梁木怎么黑屁啊，黑屁不就是这么开始的吗，当你抓住一个看上去可以挑刺的点却简简单单用“就这么点事算 ...</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 1718#       发表于 2020-2-23 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503269&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-23 22:51</a>
+
+太V了，太V了.jpg
+
+梁木是一个叫基督中文的微博号整天宣传基督教，结果被狗粉丝盯上了，整天在他微博底下刷 ...</blockquote>
+哦，涨姿势<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可惜这个号现在已经没了
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 1719#       发表于 2020-2-23 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是都不互动 连个新的可以谈的东西都没有
+楼里的车轱辘都看过多少遍了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1720#       发表于 2020-2-23 23:07
+
+
+
+
+所以才需要杀连体婴
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1721#       发表于 2020-2-23 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">zqsg长文，对这cp的看法
+各位暗黑贴贴人都明白，贴贴民最坚实的后盾是咩夸的线下关系，这就有意思了
+774是男的另说，miu一个电话就能到mea家蹭饭，mea有段时间也天天缠着miu打电话，这关系是好的很，为什么咩缪没人气呢。归根到底是最早那一批人挖到的麻凛内容是最多的，然后正主营业了一波，咩缪没有
+所以咩夸这cp概括一下，大概是“线下关系形成的线上互动”
+2020年了，线上互动我是欢迎的，线下关系就算了吧。你们挖麻的人应该都有这个感受，越是去挖，就越会觉得这个人遥不可及，你越能明白自己永远不能接触到她的生活，拿着点麻凛贴贴的内容就以为自己什么都懂就更是可笑。如果到现在还有人觉得夸是咩唯一的心灵之友，是咩唯一的港湾，这脑子就应该拿去治治
+总结：有联动欢迎，没有就别给那找存在感
+
+syl，当年病栋炸开，记者人在贴贴楼里说：所以这楼只能聊meaqua，不能聊别的cp了？
+现在想想真是一股鹈鹕味
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plazum| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1722#       发表于 2020-2-23 23:45
+
+
+
+
+记者人的发光路线有其可取之处，归根结底看V是为了图一乐，不是给自己添堵
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1723#       发表于 2020-2-23 23:47
+
+
+
+<blockquote>JustW 发表于 2020-2-23 23:45
+记者人的发光路线有其可取之处，归根结底看V是为了图一乐，不是给自己添堵 ...</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1724#       发表于 2020-2-23 23:52
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-23 23:55 编辑 
+
+其实并不是虚拟关系里看出虚拟梁木，而是从虚拟中窥见了现实的一角。而这现实是与你见到的虚拟所相违背的，这才是产生梁木的原因。
+就像是我们见到的某人喊meaqua贴贴。但是其实现在给我们的感觉并不贴就是了。当你意识到这个时，违和感就愈加浓重了。
+
+
+
+
+
+
+
+-----
+
+####  wpcc  
+##### 1725#       发表于 2020-2-24 00:01
+
+
+
+<blockquote>草牛 发表于 2020-2-23 23:13
+zqsg长文，对这cp的看法
+
+各位暗黑贴贴人都明白，贴贴民最坚实的后盾是咩夸的线下关系，这就有意思了 ...</blockquote>
+我当年在贴贴楼提这个可是被lcc杀出去的。现在想想哪有什么暗黑贴贴人，只有乐子人和幻想人。
+
+
+
+
+
+
+                                          
