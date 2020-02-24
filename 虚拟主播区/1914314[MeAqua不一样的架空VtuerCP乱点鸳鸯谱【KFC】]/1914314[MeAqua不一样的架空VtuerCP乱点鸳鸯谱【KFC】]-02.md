@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 22:06** 
+> ## **本文件最后更新于2020-02-25 00:07** 
 
 
 
@@ -9491,6 +9491,7 @@ FBK趁机开播逃避打击好活
 
 
 
+ 本帖最后由 yuaness 于 2020-2-24 22:28 编辑 
 
 人家观众想看的是大亏，而不是企划，别酸了，酸不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -9507,10 +9508,636 @@ FBK趁机开播逃避打击好活
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这个真的需要用现在揭示么
+ 本帖最后由 惘时之轮 于 2020-2-24 22:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这个真的需要用现在揭示么，syl反正我又不打钱，虽然的确虚无但是其他人的类似企划我也没看过，还是挺有乐子的，而且这次实质30w人纪念，就这噱头都能吸引不少gachi打钱了，看楼里老哥一边念叨无聊一边从头看到尾也挺有乐子的，颇有曾经y老哥330嘴上无聊睡了，中间又过来整活的风范，希望大亏多搞点类似活动，你楼老哥又能多整点活，挺好的
 
 
 
 
 
-                                
+
+
+-----
+
+####  SumW5  
+##### 2027#       发表于 2020-2-24 22:07
+
+
+
+
+还是别尬演了
+
+咩上次演得把我真吓坏了，现在只觉得共感性羞耻
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2028#       发表于 2020-2-24 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对嘛，你楼看法又不作数，效果好就多搞点儿，一个月搞一次吧，不长也不短
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 2029#       发表于 2020-2-24 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">天天车轱辘来回，能不能来点新意啊，特地等30W来看一眼，这V区还能不能好了 
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2030#       发表于 2020-2-24 22:16
+
+
+
+ 本帖最后由 素人不相识 于 2020-2-24 22:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514013&amp;ptid=1914314" target="_blank">雷修特 发表于 2020-2-24 22:12</a>
+
+天天车轱辘来回，能不能来点新意啊，特地等30W来看一眼，这V区还能不能好了  ...</blockquote>
+我以为你在说夸，想了想终于意识到你在说你楼
+
+毕竟虚无和车轱辘还是有区别的
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2031#       发表于 2020-2-24 22:16
+
+
+
+
+问题是演的也不咋地啊，她要演的有上次麻苔联动麻哭鼻子那种演技，我这个会员就交出去了好不好。
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 2032#       发表于 2020-2-24 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514057&amp;ptid=1914314" target="_blank">素人不相识 发表于 2020-2-24 22:16</a>
+
+我以为你在说夸，想了想终于意识到你在说你楼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想了想也是，毕竟也不是天天都有那创意整效果，今天有古战场的真情实感够乐子了
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 2033#       发表于 2020-2-24 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514013&amp;ptid=1914314" target="_blank">雷修特 发表于 2020-2-24 22:12</a>
+
+天天车轱辘来回，能不能来点新意啊，特地等30W来看一眼，这V区还能不能好了  ...</blockquote>
+真贴贴人哪会来这,人家光靠二创和虚空制糖就能颅内高潮
+
+还在你楼的都是暗黑派的旧势力,那不只能车轱辘了么
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2034#       发表于 2020-2-24 22:23
+
+
+
+
+换个角度想，今天咩咩装死一整天是在保护夸不被贴贴人炎上吗？
+
+阿咩，又是你默默为大天使拭腚吗？
+
+贴贴呐！！！！11111
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 2035#       发表于 2020-2-24 22:24
+
+
+
+ 本帖最后由 肚子疼了 于 2020-2-24 22:26 编辑 
+
+诸位暗黑贴贴人夜哭到明，明哭到夜，能哭倒大亏否？一边看一边骂，乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 你版从第二名掉到了第四名，v版亡矣
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2036#       发表于 2020-2-24 22:28
+
+
+
+
+yjsj，暗黑贴贴人的敌人也从来不是大亏而是贴贴人吧。就目前来看战况还是蛮顺利的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2037#       发表于 2020-2-24 22:32
+
+
+
+
+隔壁贴贴楼昨天anmr新人联动聊了半页，今天夸夸单人自演聊了4页，这能看出什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2038#       发表于 2020-2-24 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">能看出夸哥这企划确实有意思，不仅能拿钱，还能提纯，真的建议多搞，一定要多搞啊
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2039#       发表于 2020-2-24 22:36
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-24 22:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴人中夸推杏推十倍杀咩推anmr推苔推，谁同意，谁反对？你蛐蛐底边小箱和个人势报团取暖何德何能与人家业界之光大箱头牌之一solo相提并论，萤虫之光岂敢与日月争辉，蜉蝣撼树，螳臂当车，可笑可笑。
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 2040#       发表于 2020-2-24 22:36
+
+
+
+
+还夸单人，难道不知道这楼的大家伙在期待什么嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2041#       发表于 2020-2-24 22:37
+
+
+
+
+就想看贴贴人自讨没趣。还啪啪啪的被打脸。
+
+
+
+
+
+
+
+-----
+
+####  Claymorist  
+##### 2042#       发表于 2020-2-24 22:41
+
+
+
+
+答应我，不要当怨妇好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是说以前m楼真就那么多黑暗贴贴人啊，我要幻灭了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 2043#       发表于 2020-2-24 22:42
+
+
+
+
+我觉得今晚的自演还是应该让彩虹人去骂骂比较好，贴贴人有什么好骂的，不会真的有人以为会贴贴吧，不要恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2044#       发表于 2020-2-24 22:43
+
+
+
+
+您好，是的（）
+
+
+主要这楼会起到浓缩提纯的作用，大家互相鼓励着说出了以前或许不想说的话
+
+
+古战场和贴贴楼同理
+
+
+此乃网络回音室
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2045#       发表于 2020-2-24 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑暗贴贴人又赢了！黑暗贴贴人总是赢，但是贴贴人们也从未输过，下次较量究竟何如，然我们拭目以待。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2046#       发表于 2020-2-24 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514246&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-2-24 22:32</a>
+
+隔壁贴贴楼昨天anmr新人联动聊了半页，今天夸夸单人自演聊了4页，这能看出什么 ...</blockquote>
+那只能说你没见过贴贴楼一座楼就盖的比夸楼咩楼两座楼的总和还快的时代<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2047#       发表于 2020-2-24 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514431&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-24 22:46</a>
+黑暗贴贴人又赢了！黑暗贴贴人总是赢，但是贴贴人们也从未输过，下次较量究竟何如，然我们拭目以待 ...</blockquote>
+不就是你们贴贴人套上了夸皇的复活甲，不然早被暗黑贴贴人消灭了。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2048#       发表于 2020-2-24 22:51
+
+
+
+
+暗黑贴贴人就不能套复活甲了吗，大天使的恩泽是不分对象的！
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 2049#       发表于 2020-2-24 22:53
+
+
+
+
+看了一圈lga的crew对这企划的评价，总结就是粉丝滤镜+舔狗惯性思维+理中客，真的弱智看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2050#       发表于 2020-2-24 22:56
+
+
+
+ 本帖最后由 惘时之轮 于 2020-2-24 23:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闹呢，我虽然还是贴贴人，但是早就不是六字母贴贴人了，我曾经还是郡道roa贴贴人呢，不贴就换，谁贴看谁。syl,这种类似我最近去了xx讨论帖，他们竟然喜欢xx，太弱智了的黑屁也太弱智了，黑屁就好好黑屁，没事别去视奸人家小团体搞团建，这种精神胜利胜之不武，没有意义。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2051#       发表于 2020-2-24 22:59
+
+
+
+<blockquote>无限舰制 发表于 2020-2-24 22:43
+您好，是的（）
+
+
+主要这楼会起到浓缩提纯的作用，大家互相鼓励着说出了以前或许不想说的话
+</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2052#       发表于 2020-2-24 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46514549&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-24 22:56</a>
+闹呢，我虽然还是贴贴人，但是早就不是六字母贴贴人了，我曾经还是郡道roa贴贴人呢，不贴就换，谁贴 ...</blockquote>
+建议您看2000ig贴贴呢
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 2053#       发表于 2020-2-24 23:17
+
+
+
+
+今天贴贴人被打脸了，暗黑贴贴人又胜利了
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2054#       发表于 2020-2-24 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">贴贴人只需要画师的脑洞产粮就能活了
+
+
+sly我这种从不看圣夸皇虚无纪念回，听到别人讨论说连麦0人到场 都觉得这次挺厉害，既能向粉丝卖惨 又能给anti乐子
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2055#       发表于 2020-2-24 23:35
+
+
+
+
+贴贴人自己都知道在做梦，这怎么能叫打脸呐
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2056#       发表于 2020-2-24 23:38
+
+
+
+
+为了大天使的企划，逼着全社还能动的直播给她整活。本身别人同接就被撞了，还要挨crew浮游炮，在直播间刷快点去打电话。真实社霸。
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2057#       发表于 2020-2-24 23:57
+
+
+
+
+半夜开始了，该zqsg了。又是我先来。如果来楼内老哥们两个选项1:带天使直球开贴，nt贴贴人大胜利    2:带天使闭口不提，暗黑贴贴人大胜利。大家更想看到那种呢
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2058#       发表于 2020-2-24 23:58
+
+
+
+
+你这问题怎么就一个选项了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2059#       发表于 2020-2-24 23:59
+
+
+
+
+别说浮游炮其他人，你去看看B站严肃动态下面都有crew跑过来要阿咩去关心做完表演的圣皇，真就一手遮天，佩服佩服
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2060#       发表于 2020-2-24 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515271&amp;ptid=1914314" target="_blank">安达犬 发表于 2020-2-24 23:57</a>
+
+半夜开始了，该zqsg了。又是我先来。如果来楼内老哥们两个选项1:带天使直球开贴，nt贴贴人大胜利    2:带天 ...</blockquote>
+3.大天使提了，但大可爱直球就是不去。mea大胜利。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 2061#       发表于 2020-2-24 23:59
+
+
+
+
+nt贴贴人跟暗黑贴贴人有什么区别？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 2062#       发表于 2020-2-25 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515296&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 23:59</a>
+nt贴贴人跟暗黑贴贴人有什么区别？</blockquote>
+是否承认自己是贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+                               

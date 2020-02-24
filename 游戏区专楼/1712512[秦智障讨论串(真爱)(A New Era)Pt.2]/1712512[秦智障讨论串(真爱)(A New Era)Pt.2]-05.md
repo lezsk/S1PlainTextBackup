@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 02:06** 
+> ## **本文件最后更新于2020-02-25 00:06** 
 
 
 
@@ -20429,4 +20429,659 @@ quin对于xjb玩的造诣已经到了大部分主播无法抵达的境界线，�
 
 
 
-          
+
+
+-----
+
+####  ad110011s  
+##### 7172#       发表于 2020-2-24 12:21
+
+
+
+ 本帖最后由 ad110011s 于 2020-2-24 12:23 编辑 
+
+今日NBA快讯：湖人官宣签下马基夫莫里斯，身披88号球衣。湖人坐镇主场迎来了凯尔特人的挑战，最终以114-112，两分的优势艰难取胜。
+
+
+
+
+
+
+
+-----
+
+####  bad_alloc  
+##### 7173#       发表于 2020-2-24 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46507922&amp;ptid=1712512" target="_blank">ad110011s 发表于 2020-2-24 12:21</a>
+今日NBA快讯：湖人官宣签下马基夫莫里斯，身披88号球衣。湖人坐镇主场迎来了凯尔特人的挑战，最终以114-112 ...</blockquote>
+88号草
+
+
+
+
+
+
+
+-----
+
+####  crystalmacarons  
+##### 7174#       发表于 2020-2-24 13:14
+
+
+
+ 本帖最后由 crystalmacarons 于 2020-2-24 13:15 编辑 
+
+马基夫-莫里斯谈换88号：为了科比，我要球衣上印两个8
+
+
+多位消息人士透露，活塞前锋马基夫-莫里斯将改穿88号球衣，缅怀不久前意外去世的前湖人球星科比-布莱恩特，莫里斯原本身穿8号球衣。
+
+
+莫里斯接受采访时说道：“我只是想要穿上印有两个8号的球衣，这都是为了科比，我将在我的球衣上印上两个8。”
+
+
+大老爹致敬科比说
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7175#       发表于 2020-2-24 17:45
+
+
+
+
+这个88号还是个大胡子,真TM绝了
+
+
+
+
+
+
+
+-----
+
+####  johan·liebert  
+##### 7176#       发表于 2020-2-24 17:48
+
+
+
+
+大老爹在现实的化身
+
+
+
+
+
+
+
+-----
+
+####  轮椅战神邓加尔  
+##### 7177#       发表于 2020-2-24 17:56
+
+
+
+
+湖人队签下马基夫·莫里斯。这看似是正常的补强，但事情并不简单。目前已知的情报： 1、莫里斯的位置来自被裁退的德马库斯·考辛斯。 2、早先大老爹在比赛中直言不满考辛斯的表现。 3、莫里斯的球衣号码是88号。 4、莫里斯这赛季的恶意犯规次数排名联盟第一。 5、莫里斯留有长胡子。
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7178#       发表于 2020-2-24 18:27
+
+
+
+
+哈登·马基夫·帕瓦·莫里斯·奎恩
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 7179#       发表于 2020-2-24 18:28
+
+
+
+
+这真是太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7180#       发表于 2020-2-24 19:57
+
+
+
+
+浓眉场均都比詹姆斯高8分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7181#       发表于 2020-2-24 20:19
+
+
+
+
+#灵能者大老爹脑控失败输在不识字
+
+
+
+
+
+
+
+-----
+
+####  ykyin09  
+##### 7182#       发表于 2020-2-24 20:52
+
+
+
+
+一生之敌77号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7183#       发表于 2020-2-24 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">#大老爹无法独立上厕所 #大老爹裸泳
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 7184#       发表于 2020-2-24 21:05
+
+
+
+
+#大老爹离开湖人原形毕露
+
+
+
+
+
+
+
+-----
+
+####  轮椅战神邓加尔  
+##### 7185#       发表于 2020-2-24 21:27
+
+
+
+
+#大老爹扣篮大赛吃鳖怒而发动败者食尘
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 7186#       发表于 2020-2-24 21:32
+
+
+
+
+#大老爹只会篮下投球#
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 7187#       发表于 2020-2-24 21:42
+
+
+
+
+输急眼打人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 7188#       发表于 2020-2-24 22:01
+
+
+
+
+你真是个游戏天才 我都不敢插嘴
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7189#       发表于 2020-2-24 22:03
+
+
+
+
+湖人完蛋了
+
+
+
+
+
+
+
+-----
+
+####  sfour  
+##### 7190#       发表于 2020-2-24 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">小秦为啥就是不愿意加点投篮呢
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7191#       发表于 2020-2-24 22:06
+
+
+
+
+湖 人 末 日
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 7192#       发表于 2020-2-24 22:06
+
+
+
+
+这谁啊 这么暴躁 感觉要被缺神气死了
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 7193#       发表于 2020-2-24 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这战术震撼我妈一整年，全员冲框
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7194#       发表于 2020-2-24 22:07
+
+
+
+
+猛男寨这个懂球帝又是哪里来的
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7195#       发表于 2020-2-24 22:07
+
+
+
+<blockquote>imba419 发表于 2020-2-24 22:06
+这谁啊 这么暴躁 感觉要被缺神气死了</blockquote>
+兜哥，和门房一起解说过狗头人玩黑魂3
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 7196#       发表于 2020-2-24 22:09
+
+
+
+
+“等以后小秦老了，下个棋能送走一小区的老人”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  199april  
+##### 7197#       发表于 2020-2-24 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这tm防空汤神是什么战术？
+
+
+
+
+
+
+
+-----
+
+####  臭P遇上臭脚  
+##### 7198#       发表于 2020-2-24 22:31
+
+
+
+
+大老爹梦回7天前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7199#       发表于 2020-2-24 22:32
+
+
+
+
+#爹落神坛
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 7200#       发表于 2020-2-24 22:35
+
+
+
+
+kfkk大老爹
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 7201#       发表于 2020-2-24 22:36
+
+
+
+
+突然18分差
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 7202#       发表于 2020-2-24 22:37
+
+
+
+
+狂砍五分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 7203#       发表于 2020-2-24 22:43
+
+
+
+
+膨胀了想打超级明星是这样的
+
+
+
+
+
+
+
+-----
+
+####  尘世的忧伤  
+##### 7204#       发表于 2020-2-24 22:43
+
+
+
+
+这简直就是一场吊打，建议**毙解说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  轮椅战神邓加尔  
+##### 7205#       发表于 2020-2-24 22:47
+
+
+
+
+YY里面这个装NM最懂球的是真的烦
+
+
+
+
+
+
+
+-----
+
+####  星野航  
+##### 7206#       发表于 2020-2-24 22:49
+
+
+
+
+“我觉得这个队不怎么厉害”
+
+指库汤都在的勇士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7207#       发表于 2020-2-24 23:00
+
+
+
+
+https://www.bilibili.com/read/cv4792221
+
+草
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 7208#       发表于 2020-2-24 23:59
+
+
+
+
+微博搜大老爹的相关搜索已经被刷屏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7209#       发表于 2020-2-25 00:01
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/000057hisz79sb95tsrs7p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>webwxgetmsgimg (1).jpg</strong> (138.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-25 00:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 7210#       发表于 2020-2-25 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515305&amp;ptid=1712512" target="_blank">107a 发表于 2020-2-25 00:01</a></blockquote>
+太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
