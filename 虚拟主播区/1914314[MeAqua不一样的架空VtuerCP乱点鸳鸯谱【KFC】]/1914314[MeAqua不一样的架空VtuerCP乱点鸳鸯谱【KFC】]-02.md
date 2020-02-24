@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 14:07** 
+> ## **本文件最后更新于2020-02-24 16:03** 
 
 
 
@@ -5580,8 +5580,11 @@ V版今天被漫区三倍杀了，凉透了，救不活
 
 
 
+ 本帖最后由 豆芽123 于 2020-2-24 14:10 编辑 
 
 连麦是贴贴人头子苔姨脑补的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总而言之就是六字母贴贴
+
+只要这两人还活着贴贴人就不死不灭，圣天使自带无限复活，要谁死不用想了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -5605,4 +5608,553 @@ V版今天被漫区三倍杀了，凉透了，救不活
 
 
 
-                                       
+
+
+-----
+
+####  zilch_ren  
+##### 1806#       发表于 2020-2-24 14:07
+
+
+
+
+不管有没有连麦，蟑螂贴贴人都立于不败之地
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1807#       发表于 2020-2-24 14:09
+
+
+
+
+那有啥好搬的，就是根据mea的发言和夸皇ark上线时间推测出两人可能私下聊了一会，没有内容
+还不如去研究虚拟人拉屎能夹断几节
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1808#       发表于 2020-2-24 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508959&amp;ptid=1914314" target="_blank">⑨个饼干 发表于 2020-02-24 14:06:13</a>
+个人势救不起来了，现在的虹 杏从根本上就已经不一样了，个人势消亡已经是定局，苔苔无力回天的。
+
+而且上面 ...</blockquote>海苔男是真的苦，又要对抗两大箱导致的观众流失，还被两大箱里面被观众排挤的当避风港，或者被想跨箱联动把线下关系线上化的人做跳板。 而且海苔男sc又相对不多，自己要开了个直播箱。热度不能保证的话，没工商怎么活啊...
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1809#       发表于 2020-2-24 14:14
+
+
+
+
+说🐔8，首先这是6字母楼，有关的搬一下最好。其次，昨天的事我今天问一下都有几层回复，管他真的假的，顺手黑p一下nt贴贴人，再黑下苔姨之类的， 这流量不就来了。不然就靠深夜zqsg嗮虚拟太阳，白天yygq车轱辘，能顶多久，拯救V板，从6字母做起，噢力给!
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1810#       发表于 2020-2-24 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509005&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-24 14:12</a>
+
+海苔男是真的苦，又要对抗两大箱导致的观众流失，还被两大箱里面被观众排挤的当避风港，或者被想跨箱联动把 ...</blockquote>
+这还不简单吗，不直播不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+赚不到钱就跑路，哪有那么复杂
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 1811#       发表于 2020-2-24 14:16
+
+
+
+ 本帖最后由 noaki 于 2020-2-24 14:18 编辑 
+<blockquote>还不如去研究虚拟人拉屎能夹断几节</blockquote>
+
+虚拟人不会拉屎，首先这个研究的大前提就不成立。
+
+研究虚拟人磨批会用什么体位同理<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1812#       发表于 2020-2-24 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509032&amp;ptid=1914314" target="_blank">proxima 发表于 2020-02-24 14:14:52</a>
+这还不简单吗，不直播不就完了
+
+赚不到钱就跑路，哪有那么复杂</blockquote>别说，转职全职经纪人可以有，不过赚的少啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1813#       发表于 2020-2-24 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509032&amp;ptid=1914314" target="_blank">proxima 发表于 2020-2-24 14:14</a>
+
+这还不简单吗，不直播不就完了
+
+赚不到钱就跑路，哪有那么复杂</blockquote>
+说起来，海苔男搞的这个箱是谁投资的，如果有其他股东，估计跑不了路
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1814#       发表于 2020-2-24 14:20
+
+
+
+ 本帖最后由 meatybobby 于 2020-2-24 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509005&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-24 14:12</a>
+
+海苔男是真的苦，又要对抗两大箱导致的观众流失，还被两大箱里面被观众排挤的当避风港，或者被想跨箱联动把 ...</blockquote>
+苔姨跟咩姐積極扶持anmr的原因找到了
+
+待anmr重返第三大箱地位 兩人以功臣身份定能分到一個好位置
+
+
+
+
+
+
+
+-----
+
+####  yuusei_  
+##### 1815#       发表于 2020-2-24 14:21
+
+
+
+
+纯良白河豚ZQSG来了
+
+不过你们说楼里不会有纯良，我不知道视奸人算不算
+
+有老哥说meaqua不是安达与岛村而是京吹，我也不知道热爱京吹的我算不算白河豚
+
+
+我推meaqua的心理大概和ZQSG哥比较像，只希望她们作为朋友能好好的走下去，而不是像缩宅的自己一样没有维系友谊的能力（zqsg哥那段话现在还在我的手机截图里）。所以现在也只是有些怅然若失，学生时代的友谊没能持续下去再正常不过了，而二人现在应该还是不错的朋友关系，只不过彼此在对方心中的地位大概有所不同，这在朋友间也蛮常见的。
+
+
+我看管人喜欢那种永远不知道他们所吐露的是真是假，琢磨不透的醍醐味儿，所以我喜欢看咩，一是反差萌，二是不可知性。想了想这有点像是原创动画，确实我是有些把管人当原创动画看的。只是我看原创动画虽然多少也会猜测后续发展，但远远比不上S1各位对后续剧情天马行空的推测，就像我只会视奸各位的脑洞黑P，但是只是觉得好笑。所以我看楼里的一些人的状态，像是喜欢做预测的观众看到剧情发展脱离预测时的样子，做个不恰当的比喻，看了一半的国家队观众……
+
+
+所以各位心中有梁木，而我只是觉得怅然若失，大概是因为你们都在第五层，而我始终只在第一层徘徊。现在倒是夸也看的不多了，但不是因为梁木，只是单纯的不那么合胃口。
+
+
+meaqua确实有点像京吹，只不过夸比丽奈更添了一分冷色，而咩大概是没有选择入部的久美子罢了。一些看似圆满的故事，是问不得结尾之后的事的，把二人现在的关系当做故事结尾之后的事，不也挺好吗
+
+
+
+
+以上分析纯属扯淡，权且当个乐子就好，zqsg是真的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| BigLittle1999| + 1|视奸人点赞|
+| 离魂仙| + 1|这个比喻很带感|
+| 魔法使い2019| + 1||
+| 商博良| + 1|zqsg是真的|
+| noaki| + 1|少看管人观众|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1816#       发表于 2020-2-24 14:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509081&amp;ptid=1914314" target="_blank">yuusei_ 发表于 2020-2-24 14:21</a>
+纯良白河豚ZQSG来了
+
+不过你们说楼里不会有纯良，我不知道视奸人算不算
+
+有老哥说meaqua不是安达与岛村而是京 ...</blockquote>
+支持，还是少关注管人观众矛盾为好
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1817#       发表于 2020-2-24 14:29
+
+
+
+
+顺着去看了眼b站动态，果不其然这“残党”还是在熟悉的位置嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴！
+
+
+<img src="https://img.saraba1st.com/forum/202002/24/142900s2dsclxioxqx5lqs.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020_0224_142556.png</strong> (460.39 KB, 下载次数: 2)
+
+下载附件
+
+2020-2-24 14:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1818#       发表于 2020-2-24 14:30
+
+
+
+
+mea得和海苔男继续在一起才有可能继续下去，海苔男要是不做了mea的境况只会更加险恶，noripro都可以当个人势和糊逼企业势的方舟了。所以我一直觉得mea不知道是自己决定的、或者是海苔男建议的、或者是误打误撞的，至少到今天为止的路线还是对的，抱紧海苔男，抱住两大箱，去年最后几个月开始明显脑袋就灵光起来了，可能是因为周围认识的人都是盈利壬，一起待久了也就学会盈利了吧。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1819#       发表于 2020-2-24 14:31
+
+
+
+
+真的不满这群傻逼，稍微懂点东西就咋咋呼呼
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1820#       发表于 2020-2-24 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509157&amp;ptid=1914314" target="_blank">⑨个饼干 发表于 2020-2-24 14:30</a>
+mea得和海苔男继续在一起才有可能继续下去，海苔男要是不做了mea的境况只会更加险恶，noripro都可以当个人 ...</blockquote>
+这是好事，应该高兴才对。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1821#       发表于 2020-2-24 14:39
+
+
+
+
+火星
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1822#       发表于 2020-2-24 14:41
+
+
+
+
+胡说，夸夸是想和咩咩聊天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1823#       发表于 2020-2-24 14:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个女人听另一个女人胡咧咧，且不说是否发生了，真的能提高杂谈能力么
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1824#       发表于 2020-2-24 14:46
+
+
+
+
+你楼没点新活么，都拉胯多少天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuusei_  
+##### 1825#       发表于 2020-2-24 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509119&amp;ptid=1914314" target="_blank">若风之景 发表于 2020-2-24 14:25</a>
+
+支持，还是少关注管人观众矛盾为好
+
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+他们的矛盾有一部分是对某些粉丝群体的矛盾，但是我觉得更多的是其实是自己和自己的矛盾。毕竟如果单纯的没有感情了不看就好，只是因为粉丝群体而追着不放实属折磨自己。我是从来不会因为粉丝如何如何去选择看或者不看，爱或恨的，我只会安静的离开。不过管人观众确实有意思，越巨魔的越搞笑
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1826#       发表于 2020-2-24 15:36
+
+
+
+
+这楼还能有啥新活，mea和aqua都把自己的三次元和线下联系藏的死死的，根本没啥有效情报。只能靠一些古老的东西黑屁下。说白了也就欺负下入坑尚浅的贴贴人和5岁crew。其他有点独立分析能力的谁会听这帮人黑屁。
+讲道理，就夸那个被偶尔爆出来的真实性格，mea还对她不离不弃，到底是被吃死了还是真爱，就不知道了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1827#       发表于 2020-2-24 15:45
+
+
+
+ 本帖最后由 肚子疼了 于 2020-2-24 15:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509758&amp;ptid=1914314" target="_blank">雪代suzuno 发表于 2020-2-24 15:36</a>
+
+这楼还能有啥新活，mea和aqua都把自己的三次元和线下联系藏的死死的，根本没啥有效情报。只能靠一些古老的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我这个回复怕不是今天v版的第四百个回复，v版才开了几天就凉了，需要靠你楼拯救了
+
+syl 之前投票贴人口普查，你版算上小号才六百个人头，太惨了，人贴吧随便撕个比都几百楼的，到底哪来的勇气开版
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1828#       发表于 2020-2-24 15:45
+
+
+
+
+所以说到底啥才算“不离不弃”
+
+
+有事了问两句，遇到傻屌图发过去乐呵一下，郁闷了深夜互相吐槽，还要啥吗（）
+
+
+我当然也觉得自己待的有些群群友脑瘫，有的时候说批话，乱传乱信，但这也不妨碍有人因为学业和家庭问题又或者看了啥作品上了头，深夜发疯的时候我劝劝他们
+
+
+到底啥才算贴贴呢
+
+
+不谈钱真没那么多容易有矛盾的地方，除非这两个人为了BLCP撕逼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dfbfgd32  
+##### 1829#       发表于 2020-2-24 15:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1830#       发表于 2020-2-24 15:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">论证不够有力
+三小姐觉得裁裁是好人，你分析一下
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 1831#       发表于 2020-2-24 15:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说是坏人会粉丝去爆破落人口实，所以说是好人
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1832#       发表于 2020-2-24 16:01
+
+
+
+
+其实就跟nga分楼一样，人人都以为自己的v讨论量多，有啥必要跟其他人挤在一栋楼里，委实没b数，真正分了后能活下来的不就那几个。这里也一样，要不是有带天使给了你板一个复活甲，早几天就被压死了，还用等到现在?
+
+
+
+
+
+                                      
