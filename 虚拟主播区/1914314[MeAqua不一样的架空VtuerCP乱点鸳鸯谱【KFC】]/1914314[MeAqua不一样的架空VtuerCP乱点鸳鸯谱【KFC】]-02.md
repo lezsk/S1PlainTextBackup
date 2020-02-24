@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 12:06** 
+> ## **本文件最后更新于2020-02-24 14:07** 
 
 
 
@@ -5117,4 +5117,492 @@ zqsg真的算了吧，还不如诅咒别人咖喱人看着来的痛快呢<img sr
 
 
 
-                                        
+
+
+-----
+
+####  惘时之轮  
+##### 1780#       发表于 2020-2-24 12:28
+
+
+
+
+反正我这次语音实质白嫖爽到了，就是没上次那种周边谷子了，有点小不爽
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1781#       发表于 2020-2-24 12:36
+
+
+
+
+不就是嫉妒夸夸那800个新会员200个新舰长吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1782#       发表于 2020-2-24 12:37
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-2-24 12:47 编辑 
+
+本理论家突然想起来一件事:
+
+某一次大亏在推特收集自己的精彩片段/大家喜欢的片段还是什么的， 有没有后续?
+
+如果没有的话， 我认为这是holo切割meaqua论的另一个证据。
+
+为什么这么说? 当时一个本土粉把516后的b限提出了， 并得到大量贴贴民点赞。 也许这件事让holo意识到了什么? 
+
+以上只是我的胡言乱语。
+
+本理论家一直是holo切割论的信奉者， 对夸没有恶意， 大家不要把我当成奇怪的人哦<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+其实我还有一些不适合说出口的理论， 所以我只能当个谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1783#       发表于 2020-2-24 12:50
+
+
+
+
+yagoo不愿肥水流了外人田，将大亏囚与holo那一片繁荣假象的高塔之上，“这一次我来做你的骑士！”咩啊塔姆挺身而出却屡屡受挫，最终才意识到，童话中的骑士只是刚好是千万骑士中救下公主的那位才被记载，而自己，却是那千万失败者中的平凡一位，等着我，我一定会变得更强，然后总有一天，拯救你。贴贴！！！！！！！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞| + 1|爱谁救谁救，没那么父母馒头给你吃。.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1784#       发表于 2020-2-24 12:52
+
+
+
+
+脑瘫吗？夸皇难道不是因为太过邪恶才被yagoo囚禁的吗。
+mea塔姆难道不是被傻逼连体人骗去救人的傻瓜？
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1785#       发表于 2020-2-24 12:59
+
+
+
+
+那就是大邪神被封印然后咩啊塔姆受人蛊惑解除封印放出灾恶的故事了，这样讲只会让读者觉得主角咩啊塔姆脑瘫啊，正义的英雄是要会春秋笔法的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1786#       发表于 2020-2-24 13:05
+
+
+
+
+vtuber版堂吉诃德<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1787#       发表于 2020-2-24 13:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 1788#       发表于 2020-2-24 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508594&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-24 13:27</a>
+
+久仰s1黑名（nga贴吧b站q群都有人建议不要来的地方），听说开了v版没忍住误入了，爬了几栋楼后对v ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毒也要吃，营养也要吃，这样才称得上健全。（大嘘）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1789#       发表于 2020-2-24 13:36
+
+
+
+
+什么，咩啊不是脑瘫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1790#       发表于 2020-2-24 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508594&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-24 13:27</a>
+久仰s1黑名（nga贴吧b站q群都有人建议不要来的地方），听说开了v版没忍住误入了，爬了几栋楼后对v ...</blockquote>
+你憋急，有能耐就天天高强度看，看上半年以后你再来说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1791#       发表于 2020-2-24 13:40
+
+
+
+
+yysy 要真的是纯良人就不可能会点开S1，肯定是心里有了梁木<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1792#       发表于 2020-2-24 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508594&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-24 13:27</a>
+久仰s1黑名（nga贴吧b站q群都有人建议不要来的地方），听说开了v版没忍住误入了，爬了几栋楼后对v ...</blockquote>
+看你笑的那么开心，那就很好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 1793#       发表于 2020-2-24 13:47
+
+
+
+
+晚上连麦纪念回 会有那个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1794#       发表于 2020-2-24 13:48
+
+
+
+
+我在净土坛的时候还觉得S1都是脑瘫呢，现在已经爱上这里了，反而觉得净土坛都是脑瘫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过几个月前我还觉得A岛都是脑瘫呢，感觉ig马上就要转进A岛了( ﾟ∀。)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|祝武运昌隆|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1795#       发表于 2020-2-24 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508783&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-24 13:48</a>
+我在净土坛的时候还觉得S1都是脑瘫呢，现在已经爱上这里了，反而觉得净土坛都是脑瘫了
+
+不过几个月前 ...</blockquote>
+那真是太好了（字面意义）
+ig，决定二，堂堂发表！把天赋带到a岛！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1796#       发表于 2020-2-24 13:49
+
+
+
+
+昨天夸夸和咩咩连了麦，今天没有的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1797#       发表于 2020-2-24 13:50
+
+
+
+
+是不是还不一定呢。贴贴人这就虚空制糖了？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1798#       发表于 2020-2-24 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46507241&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-24 11:19</a>
+
+我以为刮刮乐部分是指哪家的粉丝呢，想了好久也没想出来
+
+结果是木口带家庭，木口带家庭请发到Mk2的木口楼 ...</blockquote>
+V版今天被漫区三倍杀了，凉透了，救不活
+
+不过漫区今天热度高得吓人，倍杀游戏区
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 1799#       发表于 2020-2-24 13:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩啊塔姆还是救自己吧，个人势那么艰难，连苔苔那么吃得开的都忧郁起来了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">指不定你咩也想蹭ark求圣夸皇带带呢，圣夸皇忙着追回十多天没播的损失呢，哪有空吊
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1800#       发表于 2020-2-24 14:01
+
+
+
+
+咩啊还是好好的联联动杂杂谈吧，玩ARK观众看得估计要被气死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">稍微就能脑补出得场景
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1801#       发表于 2020-2-24 14:03
+
+
+
+
+昨天连麦又是什么情况，你楼完全没反应的，黑p归黑p，有人实质性的东西就搬进来可以🐴，就算这里是粪坑，好歹也要带点纸巾进来啊
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1802#       发表于 2020-2-24 14:05
+
+
+
+
+有連麥就貼貼 沒連麥就肯定是昨晚洽獨食 貼貼
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1803#       发表于 2020-2-24 14:06
+
+
+
+
+个人势救不起来了，现在的虹 杏从根本上就已经不一样了，个人势消亡已经是定局，苔苔无力回天的。
+
+而且上面的个人势也只能靠天天蹭企业势的饭吃才能维持热度，蹭不到的连三位数的观众都没有，你应该庆幸咩啊塔姆有那么多企业还会赏饭给她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1804#       发表于 2020-2-24 14:06
+
+
+
+
+连麦是贴贴人头子苔姨脑补的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总而言之就是六字母贴贴
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1805#       发表于 2020-2-24 14:07
+
+
+
+
+没有直接连麦证据，mea只是和犬山留言提了一句，和一个雌性打电话，雌性在ark里面被人叫走了，然后就没然后了。 当晚玩ark的那么多，统统可疑。（但是当晚ark游戏里面被同事叫走的只有一个人...）
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                       
