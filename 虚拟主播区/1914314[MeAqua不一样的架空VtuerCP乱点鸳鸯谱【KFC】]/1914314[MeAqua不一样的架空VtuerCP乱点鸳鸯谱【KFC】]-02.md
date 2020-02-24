@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 16:03** 
+> ## **本文件最后更新于2020-02-24 18:05** 
 
 
 
@@ -5821,10 +5821,11 @@ meaqua确实有点像京吹，只不过夸比丽奈更添了一分冷色，而�
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Nichtig| + 1|少追cp|
 | BigLittle1999| + 1|视奸人点赞|
 | 离魂仙| + 1|这个比喻很带感|
 | 魔法使い2019| + 1||
@@ -6150,11 +6151,791 @@ syl 之前投票贴人口普查，你版算上小号才六百个人头，太惨�
 
 
 
+ 本帖最后由 安达犬 于 2020-2-24 16:04 编辑 
 
 其实就跟nga分楼一样，人人都以为自己的v讨论量多，有啥必要跟其他人挤在一栋楼里，委实没b数，真正分了后能活下来的不就那几个。这里也一样，要不是有带天使给了你板一个复活甲，早几天就被压死了，还用等到现在?
 
+syl 
+
+zqsg之拯救V区建议，先把带天使的讨论都集合到一起吧，有流量的没几个，还分几栋楼真是想不死都难
 
 
 
 
-                                      
+
+
+
+-----
+
+####  小走  
+##### 1833#       发表于 2020-2-24 16:07
+
+
+
+
+其实三酱脑子里已经明白圣皇是什么样的人了，V骚当面爆出圣皇爱理不理，“那家伙已经死了”也说了两次了，后面一次还是在对面非常时期，说出来极易炎上，可见心中的怨念多到已经藏不住了。
+
+只是情感上还是放不下，自己当成家人的朋友实际上也就那样，对于一个小姑娘来说哪有那么容易接受。
+
+希望三酱早日放下旧日幻象，认清戏路不同，没有未来，苔姨兔姨才是未来。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1834#       发表于 2020-2-24 16:09
+
+
+
+ 本帖最后由 SumW5 于 2020-2-24 16:12 编辑 
+
+我暂且认为楼上是在钓鱼
+
+或者就是过于阴湿导致脑回路出现问题，春秋笔法倒是用得挺娴熟
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1835#       发表于 2020-2-24 16:14
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你mea姐不是最近吃到了虹杏膨胀的尾气，数据也变高了一些吗，怎么在这还有说个人势不行的
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1836#       发表于 2020-2-24 16:21
+
+
+
+
+最近同接最高时上4000了吧？之前深夜歌回都有1400同接
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1837#       发表于 2020-2-24 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46508707&amp;ptid=1914314" target="_blank">豆芽123 发表于 2020-2-24 13:40</a>
+
+yysy 要真的是纯良人就不可能会点开S1，肯定是心里有了梁木</blockquote>
+我能嘴硬一句没有梁木吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+之后进了电网坦然承认了自己也是势利b，表面上和气舔着小领导，实际上看不惯他作风他也没我爸大，他就算给了我一点好处，等我爬上去了我也不会再正眼瞧他。回头想想对班长还挺有好感，不去舔，忘带个作业小迟个到能被班主任给烦死，舔好了啥事没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大概只要不是zz观点上出问题，在我这就不会有梁木
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 1838#       发表于 2020-2-24 16:24
+
+
+
+
+靠吃企业势尾气才能膨胀的个人势不就是不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1839#       发表于 2020-2-24 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46510267&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-24 16:21</a>
+
+我能嘴硬一句没有梁木吗，是不是纯良倒不如说自己从一开始对人的期待就不高，势利b我寻思 ...</blockquote>
+再写五块钱的，比拉跨管人好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1840#       发表于 2020-2-24 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人势本来就是不行啊，能吃到尾气膨胀已经很不错了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1841#       发表于 2020-2-24 16:35
+
+
+
+
+你有才能进holo了，别放弃机会成为带明星，年入百万呢
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1842#       发表于 2020-2-24 16:37
+
+
+
+
+进了holo真能年入百万吗，我看不行。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1843#       发表于 2020-2-24 16:41
+
+
+
+
+这么说吧夸皇要月入377.5万sc才能算年入百万。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1844#       发表于 2020-2-24 16:43
+
+
+
+
+而阿咩只要月入188万就差不多了。
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1845#       发表于 2020-2-24 16:44
+
+
+
+
+“如何成为百万富翁：首先你是个千万富翁”，无端联想到了个老笑话
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1846#       发表于 2020-2-24 16:45
+
+
+
+
+当然，这里年入百万是rmb。sc是用日元计算的
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 1847#       发表于 2020-2-24 16:48
+
+
+
+
+这楼已经费拉不堪了，求求两人速度开咖啡厅赏点流量吧     <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1848#       发表于 2020-2-24 16:48
+
+
+
+
+有尾气吃不好吗，404这种资源基本被头部占领的地方，你又不会蹭热点的话，能吃到点相关推送已经是不错的福利了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+连尾气都没得吃的那种半截身子入土的企业多了去了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1849#       发表于 2020-2-24 16:54
+
+
+
+
+個人勢能養活自己就算是成功
+
+吃企業尾氣什麼的當錦上添花罷了
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1850#       发表于 2020-2-24 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46510373&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-24 16:31</a>
+
+再写五块钱的，比拉跨管人好看多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1851#       发表于 2020-2-24 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46510740&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-24 17:04</a>
+我自己是萌二网瘾觉得aqua就一萌二网瘾妹，势利不势利有多势利你们都车轱辘完了，我感觉也没啥再 ...</blockquote>
+我从家出来之后倒是对这个给父母交钱有了点理解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉就是父母不放心这个工作，想要点能踏实挣钱的证明
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1852#       发表于 2020-2-24 17:10
+
+
+
+
+也许有文化差异吧
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1853#       发表于 2020-2-24 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46510781&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-24 17:08</a>
+
+我从家出来之后倒是对这个给父母交钱有了点理解了感觉就是父母不放心这个工作，想要点能踏实挣钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1854#       发表于 2020-2-24 17:15
+
+
+
+
+难道真有父母能让女儿住在野男人家里然后每月上供十万吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   能这么干的父母我寻思也不能只要十万
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1855#       发表于 2020-2-24 17:16
+
+
+
+
+又开始774车轱辘了麻烦你们滚回2019
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1856#       发表于 2020-2-24 17:21
+
+
+
+
+女儿赶出家，黑帮来讨债的时候保证安全，女儿给家里打钱，保住父母手指，这种剧情我感觉还蛮带感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1857#       发表于 2020-2-24 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧情有点意思。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1858#       发表于 2020-2-24 17:23
+
+
+
+
+能不能扩写一下，秋泥膏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1859#       发表于 2020-2-24 17:25
+
+
+
+
+《黑社会的VTB女儿》
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1860#       发表于 2020-2-24 17:26
+
+
+
+
+能来一段女儿被黑帮雷普吗
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1861#       发表于 2020-2-24 17:26
+
+
+
+
+旋风管家剧情？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1862#       发表于 2020-2-24 17:27
+
+
+
+
+你版出现新晋文豪<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+v版有救矣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1863#       发表于 2020-2-24 17:29
+
+
+
+
+点一份 变身 剧情，有大手子来写吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1864#       发表于 2020-2-24 17:35
+
+
+
+
+黑帮草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1865#       发表于 2020-2-24 17:36
+
+
+
+
+你别说，大亏的sc还真有差不多4kw。当然mea的也不少，虽然这里统计没有达到2kw不过删档的大概没有算到里面所以还是可以月入百万的。
+
+顺便海苔男只有mea的一半不到
+
+出处:[https://youtu.be/K4B5D8MZ7eM](https://youtu.be/K4B5D8MZ7eM)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1866#       发表于 2020-2-24 17:36
+
+
+
+
+变身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+金发
+墨镜
+修女
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1867#       发表于 2020-2-24 17:48
+
+
+
+
+每月10w的不是早就有老哥黑p过是拿来口嗨找借口的吗，上次谁说来着，忘记了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1868#       发表于 2020-2-24 17:51
+
+
+
+
+找借口的话她都没必要把卖礼物的事说出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萌萌未来  
+##### 1869#       发表于 2020-2-24 17:55
+
+
+
+
+把卖礼物的事说出来不是因为被人爆料了吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1870#       发表于 2020-2-24 17:58
+
+
+
+
+爆出来的不是因为推特炸了搞出来的住774家吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1871#       发表于 2020-2-24 18:00
+
+
+
+
+推特應該沒辦法特定到地址
+
+不是粉絲送的禮物發現有人在轉賣嗎
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1872#       发表于 2020-2-24 18:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑屁就黑屁呗，你们这再讨论下去就要回去翻录像玩推理了，顺便刷刷播放量
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1873#       发表于 2020-2-24 18:01
+
+
+
+ 本帖最后由 肚子疼了 于 2020-2-24 18:04 编辑 
+
+其实是被挖出来和774同居了，516其它的内容都可以看做是在转火，不然774特定出来是要社会死亡的。
+
+由此可得，mea774是真的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl 因为mea在霓虹就是恶女形象，卖礼物撒个谎其实不算什么事。当然对于国内一帮子靠脑补完善人设的入脑粉来说，说不定挺难接受的。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1874#       发表于 2020-2-24 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511301&amp;ptid=1914314" target="_blank">meatybobby 发表于 2020-2-24 18:00</a>
+推特應該沒辦法特定到地址
+
+不是粉絲送的禮物發現有人在轉賣嗎</blockquote>
+记得当时说是因为同IP炸了还是啥的，转卖的消息没看到有别人提啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等有空去翻翻那会的串
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 1875#       发表于 2020-2-24 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“推理”好啊，这季度的异度侵入和虚构推理还挺有意思的吧
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1876#       发表于 2020-2-24 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511318&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-24 18:02</a>
+
+记得当时说是因为同IP炸了还是啥的，转卖的消息没看到有别人提啊等有空去翻翻那会的串 ...</blockquote>
+同IP炸了這麼多方法解釋 說帳號有給774經營就好
+
+拿跟男人同居是多蠢的解釋方式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1877#       发表于 2020-2-24 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511346&amp;ptid=1914314" target="_blank">meatybobby 发表于 2020-2-24 18:04</a>
+同IP炸了這麼多方法解釋 說帳號有給774經營就好
+
+拿跟男人同居是多蠢的解釋方式 ...</blockquote>
+谁知道你mea姐怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不我还觉得你mea姐可能是被钓鱼钓到了呢
+
+
+
+
+
+                                     
