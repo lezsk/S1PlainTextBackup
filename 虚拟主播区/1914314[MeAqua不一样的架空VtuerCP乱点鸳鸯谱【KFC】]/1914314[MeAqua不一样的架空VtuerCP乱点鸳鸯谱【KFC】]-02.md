@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 18:05** 
+> ## **本文件最后更新于2020-02-24 20:06** 
 
 
 
@@ -6938,4 +6938,1533 @@ syl 因为mea在霓虹就是恶女形象，卖礼物撒个谎其实不算什么�
 
 
 
-                                     
+
+
+-----
+
+####  惑星  
+##### 1878#       发表于 2020-2-24 18:05
+
+
+
+
+别说你咩姐蠢了，留点面子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1879#       发表于 2020-2-24 18:06
+
+
+
+
+只是说父母要求上交十万的可能性存疑  毕竟不给17岁女儿住处还让每月上缴十万的父母不太好找   没准是自己打小钢珠上头缺钱花了卖给自己用<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1880#       发表于 2020-2-24 18:06
+
+
+
+
+明年774会和mea或者aqua结婚吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1881#       发表于 2020-2-24 18:09
+
+
+
+
+草，回头翻516的meaanti串，才发现那会就有パコ余了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">历史悠久啊
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1882#       发表于 2020-2-24 18:10
+
+
+
+
+516不本来就是在国内引起的节奏更大么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，到处都是🐡和🦄尸横遍野的惨状，本土我记着其实都没什么水花来着
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1883#       发表于 2020-2-24 18:12
+
+
+
+
+還不知道mea跟aqua誰搶到774呢
+
+兩人不仲的理由該不會是搶男人吧 咩說自己跟774同居是為了向夸下馬威
+
+殊不知私底下774都在跟夸...
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 1884#       发表于 2020-2-24 18:12
+
+
+
+
+反正不都是她516自己说的嘛,别的都信就这个觉得是假的.这一个视频都没完就开始双标了.
+
+想要石锤交没交钱至少是她父母跳出来反驳或是熟知她家内部经济开支级别的亲属,
+
+外人的话,能弄到这种信息的也不是一般人了,有这种大神的话倒是出来锤一个啊.
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1885#       发表于 2020-2-24 18:13
+
+
+
+
+你楼到现在连乌冬是不是774都搞不清楚，锤个屁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1886#       发表于 2020-2-24 18:18
+
+
+
+
+为了拯救甚至被pc数码区压在身下的vtb区，楼友们挺身而出，他们决定——车轱辘516！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 1887#       发表于 2020-2-24 18:21
+
+
+
+ 本帖最后由 肚子疼了 于 2020-2-24 18:30 编辑 
+
+说起来你楼的蓝翔机师里面physi1202 和路人庚哪个强来着，该出来拯救v版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1888#       发表于 2020-2-24 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511366&amp;ptid=1914314" target="_blank">3353764798 发表于 2020-2-24 18:06</a>
+
+只是说父母要求上交十万的可能性存疑  毕竟不给17岁女儿住处还让每月上缴十万的父母不太好找   没准是自己 ...</blockquote>
+不是不给住所是家里不让直播吧，每次在家里直播都要保证父母不在家，上缴十万应该单纯是为了逼她放弃直播干点“正事”？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1889#       发表于 2020-2-24 18:24
+
+
+
+
+mea串在516之前只有三四串，还挺容易翻的，说到卖礼物基本都是联想发散，估计别的串也有讨论的，不过翻起来太麻烦就先不翻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 1890#       发表于 2020-2-24 18:25
+
+
+
+
+每月十万也是卖咖喱人的一种卖法，贴贴
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1891#       发表于 2020-2-24 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511485&amp;ptid=1914314" target="_blank">肚子疼了 发表于 2020-2-24 18:21</a>
+说起来你楼的蓝翔机师里面physi1202 和路人庾哪个强来着，该出来拯救v版了 ...</blockquote>
+庚，字打错了。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1892#       发表于 2020-2-24 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511422&amp;ptid=1914314" target="_blank">deep24froz 发表于 2020-2-24 18:12</a>
+
+反正不都是她516自己说的嘛,别的都信就这个觉得是假的.这一个视频都没完就开始双标了.
+
+想要石锤交没交钱至 ...</blockquote>
+她父母是有看她直播的，如果交钱是说谎，那我孩子在广大网友前这样黑屁我，我腿不给他打断<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1893#       发表于 2020-2-24 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511542&amp;ptid=1914314" target="_blank">ylssb10438 发表于 2020-2-24 18:28</a>
+她父母是有看她直播的，如果交钱是说谎，那我孩子在广大网友前这样黑屁我，我腿不给他打断 ...</blockquote>
+可能已经打断了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火腿肠没有了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1894#       发表于 2020-2-24 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511514&amp;ptid=1914314" target="_blank">ylssb10438 发表于 2020-2-24 18:24</a>
+ 不是不给住所是家里不让直播吧，每次在家里直播都要保证父母不在家，上缴十万应该单纯是为了逼她放弃直播 ...</blockquote>
+一个20岁不到的樱花妹，日本啥正事能挣这么多钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个父母不让在家直播，要每个月给10w的这个说法我一直都不信。而且不让在自己家直播，却允许在别的男人家里直播，这逻辑就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且如果说父母觉得这工作不正经，mea把卡余额给他们看一下不就好了？工作内容肉眼可见，而且钱也是实打实的，这还不允许？那你要说mea是富二代大小姐，父母看不上这点钱我也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1895#         楼主| 发表于 2020-2-24 18:38
+
+
+
+
+可能就是打断腿赶出家门的，然后现在在德国边养伤边直播（
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1896#       发表于 2020-2-24 18:41
+
+
+
+
+516真的是神回，能让人念念不忘直到今天，要是业界完蛋后总评选十大直播神回，我肯定投516一票。
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1897#       发表于 2020-2-24 18:41
+
+
+
+
+那到底为啥mea要出来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+我也是觉得mea父母的形象很迷，在很少的mea提到父母的直播里，他们的关系又好像不错。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1898#       发表于 2020-2-24 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种事本来就不能多说好吧，要是从头到尾都给你说清了等着你上门特定啊，她又不是傻逼
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1899#       发表于 2020-2-24 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511616&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 18:36</a>
+一个20岁不到的樱花妹，日本啥正事能挣这么多钱
+这个父母不让在家直播，要每个月给10w的这个说法 ...</blockquote>
+她每个月10w确实可能需要10w日元，她收益化通过之前每个月都有10w日元的捐款。18年12月通过收益化，然后19年1月就变成5w日元了。再往后就没有了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1900#       发表于 2020-2-24 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511616&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 18:36</a>
+一个20岁不到的樱花妹，日本啥正事能挣这么多钱
+这个父母不让在家直播，要每个月给10w的这个说法 ...</blockquote>
+她有钱也是19年之后的事了啊，18年的不怎么了解，听说那时像收入就只有没什么内容的饭盒，还有booth和每月一次众筹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">时不时在电脑面前发疯还没啥收入，被当成不正经工作也挺正常的吧
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 1901#       发表于 2020-2-24 18:44
+
+
+
+
+她真要說謊何必要說自己跟男人同居 神秘操作 難不成是故意殺獨角獸貼貼民
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 1902#       发表于 2020-2-24 18:44
+
+
+
+
+裁狗黑料就那种程度了，被你神乐灭亚卖礼物卖咖喱人卖男朋友一套拳打傻了都，只能阴湿湿的diss你们冲国粉丝情弱跑他这来展现素质了
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1903#       发表于 2020-2-24 18:44
+
+
+
+
+这就业界啦?516才多少同接，多少SC啊，还业界神回，👴吐了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1904#       发表于 2020-2-24 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511692&amp;ptid=1914314" target="_blank">age45 发表于 2020-2-24 18:44</a>
+裁狗黑料就那种程度了，被你神乐灭亚卖礼物卖咖喱人卖男朋友一套拳打傻了都，只能阴湿湿的diss你们冲国粉丝 ...</blockquote>
+我觉得也是，蔡狗估计本人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1905#       发表于 2020-2-24 18:45
+
+
+
+
+哇，这都是什么车轱辘，516都快一周年了，来点新鲜的好不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还不如车轱辘圣天使的咖喱人要怎么穿复活甲呢
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1906#       发表于 2020-2-24 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511616&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 18:36</a>
+
+一个20岁不到的樱花妹，日本啥正事能挣这么多钱
+
+这个父母不让在家直播，要每个月给10w的这个说法 ...</blockquote>
+那时候还没收益化吧，靠众筹和tc拿钱，每月交钱应该也是那段时间的事
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1907#       发表于 2020-2-24 18:48
+
+
+
+
+10w这个数字不是那种刚好微妙到不是给不了但是有很麻烦的额度吗
+
+很真实
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1908#       发表于 2020-2-24 18:48
+
+
+
+
+不会真有人觉得你咩姐一出道就赚的盆满钵满吧，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1909#       发表于 2020-2-24 18:50
+
+
+
+
+我看她意识到自己真的很有钱都是19年下半年的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1910#       发表于 2020-2-24 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511616&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 18:36</a>
+
+一个20岁不到的樱花妹，日本啥正事能挣这么多钱
+
+这个父母不让在家直播，要每个月给10w的这个说法 ...</blockquote>
+我也不懂为什么思想这么保守的父母会允许女儿和别的男人同居，要么是青梅竹马，要么是亲戚吧，表哥表叔啥的，虽然774基本是把经纪人和保姆的活都干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1911#       发表于 2020-2-24 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511766&amp;ptid=1914314" target="_blank">ylssb10438 发表于 2020-2-24 18:51</a>
+我也不懂为什么思想这么保守的父母会允许女儿和别的男人同居，要么是青梅竹马，要么是亲戚吧，表哥表叔啥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的保守吗，小麻时代不也挺疯的么
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1912#       发表于 2020-2-24 18:53
+
+
+
+
+516这个问题等到楼里谁成为了mea男朋友的时候替我们问问吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl:说好的六字母楼，聊着聊着就变成三字母楼了，楼里就没有crew起个头嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1913#       发表于 2020-2-24 18:53
+
+
+
+
+774是在BS时期就在看麻的人，可能就是三次元朋友
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1914#       发表于 2020-2-24 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511778&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-2-24 18:52</a>
+真的保守吗，小麻时代不也挺疯的么</blockquote>
+我给你编好了
+小麻时代太疯，学不上了又跑去玩纸片人直播，父母不禁怒从中来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1915#         楼主| 发表于 2020-2-24 18:55
+
+
+
+<img src="http://tva1.sinaimg.cn/large/622734bdly1gc7ou99gzmj209z05nae3.jpg" referrerpolicy="no-referrer">
+
+怎么就保守了，非洲家庭吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1916#       发表于 2020-2-24 18:56
+
+
+
+
+10w日元还好吧， 打工时薪好像是1000日元左右？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1917#       发表于 2020-2-24 18:57
+
+
+
+
+听到楼里有人在叫麻酱男朋友我就来了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1918#       发表于 2020-2-24 18:58
+
+
+
+
+就不能774和mea是已经见过父母的关系了?
+
+10w万一是父母的考验呢?能够做到这点不就说明有了独立的能力了吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1919#       发表于 2020-2-24 18:58
+
+
+
+
+麻酱究竟还有几个男朋友？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1920#       发表于 2020-2-24 18:59
+
+
+
+
+mea有774个男友，774是一个团体<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1921#       发表于 2020-2-24 18:59
+
+
+
+
+如果你咩姐自述是真的，那她的男朋友就和假面骑士一样多<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 1922#       发表于 2020-2-24 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511660&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-24 18:41</a>
+516真的是神回，能让人念念不忘直到今天，要是业界完蛋后总评选十大直播神回，我肯定投516一票。 ...</blockquote>
+还有哪些别的神回候选吗，像补<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1923#       发表于 2020-2-24 19:00
+
+
+
+
+咩咩已经千人斩了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1924#       发表于 2020-2-24 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511869&amp;ptid=1914314" target="_blank">惑星 发表于 2020-2-24 18:59</a>
+ 如果你咩姐自述是真的，那她的男朋友就和假面骑士一样多</blockquote>
+那会不会出现一个时王男友吸走所有男友的力量晋级为老公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1925#       发表于 2020-2-24 19:01
+
+
+
+
+咩咩郡道美玲一体说（？）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1926#       发表于 2020-2-24 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511889&amp;ptid=1914314" target="_blank">cckuku 发表于 2020-2-24 19:01</a>
+那会不会出现一个时王男友吸走所有男友的力量晋级为老公</blockquote>
+老公，指崇皇时王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1927#       发表于 2020-2-24 19:05
+
+
+
+
+我只想成为光之美少女，就不能当麻酱的男友了吗，气抖冷<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1928#       发表于 2020-2-24 19:06
+
+
+
+
+你楼是真的差劲，居然开始车轱辘516了，太弱智了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1929#       发表于 2020-2-24 19:07
+
+
+
+
+有什么办法， 没有大新闻只能复习经典车轱辘材料了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1930#       发表于 2020-2-24 19:07
+
+
+
+
+我给你们提供个新思路：774是麻酱亲哥哥兼男朋友，完美解决为什么麻酱和父母关系不好和父母对774信任的矛盾
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1931#       发表于 2020-2-24 19:09
+
+
+
+
+你楼至少在贡献流量，没你楼V版更惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1932#       发表于 2020-2-24 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511964&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-24 19:07</a>
+我给你们提供个新思路：774是麻酱亲哥哥兼男朋友，完美解决为什么麻酱和父母关系不好和父母对774信任的矛盾 ...</blockquote>
+和打断腿连上了！
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1933#       发表于 2020-2-24 19:10
+
+
+
+
+这楼大部分时间不都在车轱辘516<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1934#       发表于 2020-2-24 19:10
+
+
+
+
+让我想起了比村上个礼拜画的那张图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+巨乳jk义妹找哥哥同居<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1935#       发表于 2020-2-24 19:11
+
+
+
+
+可是麻酱是平板啊
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1936#       发表于 2020-2-24 19:11
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-24 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511964&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-24 19:07</a>
+我给你们提供个新思路：774是麻酱亲哥哥兼男朋友，完美解决为什么麻酱和父母关系不好和父母对774信任的矛盾 ...</blockquote>
+不愧是ig
+当年麻酱喊欧尼酱和近亲相奸的音声原来是这样。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1937#       发表于 2020-2-24 19:11
+
+
+
+
+为什么打妹妹的腿<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1938#       发表于 2020-2-24 19:11
+
+
+
+
+774mea也是六字母没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1939#       发表于 2020-2-24 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46511999&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-2-24 19:11</a>
+为什么打妹妹的腿</blockquote>
+可能是妹妹对哥哥抱有超出限度的感情，而哥哥喜欢aqua<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">安排了还是我最喜欢的meaqua774
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1940#       发表于 2020-2-24 19:12
+
+
+
+
+原来meu就是在影射mea自己，太惨了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1941#       发表于 2020-2-24 19:13
+
+
+
+
+变身 里面父亲强奸女儿也是家人怪罪在女儿身上，麻酱变身剧情说又一力证<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1942#       发表于 2020-2-24 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得咩啊太高了作为替代品不合格所以要打断腿（？）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1943#       发表于 2020-2-24 19:16
+
+
+
+
+麻妹也是惨，哥哥姐姐搞出来这种事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+活脱脱家庭伦理剧
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1944#       发表于 2020-2-24 19:17
+
+
+
+
+据麻酱说，她还有个dd<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">，说不定是伏地魔呢
+
+—— 来自 Xiaomi Redmi Note 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1945#       发表于 2020-2-24 19:18
+
+
+
+
+两三个孩子家里压力不大才怪哦（）
+
+
+774是亲哥这种扯淡推论暂且不提，为难长女还是挺有可能的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻逃婚逃到东京去了？
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1946#       发表于 2020-2-24 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46512045&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-02-24 19:16:17</a>
+麻妹也是惨，哥哥姐姐搞出来这种事
+
+
+活脱脱家庭伦理剧</blockquote>麻妹：现在姐姐腿被打断了，又不得不离开哥哥家里去其它地方直播，哥哥就永远属于我一个人了，计划通
+我懂了，麻妹就是给裁提供黑料的元凶<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1947#       发表于 2020-2-24 19:21
+
+
+
+
+草，晚间黄金档
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1948#       发表于 2020-2-24 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能这么早就出来直播的家庭多多少少都有点怪就是了
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1949#       发表于 2020-2-24 19:25
+
+
+
+
+大家再忍忍吧，等等带天使9丶直播就有新的车轱辘了
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1950#       发表于 2020-2-24 19:32
+
+
+
+
+带天使现在就在播啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跟龙皇一起
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1951#       发表于 2020-2-24 19:35
+
+
+
+
+在她们出真正的共同企划（类似hh），同居，或撕脸之前，516车轱辘是不会停下的！这就是meaqua的魅力，一个车轱辘可以轱辘1年，完全不怕没热度。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1952#       发表于 2020-2-24 19:35
+
+
+
+
+你们连夸夸播没播都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 1953#       发表于 2020-2-24 19:38
+
+
+
+ 本帖最后由 age45 于 2020-2-24 19:59 编辑 
+
+夸夸的打电话直播标题之前是写着holo限定的，现在去掉了holo限定那么说明是有两种可能性的：1.怕holo限定这个标题限定了直播客群，也限定了同接的上限，其实预订成员和制定标题的时候没有变更，还是只有holo的成员，就和轮子哥说得一样。
+
+2.预订的holo成员缺席了，需要寻找外援。在之前定好holo成员的情况下成员缺席造成的空缺必然是不会多的，有一到两个就差不多了，超过3个就属于《看holo权利权力变更》的车轱辘里了，这种情况下优先度比较高的应该是虹社的成员像西西这样的或者是海苔男老师，她们都是可以笼络到更大客群的节点。而你咩，数字和人气上并没有什么潜力，所以是性价比很低的选择，反正让中间人撒点糖渣就能把她们的关系粉喂饱了，根本用不着神乐mea亲自上阵。
+
+是不是这样，让我们拭目以待
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1954#       发表于 2020-2-24 19:39
+
+
+
+
+难道不是和774的关系太值得玩味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+aqua是谁啊，我不在乎的（）
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1955#       发表于 2020-2-24 19:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还是holo限定，只不过加上了来看人的就会少一茬子了，功利人限定小心机，问题不大，可以继续轱辘轱辘轱辘轱辘
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1956#       发表于 2020-2-24 19:41
+
+
+
+
+这里是meaqua乐园，什么时候你夸直播谈到咩了再来这说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1957#       发表于 2020-2-24 19:43
+
+
+
+
+是lize！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  花泽冒菜  
+##### 1958#       发表于 2020-2-24 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">2月的咖啡厅到底还办不办了，急死了
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1959#       发表于 2020-2-24 19:53
+
+
+
+
+9丶连线直播啊，无论连不连三小姐都有得车轱辘的
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1960#       发表于 2020-2-24 19:57
+
+
+
+
+其实是大天使不仲的人太多发现holo除了龙皇马琳兔子谁都请不来了
+
+对啦，就找定番的那个人来拭腚吧！
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1961#       发表于 2020-2-24 19:59
+
+
+
+
+不会真有人会期待夸夸连咩咩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 1962#       发表于 2020-2-24 19:59
+
+
+
+
+去掉holo限定是因为同事没人愿意连吗  哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1963#       发表于 2020-2-24 20:05
+
+
+
+
+我要打赌第一个是龙皇！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
