@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-24 20:06** 
+> ## **本文件最后更新于2020-02-24 22:06** 
 
 
 
@@ -8467,4 +8467,1050 @@ aqua是谁啊，我不在乎的（）
 
 
 
-                                  
+
+
+-----
+
+####  安达犬  
+##### 1964#       发表于 2020-2-24 20:07
+
+
+
+
+说什么呢，如果能请到龙船兔的话还有个🐔②的必要去请其他人啊
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1965#       发表于 2020-2-24 20:16
+
+
+
+
+保险起见，时间没拖够就找个专业车轱辘混时间
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1966#       发表于 2020-2-24 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么有史官贴贴人提前整点预定要用的对比材料吗，比如你咩姐上次在大亏哥404那冒头是啥时候，连麦是啥时.....哦，忘了能记住这种事的人怎么会来泥潭，那没事了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1967#       发表于 2020-2-24 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46512801&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-2-24 20:32</a>
+
+那么有史官贴贴人提前整点预定要用的对比材料吗，比如你咩姐上次在大亏哥404那冒头是啥时候，连麦是 ...</blockquote>
+2019年11月30日
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1968#         楼主| 发表于 2020-2-24 20:39
+
+
+
+
+不是哦，留言是圣诞节
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1969#       发表于 2020-2-24 20:42
+
+
+
+
+2020年还没贴过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1970#       发表于 2020-2-24 20:45
+
+
+
+
+meaqua贴贴人太卑微了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1971#         楼主| 发表于 2020-2-24 20:47
+
+
+
+
+不对哦，昨晚就贴过哦（
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1972#       发表于 2020-2-24 21:01
+
+
+
+
+大团宠来了，谁不想贴呢，三酱往后稍稍
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1973#       发表于 2020-2-24 21:14
+
+
+
+
+我听了n分钟了，连麦的人呢
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 1974#       发表于 2020-2-24 21:15
+
+
+
+
+md，当年人人都把y老哥当乐子，现在人人都事y老哥，真的讽刺<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1975#       发表于 2020-2-24 21:18
+
+
+
+
+好久没看，大亏讲话还是这么无趣。和mea的游戏水平一样，毫无长进。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1976#       发表于 2020-2-24 21:21
+
+
+
+
+这个企划holo夏哥和天使都搞过，而且到场人数，竟然，竟然竟然，都是零人哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 1977#       发表于 2020-2-24 21:22
+
+
+
+ 本帖最后由 豆芽123 于 2020-2-24 21:25 编辑 
+
+这标题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咋还在搁这交流障碍呢，暗示不主动来连麦的路走窄了？
+
+syl
+
+让我想起隔壁彩虹人的黛灰几十万人纪念的时候也是搞得这个连麦结果没人来，这算抄作业嘛抄啥不好抄这个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1978#       发表于 2020-2-24 21:22
+
+
+
+
+怎么大天使还抄小天使作业啊
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1979#       发表于 2020-2-24 21:22
+
+
+
+
+20分钟了。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1980#       发表于 2020-2-24 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">平平淡淡才是真？
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1981#       发表于 2020-2-24 21:24
+
+
+
+
+确实打电话过来也没聊的啊，难道交流坟头数钱心得
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1982#       发表于 2020-2-24 21:26
+
+
+
+
+这心得学了怕是也没人敢用，别人没大亏那样的心理素质
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1983#       发表于 2020-2-24 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整活需要你三酱吗，谁认识？私下贴贴就行了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1984#       发表于 2020-2-24 21:30
+
+
+
+
+转圈圈<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1985#       发表于 2020-2-24 21:31
+
+
+
+
+泻药，人在ark，刚下洞窟，信号不好，30w恭喜，利益相关，匿了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1986#       发表于 2020-2-24 21:33
+
+
+
+ 本帖最后由 SumW5 于 2020-2-24 21:35 编辑 
+
+我去，太无聊了吧这个，社内都搞三次呢还抄作业呢，
+
+之前咩正正经经搞得凸持还好看些草，我现在觉得不会真是没有事前联系过就搞吧，辣太nt了罢，有人接才怪
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1987#       发表于 2020-2-24 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3w同接呢，其他人做得到吗，继续酸。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1988#       发表于 2020-2-24 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1989#       发表于 2020-2-24 21:38
+
+
+
+
+贴贴人估计都傻了，本来以为还能有那么一点机会的，结果是搞这套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1990#       发表于 2020-2-24 21:39
+
+
+
+
+只能说，30w庆祝这个噱头的确好啊
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 1991#       发表于 2020-2-24 21:39
+
+
+
+
+啊?傻什么，你们就这水平，我黑p的话都想好了，等带天使播完就开始
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1992#       发表于 2020-2-24 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴人别灰心，还有机会，我看好三酱绝杀
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 1993#       发表于 2020-2-24 21:40
+
+
+
+
+我傻了，但我看得很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1994#       发表于 2020-2-24 21:41
+
+
+
+
+在线检查谁发了祝贺谁没有？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 1995#       发表于 2020-2-24 21:41
+
+
+
+
+旅界心叶
+级别:学徒 威望:1.1 发帖:2886
+-
+我来做个梦：
+播了一小时准备下了，开始播ED的时候突然来电，接起来是那只羊的莫西莫西，然后推流断了
+贴贴人还在这蒙着眼睛自己造糖呢。
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 1996#       发表于 2020-2-24 21:41
+
+
+
+
+三酱不来，二人关系破裂，三酱来，大亏暗示你三酱ky，我们暗黑贴贴人立于不败之地啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 1997#       发表于 2020-2-24 21:43
+
+
+
+
+三酱打电话进来我用煲皮开10瓶青岛啤酒
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 1998#       发表于 2020-2-24 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46513555&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-24 21:41</a>
+
+三酱不来，二人关系破裂，三酱来，大亏暗示你三酱ky，我们暗黑贴贴人立于不败之地啊 ...</blockquote>
+这正好说明了暗黑贴贴人本质上是和贴贴人一样的存在啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1999#       发表于 2020-2-24 21:47
+
+
+
+
+被叫去洗澡， 是糖<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2000#       发表于 2020-2-24 21:47
+
+
+
+
+把暗黑贴贴人的快乐建立在贴贴人的痛苦之上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2001#       发表于 2020-2-24 21:48
+
+
+
+
+是的，贴贴人的痛苦就是我暗黑贴贴人的快乐呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2002#       发表于 2020-2-24 21:48
+
+
+
+ 本帖最后由 SumW5 于 2020-2-24 21:50 编辑 
+
+这不是还是巴结马自立了吗
+
+所以真正的不仲只有FBK，马自立只是卷入党争
+
+FBK趁机开播逃避打击好活
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2003#       发表于 2020-2-24 21:49
+
+
+
+
+引用b站评论
+所以。。这种0人连麦的企划。。意义是啥。。真的理解不了啊。。有dalao解释一下么。。看着真的有点笑不出来啊
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2004#       发表于 2020-2-24 21:51
+
+
+
+
+0人只有syamu那种怅然但强作精神的感觉才有灵魂
+
+套皮主播只会弱智玩烂梗
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2005#       发表于 2020-2-24 21:51
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-24 21:49
+引用b站评论
+
+所以。。这种0人连麦的企划。。意义是啥。。真的理解不了啊。。有dalao解释一下么。。看着真的 ...</blockquote>
+可能会让现实世界没朋友没人爱的观众产生共鸣？
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2006#       发表于 2020-2-24 21:53
+
+
+
+
+这种企划，连麦的话尴尬的是所有不连麦的人，不连麦的话只有大亏一人尴尬，要怎么做我想不用别人教了罢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2007#       发表于 2020-2-24 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46513701&amp;ptid=1914314" target="_blank">JustW 发表于 2020-2-24 21:51</a>
+可能会让现实世界没朋友没人爱的观众产生共鸣？</blockquote>
+好像是这样的，我在的夸群好像很多这样的废物。每次冲塔都要幻灭一波
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 2008#       发表于 2020-2-24 21:53
+
+
+
+
+建议aqua看看mea12.7学习一下
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2009#       发表于 2020-2-24 21:53
+
+
+
+
+阴用B站评论
+
+“跟你们讲个笑话，holo团宠没人进来连麦”
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2010#       发表于 2020-2-24 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46513723&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-2-24 21:53</a>
+这种企划，连麦的话尴尬的是所有不连麦的人，不连麦的话只有大亏一人尴尬，要怎么做我想不用别人教了罢[f:0 ...</blockquote>
+是这个道理。刚在夸群给zqsg的萌二小弟弟上了一课。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2011#       发表于 2020-2-24 21:55
+
+
+
+
+无聊，睡了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 2012#       发表于 2020-2-24 21:56
+
+
+
+
+虽然没连麦，但是木口的大家都在百忙之中发了消息啊，这还不团宠？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  辛红辣椒杨永信  
+##### 2013#       发表于 2020-2-24 21:58
+
+
+
+
+问就是holo限制联动，好像走错了？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2014#       发表于 2020-2-24 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2015#       发表于 2020-2-24 21:58
+
+
+
+
+这活真不好看，学啥不好学这种。不过入了五岁弱智的皮，也只有整这种了
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 2016#       发表于 2020-2-24 21:59
+
+
+
+
+谁不喜欢5岁rp的弱智在那卖惨呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2017#       发表于 2020-2-24 21:59
+
+
+
+
+也只有极端单推人看了才高兴吧，这种重复过几遍的作业完全没意思抄
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2018#       发表于 2020-2-24 21:59
+
+
+
+
+这同接都有3.4w  我已经不明白观众到底是想看啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  这就是代沟吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2019#       发表于 2020-2-24 22:00
+
+
+
+
+刚一看打钱，就是“心疼阿夸”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骗钱大成功。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2020#       发表于 2020-2-24 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看404反响很不错啊，希望夸哥以后多搞搞这种企划
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2021#       发表于 2020-2-24 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期生0人，有无说法
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2022#       发表于 2020-2-24 22:02
+
+
+
+
+现在揭示你圈有多无脑饭圈化了
+
+只要是自己的推，就算是坐着发呆也给打钱
+
+这就是神教化吗，不说了我也去拜一拜了
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2023#       发表于 2020-2-24 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46513845&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-02-24 22:02:04</a>
+现在揭示你圈有多无脑饭圈化了
+
+只要是自己的推，就算是坐着发呆也给打钱
+
+这就是神教化吗，不说了我也去拜一 ...</blockquote>发呆打钱上面还有个虚空打钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 2024#       发表于 2020-2-24 22:04
+
+
+
+
+这次企划让好多crew都心疼了，很明显非常成功了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuaness  
+##### 2025#       发表于 2020-2-24 22:04
+
+
+
+
+人家观众想看的是大亏，而不是企划，别酸了，酸不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2026#       发表于 2020-2-24 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这个真的需要用现在揭示么
+
+
+
+
+
+                                
