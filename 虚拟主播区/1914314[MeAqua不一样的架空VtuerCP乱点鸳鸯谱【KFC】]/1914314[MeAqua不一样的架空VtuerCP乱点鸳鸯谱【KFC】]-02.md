@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-25 00:07** 
+> ## **本文件最后更新于2020-02-25 02:06** 
 
 
 
@@ -10140,4 +10140,735 @@ nt贴贴人跟暗黑贴贴人有什么区别？</blockquote>
 
 
 
-                               
+
+
+-----
+
+####  stedckk  
+##### 2063#       发表于 2020-2-25 00:09
+
+
+
+
+ig那个逼天天吹圣夸皇 但是直播都不看一眼的 废拉不堪。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2064#       发表于 2020-2-25 00:16
+
+
+
+<blockquote>liousluna 发表于 2020-2-24 23:59
+别说浮游炮其他人，你去看看B站严肃动态下面都有crew跑过来要阿咩去关心做完表演的圣皇，真就一手遮天，佩 ...</blockquote>
++2
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 2065#       发表于 2020-2-25 00:43
+
+
+
+
+夸夸在三万人瞩目直播装孤独挂同事电话晒关心短信还把这次舔过她的人挂上推炫耀，咩咩在为万元会员脱坑临走前顺带diss她的偏心不关心粉丝的事情挠破头皮一个人连发数推解释，两个人都有光明的未来
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2066#       发表于 2020-2-25 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515381&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-2-25 00:09</a>
+
+ig那个逼天天吹圣夸皇 但是直播都不看一眼的 废拉不堪。</blockquote>
+我是巨魔，被阿夸看到了会被净化的，那还怎么让V区变得更加热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2067#       发表于 2020-2-25 00:47
+
+
+
+
+做个人势管人就和来s1一样，要有被人按住头往嘴里塞黑泥的心理准备，做企业势管人就和隔壁净土坛差不多，虽然黑屁你的人不少，但你不去主动啃黑泥黑泥就被staff们帮你截下来了。她们都有光明的未来，挺好的，都挺好的
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2068#         楼主| 发表于 2020-2-25 00:53
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/622734bdly1gc7yf4g2vnj20hd075js0.jpg" referrerpolicy="no-referrer">
+
+我都贴了
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">要么是搜到观众负面反馈，要么被同事提醒了，生主出来的哪还有傻白甜鸵鸟啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2069#       发表于 2020-2-25 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我夸哥没有情商怎么坐得到那个位置上？
+
+顺便听说三酱被金主diss了，好像还是个国人，是不是看到大亏事业那么红火心里不平衡了？
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 2070#       发表于 2020-2-25 01:15
+
+
+
+
+草，有财布在咩的b博评论里用真情实感长文猎杀贴贴人，坏起来了
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2071#       发表于 2020-2-25 01:15
+
+
+
+
+三酱事业民死路一条，建议都来当大亏事业民，直播都可以不看，每天晚上看着那几个数字晚上涨，睡觉都能笑出来
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2072#       发表于 2020-2-25 01:17
+
+
+
+ 本帖最后由 stedckk 于 2020-2-25 01:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这种就是早上起床看集锦的冠军粉吗？是挺爽的。我圣夸皇现在大有这赛季利物浦那种一骑绝尘之势呢。
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2073#       发表于 2020-2-25 01:19
+
+
+
+<blockquote>普通人止戈 发表于 2020-2-25 01:15
+草，有财布在咩的b博评论里用真情实感长文猎杀贴贴人，坏起来了</blockquote>
+什么情况，今晚的事又是贴贴人搞的?来个链接乐乐
+
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 2074#       发表于 2020-2-25 01:21
+
+
+
+
+咩酱粉又整活了?!
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2075#         楼主| 发表于 2020-2-25 01:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515952&amp;ptid=1914314" target="_blank">普通人止戈 发表于 2020-2-25 01:15</a>
+
+草，有财布在咩的b博评论里用真情实感长文猎杀贴贴人，坏起来了</blockquote>
+这是贴贴楼分内事，传送门来！
+
+
+↑ LS的，@sansuika96 这人做了快一年的迷惑人了，官不知几群的天狗应该清楚是不是贴贴人哦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 2076#       发表于 2020-2-25 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515988&amp;ptid=1914314" target="_blank">安达犬 发表于 2020-2-25 01:19</a>
+
+什么情况，今晚的事又是贴贴人搞的?来个链接乐乐</blockquote>
+不是。因为今晚咩和夸都b博刷屏，贴贴人借此发挥。你去看咩最新的b博下面就知道了。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2077#       发表于 2020-2-25 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515974&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-2-25 01:17</a>
+
+这种就是早上起床看集锦的冠军粉吗？是挺爽的。我圣夸皇现在大有这赛季利物浦那种一骑绝尘之势呢。
+
+ ...</blockquote>
+那海王的希尔斯堡惨案和海瑟尔惨案都是啥啊？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 2078#       发表于 2020-2-25 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516002&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-2-25 01:21</a>
+
+这是贴贴楼分内事，传送门来！
+
+
+↑ LS的，@sansuika96 这人做了快一年的迷惑人了，官不知几群的天狗应该 ...</blockquote>
+你们都不看咩的b博评论的吗，就最新的b博下面
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2079#       发表于 2020-2-25 01:25
+
+
+
+
+这里看直播的都少，还b博，有瓜就快点端上来罢，等不及了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2080#       发表于 2020-2-25 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516019&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-2-25 01:24</a>
+
+那海王的希尔斯堡惨案和海瑟尔惨案都是啥啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希尔斯堡惨案就是被油 管锁订阅的日子啊，海瑟尔惨案不是天天在这个楼上演吗
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2081#       发表于 2020-2-25 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516022&amp;ptid=1914314" target="_blank">普通人止戈 发表于 2020-2-25 01:24</a>
+你们都不看咩的b博评论的吗，就最新的b博下面</blockquote>
+b博评论比s1还脑瘫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的不想看啊
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2082#       发表于 2020-2-25 01:28
+
+
+
+
+我翻了一遍没看到啊，还是直接给个截图吧
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2083#         楼主| 发表于 2020-2-25 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516022&amp;ptid=1914314" target="_blank">普通人止戈 发表于 2020-2-25 01:24</a>
+
+你们都不看咩的b博评论的吗，就最新的b博下面</blockquote>
+嗨，删推复刻了。就看到一条S1用户发的车轱辘话，都没人跟，3个赞
+
+遗憾，天狗内耗一转杀贴贴人的机会错失了
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 2084#       发表于 2020-2-25 01:29
+
+
+
+
+咩金主因为咩不去和圣天使连麦脱坑跑路顺带diss咩无情无义？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这些全是我看楼里脑补的谁来个石锤
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuusei_  
+##### 2085#       发表于 2020-2-25 01:30
+
+
+
+
+我猜是这个
+
+
+
+
+
+
+Screenshot_20200225-012554.jpg
+(578.22 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 01:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/013010zewkxnv98w9ebr8k.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+Screenshot_20200225-012606.jpg
+(386.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 01:30 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/013009wezutiderzqsbtzu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 2086#       发表于 2020-2-25 01:30
+
+
+
+
+对，就是这个↑
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2087#         楼主| 发表于 2020-2-25 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516064&amp;ptid=1914314" target="_blank">豆芽123 发表于 2020-2-25 01:29</a>
+
+咩金主因为咩不去和圣天使连麦脱坑跑路顺带diss咩无情无义？这些全是我看楼里脑补的谁来个石锤
+
+
+  - ...</blockquote>
+草，你不去Mea楼云，来贴贴楼云个锤子
+
+人都给你了，@sansuika96，连我夸夸都没关注，老单推了
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2088#       发表于 2020-2-25 01:31
+
+
+
+
+和贴贴无关，这人是个海盗，然后可能因为B限那次有了梁木，然后最近爆炸了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2089#       发表于 2020-2-25 01:32
+
+
+
+
+好活好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+丛林法则胜者为王，粉丝被人家十倍杀活该挨打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2090#       发表于 2020-2-25 01:33
+
+
+
+
+手机bsyl，这zqsg长文里面说的东西年代也太久远了，这是cd刚转好？
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2091#       发表于 2020-2-25 01:34
+
+
+
+
+去nga看完了，然后看了楼上的图，虽然平时都是在杀nt贴贴人的，但是这波算是毒唯乱🔫把，委实难看，心疼一波躺🔫的贴贴人好吧
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 2092#       发表于 2020-2-25 01:37
+
+
+
+<blockquote>惘时之轮 发表于 2020-2-25 01:33
+手机bsyl，这zqsg长文里面说的东西年代也太久远了，这是cd刚转好？</blockquote>
+meaqua贴贴还是没怎么贴就是这么久远的东西了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2093#       发表于 2020-2-25 01:45
+
+
+
+
+看女主播贴贴是什么迷惑行为，动画他不香吗
+
+你看小圆可以组圆焰/粉蓝/粉黄/黑黄/番茄炒蛋/红蓝它不香吗
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 2094#       发表于 2020-2-25 01:45
+
+
+
+
+站的位置和角度不同体验不了他的感受，憋炸了也无可奈何又不能时光倒流满血复活，只能说如果不是圣天使那种地位的 投入感情就像是死路一条<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天两个人同时爆炸这也是贴贴的一环嘛
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2095#       发表于 2020-2-25 01:47
+
+
+
+
+搞笑，我夸再砍3w5同接，V圈第一人，怎么就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2096#       发表于 2020-2-25 01:47
+
+
+
+
+这饭盒文。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2097#       发表于 2020-2-25 01:49
+
+
+
+
+听说饭盒文有点东西，所以有没有截图的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2098#       发表于 2020-2-25 01:51
+
+
+
+
+没事，她心情不好发发疯，现在玩问答游戏去了
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2099#       发表于 2020-2-25 01:53
+
+
+
+
+干，太整了，我顺便爬了下S1的mea楼，想看看有什么新见地，结果发现跟nga那里根本毫无区别，看来确实贴不起啦，要是带天使遇到这种事，不得被批评一番不会做V，三字母那边集体批判粉丝，本crew酸了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2100#       发表于 2020-2-25 01:56
+
+
+
+
+所以说粉丝滤镜人人都有，谁都不比谁高贵，带天使这么整肯定是不会做V给粉丝心态搞崩了，有些天狗三酱说难听话就是害羞傲娇，说好听话就是坦率诚实，不得不说，和nt贴贴人一样，还挺好笑的，永远立于不败之地
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2101#       发表于 2020-2-25 02:01
+
+
+
+
+什么？你咩姐不会做v不是众人皆知🐴
+
+
+
+
+
+                             

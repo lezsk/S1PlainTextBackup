@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-25 00:06** 
+> ## **本文件最后更新于2020-02-25 02:05** 
 
 
 
@@ -21084,4 +21084,535 @@ https://www.bilibili.com/read/cv4792221
 
 
 
-         
+
+
+-----
+
+####  KuonjiClara  
+##### 7211#       发表于 2020-2-25 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515305&amp;ptid=1712512" target="_blank">107a 发表于 2020-2-25 00:01</a></blockquote>
+韦天绑架大老爹还行
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7212#       发表于 2020-2-25 00:30
+
+
+
+
+不可战胜的字母哥倒下了
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 7213#       发表于 2020-2-25 00:30
+
+
+
+
+草，字母哥被罚下了
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7214#       发表于 2020-2-25 00:31
+
+
+
+
+字母哥六犯离场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fireadol  
+##### 7215#       发表于 2020-2-25 00:31
+
+
+
+
+大老爹必被字母歌杀害
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 7216#       发表于 2020-2-25 00:33
+
+
+
+
+#字母哥赛后qiang杀大老爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7217#       发表于 2020-2-25 00:33
+
+
+
+
+笑傻了，篮球原来是这么打的么？
+然后瑞驰哥起id叫字母哥发红包，节目效果爆炸
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 7218#       发表于 2020-2-25 00:34
+
+
+
+
+双王子草草草
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7219#       发表于 2020-2-25 00:34
+
+
+
+
+双王子草，字母弟为兄报仇
+
+
+
+
+
+
+
+-----
+
+####  alter08  
+##### 7220#       发表于 2020-2-25 00:36
+
+
+
+
+这么强的还有三个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗月杀人兔  
+##### 7221#       发表于 2020-2-25 00:41
+
+
+
+
+皇牌空战：制空权确保
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 7222#       发表于 2020-2-25 01:06
+
+
+
+
+#大老爹发出死亡宣告#
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 7223#       发表于 2020-2-25 01:06
+
+
+
+
+今晚再战雄鹿真的太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+=&gt;前半段一分雨硬抗雄鹿
+
+=&gt;小秦的脏套路居然成功了，状态刚全开的字母哥被碰瓷6次最后一节直接安排下去了，湖人全队从此抬头做人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+=&gt;#大老爹六罚字母哥守护洛杉矶的蓝天
+
+=&gt;直播间瑞驰哥整了个字母哥ID发了红包，谐到极致 #字母哥罚下后企图发红包抢大老爹粉丝
+
+=&gt;咦怎么场上还有个字母哥！<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+=&gt;得知字母哥四兄弟三个在NBA，雄鹿还有个字母弟，影  分  身，麻中麻<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+=&gt;该请哈登来整活了=&gt;是双王子，我康到22了！
+
+=&gt;湖人全队抗下字母兄弟阴影赢下比赛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+这节目效果真的太无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7224#       发表于 2020-2-25 01:16
+
+
+
+
+一局7犯规，魔法篮球
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 7225#       发表于 2020-2-25 01:17
+
+
+
+
+大老爹第一节就累计造了多少犯规，怕不是第四节把火箭全员给弄下去
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 7226#       发表于 2020-2-25 01:30
+
+
+
+
+这犯罪宣言真tm绝了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  -_-||  
+##### 7227#       发表于 2020-2-25 01:30
+
+
+
+
+哈登六犯 大老爹太强了
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7228#       发表于 2020-2-25 01:30
+
+
+
+
+景德镇之战拉下了帷幕
+
+
+
+
+
+
+
+-----
+
+####  sanxgh571  
+##### 7229#       发表于 2020-2-25 01:30
+
+
+
+
+第三节还没打完罚了十八个球，竟然有这么龟毛的球员……
+
+
+
+
+
+
+
+-----
+
+####  最弱败者  
+##### 7230#       发表于 2020-2-25 01:30
+
+
+
+
+小——老——爹——
+
+
+
+
+
+
+
+-----
+
+####  攻城匠师黑索  
+##### 7231#       发表于 2020-2-25 01:39
+
+
+
+
+笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 7232#       发表于 2020-2-25 01:44
+
+
+
+
+精彩时刻直接黑屏，绝了。
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 7233#       发表于 2020-2-25 01:44
+
+
+
+
+虽然是50分的MVP，想要剪一点精彩表现却只有黑屏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 7234#       发表于 2020-2-25 01:53
+
+
+
+
+这节目效果也太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 7235#       发表于 2020-2-25 01:55
+
+
+
+
+谋害詹姆斯
+
+
+
+
+
+
+
+-----
+
+####  banjia0815  
+##### 7236#       发表于 2020-2-25 01:56
+
+
+
+
+#大老爹暗中操纵湖人管理层谋杀詹姆斯
+
+
+
+
+
+
+
+-----
+
+####  空罐子  
+##### 7237#       发表于 2020-2-25 01:59
+
+
+
+
+今晚这直播效果爆炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 7238#       发表于 2020-2-25 01:59
+
+
+
+
+今晚真实笑尿了，只有秦川能打出这种篮球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7239#       发表于 2020-2-25 02:00
+
+
+
+
+#大老爹分享力克强敌绝招 #大老爹成为湖人队话事人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天的节目效果真的太好了，笑到肚子痛得不行，睡不着了
+
+
+
+
+
+
+
+-----
+
+####  kugayama1369  
+##### 7240#       发表于 2020-2-25 02:01
+
+
+
+
+小秦今晚整活真把爷整乐了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7241#       发表于 2020-2-25 02:02
+
+
+
+
+小秦：今晚打得很快乐
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+        
