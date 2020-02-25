@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-25 22:03** 
+> ## **本文件最后更新于2020-02-26 02:03** 
 
 
 
@@ -22058,4 +22058,411 @@ YY里那个北京口音的是谁啊<img src="https://static.saraba1st.com/image/
 
 
 
-       
+
+
+-----
+
+####  imba419  
+##### 7268#       发表于 2020-2-25 22:25
+
+
+
+
+这™是NBA不是黑奴联盟
+
+
+
+
+
+
+
+-----
+
+####  despotnanoha  
+##### 7269#       发表于 2020-2-25 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">救救秃曼巴
+
+
+
+
+
+
+
+-----
+
+####  2659646573  
+##### 7270#       发表于 2020-2-25 22:39
+
+
+
+
+感觉小秦好久没有直播效果这么好的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 7271#       发表于 2020-2-25 22:42
+
+
+
+
+#大老爹奴役队友，湖人苦不堪言
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7272#       发表于 2020-2-25 23:17
+
+
+
+
+湖人轰炸机中队，国王被炸麻了
+
+
+
+
+
+
+
+-----
+
+####  洗衣粉的良心  
+##### 7273#       发表于 2020-2-25 23:38
+
+
+
+
+#大老爹领先国王队53分意犹未尽要求裁判加时
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 7274#       发表于 2020-2-25 23:47
+
+
+
+
+大老爹扬言将复活考辛斯并再次暗杀
+
+
+
+
+
+
+
+-----
+
+####  千古奇冤施密特  
+##### 7275#       发表于 2020-2-25 23:53
+
+
+
+
+难度调下去就不好看了
+
+
+
+
+
+
+
+-----
+
+####  pe_nimnul.a  
+##### 7276#       发表于 2020-2-25 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46524655&amp;ptid=1712512" target="_blank">战神无敌 发表于 2020-2-25 20:30</a>
+YY里那个北京口音的是谁啊话好多</blockquote>
+兜哥，门房最后一次在秦川直播间里出现就是四人大富翁，差点吵起来后没了
+
+
+
+
+
+
+
+-----
+
+####  sodah  
+##### 7277#       发表于 2020-2-25 23:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大老爹被架空了
+
+
+
+
+
+
+
+-----
+
+####  千古奇冤施密特  
+##### 7278#       发表于 2020-2-26 00:24
+
+
+
+
+大老爹死了！
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 7279#       发表于 2020-2-26 00:24
+
+
+
+
+#大老爹被哈登买凶暗杀！
+
+
+
+
+
+
+
+-----
+
+####  音无奏  
+##### 7280#       发表于 2020-2-26 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">大老爹因威胁海外解说被紧急逮捕，洛杉矶网警提醒您，网络不是法外之地
+
+
+
+
+
+
+
+-----
+
+####  YoungYiba  
+##### 7281#       发表于 2020-2-26 00:26
+
+
+
+
+神特么上次直播22小时前<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 7282#       发表于 2020-2-26 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">大老爹被HOBO暗杀
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 7283#       发表于 2020-2-26 00:28
+
+
+
+
+#大老爹被**杀
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  宗汝  
+##### 7284#       发表于 2020-2-26 00:28
+
+
+
+
+#NBA历史上最黑暗的一天
+
+
+
+
+
+
+
+-----
+
+####  欠损  
+##### 7285#       发表于 2020-2-26 00:28
+
+
+
+
+和洋葱同时掉线草
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 7286#       发表于 2020-2-26 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">被球迷当场击杀了
+
+
+
+
+
+
+
+-----
+
+####  lesson  
+##### 7287#       发表于 2020-2-26 00:38
+
+
+
+
+欠费断网太草了
+
+
+
+
+
+
+
+-----
+
+####  天喆  
+##### 7288#       发表于 2020-2-26 00:39
+
+
+
+
+艹啊，怎么在播，晚上看了好几次都没在
+
+
+
+
+
+
+
+-----
+
+####  奥雷利亚拍骆驼  
+##### 7289#       发表于 2020-2-26 00:45
+
+
+
+
+天下苦黄衣湖人已久，光明篮球界众英豪纷纷揭竿而起，东有休斯顿哈登，北有魏斯库里字母兄弟，西有金州勇士库里。
+
+众人齐心协力，轮战大老爹，终在金州剪断大老爹网线，史称滑联通之战。
+
+
+
+
+
+
+
+-----
+
+####  h20020901  
+##### 7290#       发表于 2020-2-26 00:51
+
+
+
+
+可以试试在微博搜大老爹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  PPB3008  
+##### 7291#       发表于 2020-2-26 00:59
+
+
+
+
+真实脑控直播，和阿夸同时掉线草
+
+
+
+
+
+
+
+-----
+
+####  panzerkamf  
+##### 7292#       发表于 2020-2-26 01:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46526574&amp;ptid=1712512" target="_blank">pe_nimnul.a 发表于 2020-2-25 23:54</a>
+兜哥，门房最后一次在秦川直播间里出现就是四人大富翁，差点吵起来后没了 ...</blockquote>
+门房最后一次出来不是怪猎吗？大富翁是哪次?
+
+—— 来自 vivo V1824BA, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+      
