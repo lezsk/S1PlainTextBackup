@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-25 02:06** 
+> ## **本文件最后更新于2020-02-25 14:05** 
 
 
 
@@ -10871,4 +10871,798 @@ meaqua贴贴还是没怎么贴就是这么久远的东西了
 
 
 
-                             
+
+
+-----
+
+####  素人不相识  
+##### 2102#       发表于 2020-2-25 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516276&amp;ptid=1914314" target="_blank">安达犬 发表于 2020-02-25 01:53:30</a>
+干，太整了，我顺便爬了下S1的mea楼，想看看有什么新见地，结果发现跟nga那里根本毫无区别，看来确实贴不起 ...</blockquote>大天使在西天上活的好好的哪能管你人间的事，人家怎么会理你区区粉丝的sb事情。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2103#       发表于 2020-2-25 02:11
+
+
+
+
+呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我大天使的粉丝个个是圣人，没有一个是nt，愿三酱早日飞升，阿夸
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2104#       发表于 2020-2-25 02:14
+
+
+
+ 本帖最后由 无限舰制 于 2020-2-25 02:17 编辑 
+
+三酱是做错了什么，下地狱还要和你们这群梁木人和神经病死宅呆一起，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+“我单知道我上不了天堂，但怎想得到竟会恶劣至此”
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2105#       发表于 2020-2-25 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516296&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-02-25 01:56:58</a>
+所以说粉丝滤镜人人都有，谁都不比谁高贵，带天使这么整肯定是不会做V给粉丝心态搞崩了，有些天狗三酱说难 ...</blockquote>不得不说，这种话体也挺好用的，拿部分代替全体，拿假想代替未知，将之混乱来表述，还挺好笑的，永远立于不败之地
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2106#       发表于 2020-2-25 02:19
+
+
+
+
+愿这样智者早日升入天界，那里才是他们永远的家<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2107#       发表于 2020-2-25 02:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516389&amp;ptid=1914314" target="_blank">素人不相识 发表于 2020-2-25 02:18</a>
+不得不说，这种话体也挺好用的，拿部分代替全体，拿假想代替未知，将之混乱来表述，还挺好笑的，永远立于不 ...</blockquote>
+草，他就是车轱辘话，只要触发关键词就复制发送的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2108#       发表于 2020-2-25 02:20
+
+
+
+
+这里是不是暗黑贴贴楼了，mea葬礼唯一指定丧主是大亏，怎么还不赶紧贴啊
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2109#       发表于 2020-2-25 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516399&amp;ptid=1914314" target="_blank">physi1202 发表于 2020-2-25 02:20</a>
+这里是不是暗黑贴贴楼了，mea葬礼唯一指定丧主是大亏，怎么还不赶紧贴啊</blockquote>
+能不能不要透露饭盒信息 这是肉猪 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 2110#       发表于 2020-2-25 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516389&amp;ptid=1914314" target="_blank">素人不相识 发表于 2020-2-25 02:18</a>
+
+不得不说，这种话体也挺好用的，拿部分代替全体，拿假想代替未知，将之混乱来表述，还挺好笑的，永远立于不 ...</blockquote>
+所以说粉丝滤镜人人都有，谁都不比谁高贵，mea这么整肯定是不会做V给粉丝心态搞崩了，有些crew夸酱说难听话就是弱智人设，说好听话就是新机深沉，不得不说，和金主单推人一样，还挺好笑的，永远立于不败之地
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 2111#       发表于 2020-2-25 02:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516401&amp;ptid=1914314" target="_blank">ddsdse 发表于 2020-2-25 02:22</a>
+
+能不能不要透露饭盒信息 这是肉猪 
+
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 S1Next-鹅版 v2.1 ...</blockquote>
+说起来你这货消失好久了吧，怎么又冒泡了
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2112#       发表于 2020-2-25 02:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516441&amp;ptid=1914314" target="_blank">肚子疼了 发表于 2020-2-25 02:37</a>
+说起来你这货消失好久了吧，怎么又冒泡了</blockquote>
+换个地方水呗 
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2113#       发表于 2020-2-25 02:48
+
+
+
+
+草，怎么还给公式化了，傻逼肯定是那家都有，换个主语就能套用不是再正常不过了，这次咩啊给五元打了1wsc，还是头一次出手这么阔绰罢，给大亏也就打个5k，本暗黑贴贴人开始期待之后的剧情了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2114#       发表于 2020-2-25 02:54
+
+
+
+
+舞mea已经是王道了，774mea什么时候发糖啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 2115#       发表于 2020-2-25 02:56
+
+
+
+
+已知：1大亏=5000，1舞元=20000，论1舞元等于多少个大亏
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2116#       发表于 2020-2-25 03:40
+
+
+
+<blockquote>雷修特 发表于 2020-2-25 02:30
+所以说粉丝滤镜人人都有，谁都不比谁高贵，mea这么整肯定是不会做V给粉丝心态搞崩了，有些crew夸酱说难听 ...</blockquote>
+叹气
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2117#       发表于 2020-2-25 08:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46515974&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-2-25 01:17</a>
+这种就是早上起床看集锦的冠军粉吗？是挺爽的。我圣夸皇现在大有这赛季利物浦那种一骑绝尘之势呢。
+
+ ...</blockquote>
+可是利物浦欧冠刚被马竞收拾了一波啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2118#       发表于 2020-2-25 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516977&amp;ptid=1914314" target="_blank">Mika-S 发表于 2020-2-25 08:12</a>
+
+可是利物浦欧冠刚被马竞收拾了一波啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就一球能逆转的，就像前几天夸皇大联动同接逆转一样。
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2119#       发表于 2020-2-25 09:52
+
+
+
+
+贴贴壬啥时候能被杀光啊  暗黑贴贴壬能不能给点劲<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2120#       发表于 2020-2-25 11:08
+
+
+
+
+贴贴人是不灭的。
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2121#       发表于 2020-2-25 11:22
+
+
+
+
+等这栋楼没人了贴贴人都不一定消失的
+
+
+
+
+
+
+
+-----
+
+####  Nichtig  
+##### 2122#       发表于 2020-2-25 11:25
+
+
+
+ 本帖最后由 Nichtig 于 2020-2-25 11:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">追根溯源还是你咩自找的
+
+她这畸形的粉丝运营策略，粉丝经过几轮筛选-培养-再筛选，总体脑瘫程度与脑控程度都不断上升，但核心粉数量呈先上升后下降的趋势。
+
+俗话说得好，什么v什么粉，粉丝的脑瘫或多或少都能从v身上找到。
+
+
+但她又何尝不是剑走偏锋呢，试问职业生涯里能赚得比她多的又有几个？
+
+她被脑瘫粉丝弄得发疯，这既是她自作自受，又是她自觉或不自觉的养粉手段。
+
+
+相比之下，阿夸就不一样了，感情不外露，无情的上分机器，赚得也不比你咩少。
+
+单纯做她的粉丝，不会有任何长期的烦恼——即使粉丝社群里存在不和谐的声音，那也基本是以前和你咩营业留下的遗毒。
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">所以如果我有什么愿望的话，那就是三年多前麻凛没有认识。
+
+你咩就适合和男人营业，阿夸就适合社障人设，她俩根本不是一路人。即使有交流也全部限定在私下不要透露出来好吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2123#       发表于 2020-2-25 11:30
+
+
+
+
+还好她们认识了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 2124#       发表于 2020-2-25 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46518840&amp;ptid=1914314" target="_blank">Nichtig 发表于 2020-2-25 11:25</a>
+
+追根溯源还是你咩自找的
+
+她这畸形的粉丝运营策略，粉丝经过几轮筛选-培养-再筛选，总体脑瘫程度与脑 ...</blockquote>
+被净化的巨魔现身说法了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2125#       发表于 2020-2-25 11:34
+
+
+
+
+不是有那么句话么，不是一家人，不进一家门，麻凛臭味相投肯定是原因的，大方向上两个人估计也差不了多少，至少凛一直以来都有个恶女的称号，至于分歧如何形成那必然就是一点一点偏差的积累，从一个人做了企业势，一个人当了个人势开始，就已经开始渐行渐远了，从开始的无话不说，到为了应付工作生活把好友晾在一旁，到无话可说，究竟要多长时间，就让我们拭目以待了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2126#       发表于 2020-2-25 11:34
+
+
+
+ 本帖最后由 草牛 于 2020-2-25 11:45 编辑 
+
+路线不同的人本来就不该在一起营业
+
+上次德龙组长meaptr夸皇的那次v骚是真的把我逗笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+“aqua也有很多gachi吧，你是怎么应对的”
+
+“啊————嗯——————额——————”
+
+“好，下一个”
+
+答应我，别让夸宝遭这种罪了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2127#       发表于 2020-2-25 11:42
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-25 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46518943&amp;ptid=1914314" target="_blank">草牛 发表于 2020-2-25 11:34</a>
+路线不同的人本来就不该在一起营业
+
+上次德龙组长meaptr夸皇的那次v骚是真的把我逗笑了
+
+“aqua也有很 ...</blockquote>
+像大亏这种，也就不了解她全貌的人能做她gachi。前两天还有个说mea快手味的，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就把这人彻底击溃了。
+还有个傻逼给我发视频说，为什么凛子小姐打pubg打的那么卑微啊啊。简直快笑死我了。
+要想得到凛子这样的人，就该把她作践到泥土里面去。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2128#       发表于 2020-2-25 11:44
+
+
+
+
+就算了解全貌我也能gachi， 所以就给我看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2129#       发表于 2020-2-25 12:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是因为如何应对不能说啊,说了还怎么rp五岁.想想鱼肉肠视频怎么来的.
+
+夸哥能把前世gachi治的服服帖帖,也能把转生带来的gachi转anti治的服服帖帖.
+
+功利吸血卫生巾头头是道,怎么到这里又把大天使当成5岁了? u1s1,大天使治gachi的实力可比三字母小姐516被金主gachi爆不知道高到哪里去了.
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 2130#       发表于 2020-2-25 12:40
+
+
+
+
+夸哥前世有这么nb么，我记得rinco不是混的比mtr拉跨么
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2131#       发表于 2020-2-25 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46519653&amp;ptid=1914314" target="_blank">贝伦二世 发表于 2020-2-25 12:40</a>
+夸哥前世有这么nb么，我记得rinco不是混的比mtr拉跨么</blockquote>
+就是因为混得差，所以前世舔大物舔得卑微。
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2132#       发表于 2020-2-25 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516397&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-02-25 02:19:56</a>
+草，他就是车轱辘话，只要触发关键词就复制发送的啊</blockquote>惘轮我还是眼熟的，只是昨晚上被一些人气到了想说点垃圾话。
+自欺欺人点地说，我这是为了给你版贡献流量进行的二次钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2133#       发表于 2020-2-25 12:52
+
+
+
+
+混得差和有手段又不矛盾，兔姨现在混的不太行，和兔姨有手段完全不冲突啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 2134#       发表于 2020-2-25 12:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">mea不一直这个风格吗，明明早就说了不想养gachi，提出同拒与否，甚至走那么久爆言路线，还是被3次元特殊事件和自身脑控被动养出一大群gachi。
+而且一个自由自在傲娇任性的小孩，做啥都不奇怪。（但是已经被社会毒打过了，某种意义上比大多数粉丝成熟）。
+有时间操心mea，不如操心下阿夸要是出啥特殊事件，会被炸成啥样。（不过一个游戏废宅能出啥特殊事件）
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 2135#       发表于 2020-2-25 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46519653&amp;ptid=1914314" target="_blank">贝伦二世 发表于 2020-2-25 12:40</a>
+
+夸哥前世有这么nb么，我记得rinco不是混的比mtr拉跨么</blockquote>
+没拉跨吧，前世起码还做做主持，不比现在RP弱智强。
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2136#       发表于 2020-2-25 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46519038&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-2-25 11:42</a>
+
+像大亏这种，也就不了解她全貌的人能做她gachi。前两天还有个说mea快手味的，昨天晚上一阵年龄连 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快手怎么了，我们快手人什么时候才能站起来，冷抖哭
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2137#       发表于 2020-2-25 13:20
+
+
+
+
+暂且当1个小时贴贴民，但是我暂且不能入饭盒所以也不知
+
+
+
+
+
+
+QQ图片20200225131936.png
+(19.97 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 13:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/131928q0ur1w0tizllz60c.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2138#       发表于 2020-2-25 13:22
+
+
+
+
+明明是儿子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2139#       发表于 2020-2-25 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46520063&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-2-25 13:14</a>
+快手怎么了，我们快手人什么时候才能站起来，冷抖哭</blockquote>
+夸粉是萌萌二次元当然讨厌快手了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2140#       发表于 2020-2-25 13:31
+
+
+
+
+「喪主(もしゅ)」は、葬儀の執行役であり責任者です。
+
+また、故人に代わって参列者を迎える遺族の代表者でもあります。
+
+喪主の決定に法律的なルールはありません。故人の家族が相談して、喪主を決めます。
+
+一応、次のような順番で務めるのが慣習となっています。
+
+配偶者        故人の夫や妻
+
+子供        長男または長女
+
+親        故人が若年の場合
+
+兄弟姉妹
+
+
+话说真的要讨论这个么。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2141#       发表于 2020-2-25 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">什么鬼，虽然是饭盒内容也别【可能】啊，答应我，别做谜语人好吗
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2142#       发表于 2020-2-25 14:04
+
+
+
+
+基德 基德
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                            
