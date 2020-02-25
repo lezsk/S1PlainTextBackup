@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-19 12:08** 
+> ## **本文件最后更新于2020-02-25 22:06** 
 
 
 
@@ -816,4 +816,301 @@ blbblbblbblb
 
 
 
-                                                
+
+
+-----
+
+####  gaayas  
+##### 45#       发表于 2020-2-19 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46459608&amp;ptid=1914491" target="_blank">Nokazusa 发表于 2020-2-19 12:08</a>
+
+你可能不知道前几天她又B限了，我没看（看了两分钟），但是很明显的就是和她第一次B站直播相比，对线的人 ...</blockquote>
+只要没有决定性证据出现，和平演变是必然，上次在V5黑屁这货，都有老哥回我，你什么都不懂她，就别被带节奏了，我想：你懂个几把？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Inkash  
+##### 46#       发表于 2020-2-19 18:17
+
+
+
+
+我记得当年她自己回过一条评论是“我也不知道自己是什么国籍呢”
+
+但是忘了是哪儿的了，只记得是B站，我有空找找截图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这么嘴硬还想恰饭的VTB也不多见，更神奇的是居然还真恰到了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 47#       发表于 2020-2-19 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46460540&amp;ptid=1914491" target="_blank">gaayas 发表于 2020-2-19 13:37</a>
+只要没有决定性证据出现，和平演变是必然，上次在V5黑屁这货，都有老哥回我，你什么都不懂她，就别被带节 ...</blockquote>
+今天有人跟我说她是英国血统<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不知道说啥好了。
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 48#       发表于 2020-2-19 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46463225&amp;ptid=1914491" target="_blank">儒门正御应无骞 发表于 2020-2-19 18:21</a>
+
+今天有人跟我说她是英国血统我不知道说啥好了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KanteCAB  
+##### 49#       发表于 2020-2-19 21:16
+
+
+
+
+想看眠眠773贴贴！
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 50#       发表于 2020-2-19 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能开楼吗 无内鬼来点黑屁
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  SevenYuan23  
+##### 51#       发表于 2020-2-21 09:44
+
+
+
+
+眠眠要开两万粉b限了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  freedomtsubasa  
+##### 52#       发表于 2020-2-21 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46451051&amp;ptid=1914491" target="_blank">dorasir 发表于 2020-2-18 14:32</a>
+
+佐女士什么时候和010来个竿姐妹配信企划</blockquote>
+惊了，听说010是七海中之人？有什么黑料吗
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 53#       发表于 2020-2-21 11:20
+
+
+
+
+希望各位anti继续在阿b直播间多打几个sc骂骂这个该死的恨国党呢<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  z99993035  
+##### 54#       发表于 2020-2-21 11:45
+
+
+
+ 本帖最后由 z99993035 于 2020-2-23 10:21 编辑 
+
+1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 55#       发表于 2020-2-21 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46478975&amp;ptid=1914491" target="_blank">rubinliu 发表于 2020-2-21 11:20</a>
+希望各位anti继续在阿b直播间多打几个sc骂骂这个该死的恨国党呢</blockquote>
+来点真材实料，我也好anti啊。
+
+
+
+
+
+
+
+-----
+
+####  茉莉呐噶米谬谬  
+##### 56#         楼主| 发表于 2020-2-21 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46479262&amp;ptid=1914491" target="_blank">儒门正御应无骞 发表于 2020-2-21 11:48</a>
+
+来点真材实料，我也好anti啊。</blockquote>
+黑料没有，但是可以看脑残粉舌战群儒引火烧身禁言三天的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://bbs.nga.cn/read.php?tid=20455656](https://bbs.nga.cn/read.php?tid=20455656)
+
+
+
+
+
+
+
+-----
+
+####  KanteCAB  
+##### 57#       发表于 2020-2-21 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46478751&amp;ptid=1914491" target="_blank">freedomtsubasa 发表于 2020-2-21 10:45</a>
+
+惊了，听说010是七海中之人？有什么黑料吗</blockquote>
+广州富二代狂宠SNH小偶像
+
+
+
+
+
+
+
+-----
+
+####  狗文控  
+##### 58#       发表于 2020-2-22 16:57
+
+
+
+
+这逼是谁..?.jpg
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 59#       发表于 2020-2-22 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46491354&amp;ptid=1914491" target="_blank">狗文控 发表于 2020-2-22 16:57</a>
+
+这逼是谁..?.jpg</blockquote>
+狗文控你来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狗文控  
+##### 60#       发表于 2020-2-22 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46491381&amp;ptid=1914491" target="_blank">Igarashi 发表于 2020-2-22 16:59</a>
+
+狗文控你来啦11年的号第一次发帖怎么给了眠大佐</blockquote>
+本来不想说话的，但是有几层老阴阳人实在是太基德了，看得我一时没把持住，现在回完贴了顿时虽然无味
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 61#       发表于 2020-2-25 21:35
+
+
+
+
+话说左大小姐的b站闪电是怎么弄到的？
+
+
+
+
+
+                                               

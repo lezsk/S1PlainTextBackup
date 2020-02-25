@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-25 14:05** 
+> ## **本文件最后更新于2020-02-25 22:04** 
 
 
 
@@ -11641,7 +11641,13 @@ QQ图片20200225131936.png
 
 
 
+ 本帖最后由 笋狐 于 2020-2-25 14:11 编辑 
+
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">什么鬼，虽然是饭盒内容也别【可能】啊，答应我，别做谜语人好吗
+
+
+好吧大概懂了，是这吊人在饭盒里说哪天自己去了要找大亏哥主持葬礼？可主办人这个身份按上面的规章，愿意指定谁就是谁吧，下面的亲属顺序不是常理意义上的吗
+
 
 
 
@@ -11665,4 +11671,407 @@ QQ图片20200225131936.png
 
 
 
-                            
+
+
+-----
+
+####  五十岚萤  
+##### 2143#       发表于 2020-2-25 14:09
+
+
+
+
+能不能少点谜语人？我第一反应是大天使成了圣寡妇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2144#       发表于 2020-2-25 14:14
+
+
+
+
+主催：黄兔子
+丧主：大亏
+直播支持：犬山
+可以开始发散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2145#       发表于 2020-2-25 14:23
+
+
+
+
+大天使都能复活的，所以不殉葬一波？
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 2146#       发表于 2020-2-25 14:26
+
+
+
+
+要不为啥说谜语人爬，我还以为说的是某人出事的咖喱人是配偶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 2147#       发表于 2020-2-25 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46518840&amp;ptid=1914314" target="_blank">Nichtig 发表于 2020-2-25 11:25</a>
+
+追根溯源还是你咩自找的
+
+她这畸形的粉丝运营策略，粉丝经过几轮筛选-培养-再筛选，总体脑瘫程度与脑 ...</blockquote>
+再怎么说还是要直播看得下去才能做粉丝啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你都知道路线不一样怎么能比较。我是来看直播的又不是想做粉丝的。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 2148#       发表于 2020-2-25 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46520156&amp;ptid=1914314" target="_blank">physi1202 发表于 2020-2-25 13:22</a>
+
+明明是儿子</blockquote>
+是妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2149#       发表于 2020-2-25 14:45
+
+
+
+
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2150#       发表于 2020-2-25 15:14
+
+
+
+
+你麻这个年龄当然是还觉得“好朋友来主持葬礼比较zqsg”啦
+
+
+其实人死了被怎么安排谁知道呢
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 2151#       发表于 2020-2-25 15:35
+
+
+
+
+单推都tm是憨批 我来做贴贴民了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2152#       发表于 2020-2-25 15:46
+
+
+
+
+别提贴贴民了，我昨天还看到两个单推踩一捧一
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 2153#       发表于 2020-2-25 20:46
+
+
+
+
+ark不也挺好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2154#       发表于 2020-2-25 21:02
+
+
+
+
+叫好朋友主持可以不花钱<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">你麻还是你麻  爱了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2155#       发表于 2020-2-25 21:20
+
+
+
+
+来点贴贴相关
+问：咖啡厅第二季呢
+答：先把她的ark没收了
+问：再继续跟阿夸联动吧
+答：那家伙一直在ARK，就算我和她说话她也在ARK，所以现在在考虑要不要把显示屏打破掉
+
+
+
+
+
+
+2.png
+(28.06 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 21:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/211939jcyv1bjmdjyecaiz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+1.jpg
+(22.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 21:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/211926rngxsbpnthrgngii.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2156#       发表于 2020-2-25 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁要和你贴，老娘要玩ark
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2157#       发表于 2020-2-25 21:23
+
+
+
+
+一年一度的A姓游戏时间
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2158#       发表于 2020-2-25 21:24
+
+
+
+
+嗯？ 这既视感...是当年的Apex！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2159#       发表于 2020-2-25 21:26
+
+
+
+
+前年有ayame，去年有apex，今年有ark，明年会是什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 2160#       发表于 2020-2-25 21:30
+
+
+
+
+笑死
+
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 2161#       发表于 2020-2-25 21:32
+
+
+
+
+哈哈A姓游戏笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 2162#       发表于 2020-2-25 21:40
+
+
+
+
+贴贴！齁死我了  这就是meaqua吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                           
