@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-27 00:07** 
+> ## **本文件最后更新于2020-02-27 00:54** 
 
 
 
@@ -1539,10 +1539,11 @@ md一边拜金一边骂金主是不是有点精神分裂</blockquote>
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| SeverusFDrusus| + 1|思路广|
 | 德里达幽灵| + 1|思路广|
 | ❃✽✾✶✻✼| + 1|是这个理|
 | plazum| + 1|思路广|
@@ -6154,4 +6155,799 @@ ps：如果以上方法都没用，多掺点钓crew的饵进去即可
 
 
 
-                                      
+
+
+-----
+
+####  a772803314  
+##### 343#       发表于 2020-2-27 00:08
+
+
+
+
+现实反而是三字母一直蹭夸的热度，联动开涮不谈，就连夸家人去世都要蹭一下热度，发的玩意那个恶心，和野男人自己玩不好吗
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 344#       发表于 2020-2-27 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538342&amp;ptid=1915863" target="_blank">age45 发表于 2020-2-26 23:55</a>
+
+细数三酱的罪恶：
+
+0，天空之城
+
+1，和男性同居</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这都说完了，再多说只能立个牌位来拜了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 345#       发表于 2020-2-27 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537399&amp;ptid=1915863" target="_blank">JY要塞 发表于 2020-2-26 22:30</a>
+
+DWU虽然屁股不对，但是不对的方向不是TD是哥潭，她新年第二条推就把中国台湾省明确说出来了 ...</blockquote>
+我说一下，第二张图是嘲讽四爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">构图跟当时网易爱的视频完全一致，所以说两张图都是一个意思
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 346#       发表于 2020-2-27 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538460&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 00:08</a>
+
+现实反而是三字母一直蹭夸的热度，联动开涮不谈，就连夸家人去世都要蹭一下热度，发的玩意那个恶心，和野男 ...</blockquote>
+呜呜专心看夸夸的直播不好吗便要来这儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看管人，最重要的就是要以慈悲为怀。
+
+放宽放宽心啦旁友，不然过几天整个咖啡厅给您整心梗了咋整？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我们良心会过不去的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+善哉～
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 347#       发表于 2020-2-27 00:18
+
+
+
+
+在b站，nga四处咬人，指点完江山还要装自己是弱者，在s1三字母anti楼黑夸，面具被揭穿就拉别人下水，还特意挑三字母最喜欢舔的对象倒打一耙，舔狗果然在哪都无可救药的恶心。无法理解舔狗黑夸最多，是自己大脑连主人的话都理解不了了？
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 348#       发表于 2020-2-27 00:19
+
+
+
+
+有一说一，拿“勤奋”和“才华”在“s1”替圣皇说事的，全都是渔夫。别演了，这个号够了，换个继续来吧。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 349#       发表于 2020-2-27 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德上次ig的小号整的人分不清这到底是饵还是鱼了怎么办，此等屁股明显的低水平火力在下一直以为只有萎勃才会有，一点没有泥潭巨魔那股特殊的恶臭，能不能装的像一点（
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 350#       发表于 2020-2-27 00:21
+
+
+
+
+我觉得他是想冒充夸粉从我们嘴里套出更多的夸夸黑料但是夸夸这么好除了那点虚空黑屁哪有黑料啊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 351#       发表于 2020-2-27 00:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">哪有萌萌crew不看大亏唱歌在直播间刷AMT，跑来这里甩直钩。换个时间点再来吧
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 352#       发表于 2020-2-27 00:27
+
+
+
+
+如果是反串，那也太弱智了，这巨魔水平不像S1的，更别说V版了
+
+如果是真的，那也太弱智了，即使是净土坛也没有这么直的，更别说泥潭了
+
+等等，泥潭没准还真有的
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 353#       发表于 2020-2-27 00:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是，你们不是应该一起跟着骂吗？
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 354#       发表于 2020-2-27 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我纯良人，只骂四字母的。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 355#       发表于 2020-2-27 00:30
+
+
+
+
+其他地方舔狗多但至少不会像蟑螂一样，就只有这论坛连夸楼anti楼都能被舔狗占据，舔狗大本营真的恶心，舔狗人人喊打不是没理由的，接着yy夸蹭三字母热度吧
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 356#       发表于 2020-2-27 00:33
+
+
+
+
+果然crew的脑袋结构跟正常人不太一样呢
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 357#       发表于 2020-2-27 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538636&amp;ptid=1915863" target="_blank">free切 发表于 2020-2-27 00:28</a>
+
+不是，你们不是应该一起跟着骂吗？</blockquote>
+巨魔水平过低，耻与之为伍
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 358#       发表于 2020-2-27 00:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了 我也不确定到底是真的纯良还是太直的钩了
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 359#       发表于 2020-2-27 00:35
+
+
+
+
+anti楼不anti却甩锅一般通过纯良人，连我都看不下去！
+
+V版被天狗一手掌控的黑暗时代就此拉开序幕！
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 360#       发表于 2020-2-27 00:35
+
+
+
+
+净土是指绿帽A吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 361#       发表于 2020-2-27 00:36
+
+
+
+
+这句式怎么这么眼熟在哪看见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 362#       发表于 2020-2-27 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538692&amp;ptid=1915863" target="_blank">Reimu853 发表于 2020-2-27 00:35</a>
+anti楼不anti却甩锅一般通过纯良人，连我都看不下去！
+
+V版被天狗一手掌控的黑暗时代就此拉开序幕！ ...</blockquote>
+再逼逼赖赖扣你额哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 363#       发表于 2020-2-27 00:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> anti楼anti就完事了，有什么分纯不纯良的必要吗
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 364#       发表于 2020-2-27 00:37
+
+
+
+
+钓鱼.jpg
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 365#       发表于 2020-2-27 00:38
+
+
+
+
+连TioPlato这种暴躁真crew都知道勤奋梗是yygq，这两个上来就天道酬勤才华勤奋，还是八百年前的小号，不会真有人信是净土坛和微博来的S1初见纯良人吧
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 366#       发表于 2020-2-27 00:39
+
+
+
+<img src="https://s2.ax1x.com/2020/02/27/3a4VPA.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zilch_ren| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 367#       发表于 2020-2-27 00:39
+
+
+
+
+真爱楼扣鹅砍头，anti楼是不是该来个加鹅砍头啊
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 368#       发表于 2020-2-27 00:40
+
+
+
+
+是又如何，不是又如何，不都是在anti，倒是有些人跑题跑远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 369#       发表于 2020-2-27 00:40
+
+
+
+ 本帖最后由 笋狐 于 2020-2-27 00:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，虽不是装个氧气瓶就能冒充海洋生物，但你们好歹理理人家啊，看着一条疑似橡胶做的假鱼在那虚空输出颅内一库这番画面还挺是悲凉的风景，哪怕是装作咬钩让他体会一下渔夫的快乐不好吗，你版流量还要8要啦（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 370#       发表于 2020-2-27 00:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答应我，不要恰烂流量好吗，v版要做堂堂正正的u版
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 371#       发表于 2020-2-27 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538726&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 00:39</a></blockquote>
+好活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 372#       发表于 2020-2-27 00:43
+
+
+
+
+被漫区吞回去警告  .   jpg 
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 373#       发表于 2020-2-27 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538726&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 00:39</a></blockquote>
+看到这楼我震惊半晌，久久的说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">终于看到了新的角度
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 374#       发表于 2020-2-27 00:44
+
+
+
+ 本帖最后由 noaki 于 2020-2-27 00:49 编辑 
+
+看起来新选手入场了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可怜的小船们终究还是败在了那个男人的光辉之下…
+
+
+
+
+（哦还有另一个男人的残骸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 375#       发表于 2020-2-27 00:44
+
+
+
+
+……
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 376#       发表于 2020-2-27 00:46
+
+
+
+
+在华语第一夸黑论坛寻求纯良crew是否搞错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+有一说一这个论坛本来是有纯良crew的，但前几天夸楼高强度yygq，把一部分crew恶心走了一部分吓得不敢说话，现在只剩anti和反串anti互相钓<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+syl这楼是不是该改名叫vtuber凑阿库娅和及其crew的anti楼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 377#       发表于 2020-2-27 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">右边那个有过啥问题发言来着（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 378#       发表于 2020-2-27 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538785&amp;ptid=1915863" target="_blank">deadpoem 发表于 2020-2-27 00:46</a>
+在华语第一夸黑论坛寻求纯良crew是否搞错了什么
+有一说一这个论坛本来是有纯良crew的，但前几天夸楼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">crew差点抢走nga最初的mea楼，还要抢走s1的meaanti楼？
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 379#       发表于 2020-2-27 00:49
+
+
+
+
+如果没有516 我可能是个774gachi了 我恨mea
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 380#       发表于 2020-2-27 00:50
+
+
+
+
+难得爬一次5ch居然看到了三字母的新料，你们听听这里面那个女的是不是三酱？
+[https://www.youtube.com/watch?v=DErcTtpZP44&amp;t=95s](https://www.youtube.com/watch?v=DErcTtpZP44&amp;t=95s)
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 381#       发表于 2020-2-27 00:50
+
+
+
+
+N姓老哥以一己之力把crew变成了特权阶级，获得了被集火的待遇。
+
+版主：“我们要不惜一切代价，让V区拥有足够的热度！”
+
+crew：“然后呢？”
+
+版主： “没有然后了，你不是’我们’，你是那个‘代价’。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 382#       发表于 2020-2-27 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538797&amp;ptid=1915863" target="_blank">笋狐 发表于 2020-2-27 00:47</a>
+右边那个有过啥问题发言来着（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">踩一捧一，说mea是💩，夸皇是什么来着想不起来了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 383#       发表于 2020-2-27 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538829&amp;ptid=1915863" target="_blank">weiweiEX 发表于 2020-2-27 00:51</a>
+
+踩一捧一，说mea是💩，夸皇是什么来着想不起来了</blockquote>
+怎么两边都是踩一捧一crew，要幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 384#       发表于 2020-2-27 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538797&amp;ptid=1915863" target="_blank">笋狐 发表于 2020-2-27 00:47</a>
+右边那个有过啥问题发言来着（</blockquote>
+还揭露过mea初中圆角的事实
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 385#       发表于 2020-2-27 00:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">怪mea不刷牙咯
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 386#       发表于 2020-2-27 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538814&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-27 00:50</a>
+难得爬一次5ch居然看到了三字母的新料，你们听听这里面那个女的是不是三酱？
+
+https://www.youtube.com/watc ...</blockquote>
+草，smjb
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 387#       发表于 2020-2-27 00:54
+
+
+
+
+crew，crew无处不在
+
+
+
+
+
+                                     
