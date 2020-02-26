@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-26 20:08** 
+> ## **本文件最后更新于2020-02-26 22:08** 
 
 
 
@@ -2371,4 +2371,841 @@ anti楼都被天狗占领了，还能有点好戏吗？
 
 
 
-                                             
+
+
+-----
+
+####  Dualist彩  
+##### 133#       发表于 2020-2-26 20:11
+
+
+
+
+这就没活了？萨尔哥调的音真好听，新稿一天播放翻了一番了，可惜要换源了舍不得呜呜呜，野天狗伙同字幕组逼走老功臣安排一下（<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 134#       发表于 2020-2-26 20:13
+
+
+
+
+S1还有MEA的ANTI吗。。？  MEA可是真的做到了只有扭曲的GACHI天狗，普通的GACHI天狗和变态的GACHI天狗（还有巨魔的GACHI天狗）
+
+云ANTI这楼里说话怕不是要被你们喷到死。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 135#       发表于 2020-2-26 20:14
+
+
+
+
+萨尔之于三组就像小岛秀夫之于科乐美，希望萨尔哥的才能不会被埋没，在被排挤出组后还能继续去更值得的地方继续用爱发电，要是去夸组就最好不过了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 136#       发表于 2020-2-26 20:17
+
+
+
+
+攻击神乐小姐可谓不痛不痒，不如挑起天狗和crew之间的矛盾，以舆论之势让神乐小姐的亲朋好友远离她。再挑起字幕组跟海盗之间的矛盾，让有产粉丝愤而脱坑，众叛亲离岂不快哉
+
+
+
+
+
+
+
+-----
+
+####  我单推副会长  
+##### 137#       发表于 2020-2-26 20:22
+
+
+
+
+这破楼有啥存在价值，你去把m1捞起来算了。
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 138#       发表于 2020-2-26 20:28
+
+
+
+
+建议去三酱直播间打sc高额sc辱骂亏皇   去亏皇直播间打高额sc辱骂三酱 然后让信者大战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 139#       发表于 2020-2-26 20:29
+
+
+
+
+笑死了
+我也不希望萨尔就此沉默嗷
+建议发光发热，重新做人不是很好
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 140#       发表于 2020-2-26 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536096&amp;ptid=1915863" target="_blank">我单推副会长 发表于 2020-2-26 20:22</a>
+
+这破楼有啥存在价值，你去把m1捞起来算了。</blockquote>
+说起m1，蛇怪被放出来了，之前还在v版冒泡了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 141#       发表于 2020-2-26 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536161&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 20:28</a>
+
+建议去三酱直播间打sc高额sc辱骂亏皇   去亏皇直播间打高额sc辱骂三酱 然后让信者大战
+
+
+  -- 来自  ...</blockquote>
+这是花钱给别人整乐子，从观众到主播怕不是都被你逗乐了
+
+正确的打开方式是到三酱直播间打sc赞美阿夸并希望三酱多和阿夸联动，去阿夸直播间打sc骂阿夸问她为什么把三酱抛弃了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 142#       发表于 2020-2-26 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536096&amp;ptid=1915863" target="_blank">我单推副会长 发表于 2020-2-26 20:22</a>
+
+这破楼有啥存在价值，你去把m1捞起来算了。</blockquote>
+存在价值是让V版免于沦为老四（
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 143#       发表于 2020-2-26 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">S1V版这成分算是彻底判明了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 144#       发表于 2020-2-26 20:38
+
+
+
+
+S1争四大战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 145#       发表于 2020-2-26 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536242&amp;ptid=1915863" target="_blank">Reimu853 发表于 2020-2-26 20:35</a>
+
+S1V版这成分算是彻底判明了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">v版的流量自然是暗黑贴贴人带来的，所以想要维持v版的活力，就要想法设法激发他们水贴的热情啊
+
+
+
+
+
+
+
+-----
+
+####  Dystopia.  
+##### 146#       发表于 2020-2-26 20:42
+
+
+
+
+咩咩和大亏轮流拯救v版流量，meaqua贴贴！
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 147#       发表于 2020-2-26 20:52
+
+
+
+
+跟TD分子DWU有过联动
+
+三字母一定也是TD分子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 148#       发表于 2020-2-26 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536413&amp;ptid=1915863" target="_blank">rubinliu 发表于 2020-2-26 20:52</a>
+跟TD分子DWU有过联动
+
+三字母一定也是TD分子</blockquote>
+大亏也联动过，还在直播间发表台独言论，可以说也是罪大恶极了。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 149#       发表于 2020-2-26 20:56
+
+
+
+
+我怎么看vtb区26名了，226所以26麻
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 150#       发表于 2020-2-26 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536439&amp;ptid=1915863" target="_blank">儒门正御应无骞 发表于 2020-2-26 20:55</a>
+
+大亏也联动过，还在直播间发表台独言论，可以说也是罪大恶极了。</blockquote>
+leile leile，天狗的传统艺能围夸救三<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 151#       发表于 2020-2-26 21:02
+
+
+
+
+天空之城有啥后续吗  三酱有没有道个歉啥的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">表示一下用语不当
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 152#       发表于 2020-2-26 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">meaqua贴贴！
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 153#       发表于 2020-2-26 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536499&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 21:02</a>
+
+天空之城有啥后续吗  三酱有没有道个歉啥的表示一下用语不当
+
+
+  -- 来自 能看大图的 Stage1官方 And ...</blockquote>
+三酱关于自己对别人的暴言只道过一次歉，那家现在已经炸了
+
+
+
+
+
+
+
+-----
+
+####  Nichtig  
+##### 154#       发表于 2020-2-26 21:07
+
+
+
+
+本退坑回踩人欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+三字母三字母三字母三字母三字母三字母
+
+舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先留一楼，有点新想法再来
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 155#       发表于 2020-2-26 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536562&amp;ptid=1915863" target="_blank">Nichtig 发表于 2020-2-26 21:07</a>
+
+本退坑回踩人欢喜
+
+三字母三字母三字母三字母三字母三字母
+
+舒服了先留一楼，有点新想法再来 ...</blockquote>
+太拉胯了
+
+这样的话今天连漫区都赢不了
+
+V区药丸啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 156#       发表于 2020-2-26 21:12
+
+
+
+
+在S1黑三字母才是真的斧高不及毛
+
+不如说，现在三字母在日本法律允许的情况下无论干什么S1的全肯定天狗都不会在意了
+
+违法了说不定也不会在意（
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 157#       发表于 2020-2-26 21:14
+
+
+
+
+未成年前喝酒，违反法律，看你们怎么洗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 158#       发表于 2020-2-26 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">未满18就在批站直播算违法吗
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 159#       发表于 2020-2-26 21:19
+
+
+
+
+774透未成年没问题吗  有点担心
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 160#       发表于 2020-2-26 21:19
+
+
+
+
+违反两国法律，中日两开花，建议引渡
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 161#       发表于 2020-2-26 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536675&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 21:19</a>
+
+774透未成年没问题吗  有点担心
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+这个应该没问题，你日JK处女率不高
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 162#       发表于 2020-2-26 21:21
+
+
+
+
+因为未成年直播大火，被国内未成年少女当做榜样，投身直播，影响深远，贻害无穷。涉事者包括本版版主，建议谴责
+
+
+
+
+
+
+
+-----
+
+####  wornixxoo  
+##### 163#       发表于 2020-2-26 21:31
+
+
+
+
+问下大福和神乐小姐有什么恩怨
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 164#       发表于 2020-2-26 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536797&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-2-26 21:31</a>
+
+问下大福和神乐小姐有什么恩怨</blockquote>
+你死我活的死对头
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 165#       发表于 2020-2-26 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536797&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-02-26 21:31:47</a>
+问下大福和神乐小姐有什么恩怨</blockquote>转火亏皇的跳板？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 166#       发表于 2020-2-26 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼忽悠成功一个，原来还是有效果的啊。syl，看看IG看到有人咬钩了反应那个快啊
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 167#       发表于 2020-2-26 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536797&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-2-26 21:31</a>
+
+问下大福和神乐小姐有什么恩怨</blockquote>
+被神乐小姐用影之诗三连羞辱，此仇不共戴天
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 168#       发表于 2020-2-26 21:33
+
+
+
+
+傻之逼里互相跳脸的关系？
+
+
+
+
+
+
+
+-----
+
+####  wornixxoo  
+##### 169#       发表于 2020-2-26 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536812&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 21:32</a>
+你死我活的死对头</blockquote>
+原因是啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪个视频我去看看
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 170#       发表于 2020-2-26 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看他是真不知道，别忽悠瘸了，基德
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 171#       发表于 2020-2-26 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《底线》、《基德》
+
+
+
+
+
+
+
+-----
+
+####  献给亲爱的世界  
+##### 172#       发表于 2020-2-26 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536652&amp;ptid=1915863" target="_blank">草牛 发表于 2020-2-26 21:16</a>
+
+未满18就在批站直播算违法吗</blockquote>
+emmmm，这个我认真回答一下，所有在bilibili直播的Vtuber的直播申请全都是字幕组的人去办的，所以不管哪个V都不存在未成年直播的危险
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 173#       发表于 2020-2-26 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536826&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-2-26 21:34</a>
+
+原因是啥哪个视频我去看看</blockquote>
+别听他扯淡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没啥恩怨，一起参加过几次多人联动
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 174#       发表于 2020-2-26 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536826&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-2-26 21:34</a>
+
+原因是啥哪个视频我去看看</blockquote>
+
+
+被绿宝石战神演了，西西能咽下这口气么
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 175#       发表于 2020-2-26 21:44
+
+
+
+
+绿宝石痛打大师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 176#       发表于 2020-2-26 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536826&amp;ptid=1915863" target="_blank">wornixxoo 发表于 2020-2-26 21:34</a>
+
+原因是啥哪个视频我去看看</blockquote>
+  
+
+
+
+有2个相关的视频
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 177#       发表于 2020-2-26 22:05
+
+
+
+
+我仔细分析 今晚杏的ark服务器崩坏可能是三酱一手操办的
+我们已知三酱早已对亏皇不满 两人渐行渐远 带天使不给三酱蹭热度
+前两天有连体婴儿在蓝鸟上问三酱什么时候很带天使联动 三酱表示要打爆亏皇的屏幕
+今晚ark本来又是亏皇安定的3w棒  三酱眼红不已  却不敢真人pk打爆屏幕 于是拿天狗打的血汗钱外加自己的身体找了黑客黑掉了ark的服务器   
+一切的一切  都是为了阻碍带天使在404的发展 让其不得不回到批站跟自己贴贴  并举办第二回meaqua咖啡厅  好让自己得到升华 顺便丢掉烦人的苔姨
+三字母 你好心机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|有理有据|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 178#       发表于 2020-2-26 22:08
+
+
+
+
+这三字母怎么听起来这么病娇啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
