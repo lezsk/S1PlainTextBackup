@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-26 17:47** 
+> ## **本文件最后更新于2020-02-26 18:06** 
 
 
 
@@ -917,10 +917,14 @@ mea一时不死我就一时看不到mtr 赶紧死
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 言艮| + 1|在背了在背了|
+| ColdAir| + 1|鸽健身环罪大恶极|
+| 素人不相识| + 1|我已经江郎才尽想不到更多了，anti失职.|
+| age45| + 1|熟读且背诵|
 | 二岩枫| + 1|思路广|
 | noaki| + 1|欢乐多|
 
@@ -1034,10 +1038,186 @@ IG2000 Mk.2听上去真像是什么玩意的型号一样<img src="https://static
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534426&amp;ptid=1915863" target="_blank">proxima 发表于 2020-2-26 17:41</a>
 那可以一转ig2000mk2 anti楼吗</blockquote>
-我mk2羞与他们为伍，我还有底线<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+我mk2羞与他们为伍，我还有底线<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">他俩是kemt,我是静凛。
 
 
 
 
 
-                                                
+
+
+-----
+
+####  好德我基  
+##### 59#       发表于 2020-2-26 17:50
+
+
+
+
+平时喊别人debu喊得欢，被观众喊debu就气得受不了
+
+垃圾这个翻译一点问题都没有的，别拿天空之城挡刀了
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 60#       发表于 2020-2-26 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534336&amp;ptid=1915863" target="_blank">南非大金钻 发表于 2020-2-26 17:31</a>
+
+细数三酱的罪恶：
+
+ 0，天空之城
+
+ 1，和男性同居</blockquote>
+你这一总结大概减少了3页讨论量，真是个带恶人啊
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 61#       发表于 2020-2-26 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534516&amp;ptid=1915863" target="_blank">好德我基 发表于 2020-2-26 17:50</a>
+
+平时喊别人debu喊得欢，被观众喊debu就气得受不了
+
+垃圾这个翻译一点问题都没有的，别拿天空之城挡刀了 ...</blockquote>
+没错！就是这样！简直是你楼最标准的回复了。
+
+再来个五块的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 62#       发表于 2020-2-26 17:59
+
+
+
+
+真想恶心mea粉的话建议开一个大亏专用捧一踩一楼
+
+拿着大亏的各项数据到处找靶子开炮
+
+保证效果拔群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 63#       发表于 2020-2-26 18:02
+
+
+
+
+你们anti我是支持的，但是别整天重复那些裹脚布来点有新意好不好，我看这次舞元是个好切入点但不够深入<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">如果能有《从XXX分析holo权力变更》那种尽头就好了
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 64#       发表于 2020-2-26 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534157&amp;ptid=1915863" target="_blank">掉头学姐 发表于 2020-2-26 17:16</a>
+你竟然攻击啊夸咖喱人
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 65#       发表于 2020-2-26 18:04
+
+
+
+
+云宫崎骏  天空之城那个梗真的存在吗<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 66#       发表于 2020-2-26 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534574&amp;ptid=1915863" target="_blank">noaki 发表于 2020-2-26 17:55</a>
+
+没错！就是这样！简直是你楼最标准的回复了。
+
+再来个五块的</blockquote>
+你先打240羊到大天使直播间再说。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 67#       发表于 2020-2-26 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534157&amp;ptid=1915863" target="_blank">掉头学姐 发表于 2020-2-26 17:16</a>
+你竟然攻击啊夸咖喱人
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+喷饭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+                                               
