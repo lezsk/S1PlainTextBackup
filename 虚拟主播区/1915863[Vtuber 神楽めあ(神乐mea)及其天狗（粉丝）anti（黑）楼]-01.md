@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-26 18:06** 
+> ## **本文件最后更新于2020-02-26 20:08** 
 
 
 
@@ -917,10 +917,11 @@ mea一时不死我就一时看不到mtr 赶紧死
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Orrenji| + 1|女子！|
 | 言艮| + 1|在背了在背了|
 | ColdAir| + 1|鸽健身环罪大恶极|
 | 素人不相识| + 1|我已经江郎才尽想不到更多了，anti失职.|
@@ -1220,4 +1221,1154 @@ IG2000 Mk.2听上去真像是什么玩意的型号一样<img src="https://static
 
 
 
-                                               
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 68#       发表于 2020-2-26 18:08
+
+
+
+
+受不了五元mea联动，我是anti了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRtime  
+##### 69#       发表于 2020-2-26 18:09
+
+
+
+
+攻击大天使咖喱人小心被一年哦
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 70#       发表于 2020-2-26 18:13
+
+
+
+
+三小姐什麼貨色還敢碰瓷我大天使啊
+
+爬爬爬
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 71#       发表于 2020-2-26 18:13
+
+
+
+ 本帖最后由 SNOWIMEA 于 2020-2-26 18:17 编辑 
+
+草，来晚了，你们都说完了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+sly，三字母是钢板，巨乳民幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 72#       发表于 2020-2-26 18:17
+
+
+
+
+有一说一，纯好奇，三字母的粉丝自称天狗不觉得恶心吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haloQuQ  
+##### 73#       发表于 2020-2-26 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534666&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-02-26 18:04:40</a>
+云宫崎骏  天空之城那个梗真的存在吗</blockquote>不管有没有 你心里觉得三字母乳了 那就是乳了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 74#       发表于 2020-2-26 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534666&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 18:04</a>
+云宫崎骏  天空之城那个梗真的存在吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+見ろ！人がゴミのようだ！
+我也是云的宫崎骏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搜了下原话是上面这样，推上搜ゴミのようだ也搜到很多用来形容某东西多的例子
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 75#       发表于 2020-2-26 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534823&amp;ptid=1915863" target="_blank">deadpoem 发表于 2020-2-26 18:17</a>
+有一说一，纯好奇，三字母的粉丝自称天狗不觉得恶心吗</blockquote>
+天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗还能吃月亮呢！<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 76#       发表于 2020-2-26 18:19
+
+
+
+
+再简单点，
+
+垃圾转卖７７４，放鸽口嗨惠方卷。
+
+拜金恨宅骂金主，粉丝自嗨变饭圈。
+
+
+天下武功，万变不离其宗。无坚不破，唯快不破。
+
+熟读此绝句，打遍天下无敌手。
+
+
+然而并没有卵用，其实天狗还是对数子比较敏感，特别是拿她去给大天使舔鞋的时候。
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 77#       发表于 2020-2-26 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534638&amp;ptid=1915863" target="_blank">嵐ステリ 发表于 2020-2-26 18:02</a>
+
+你们anti我是支持的，但是别整天重复那些裹脚布来点有新意好不好，我看这次舞元是个好切入点但不够深入[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 从manaena毕业分析原p家  当初在人家咖喱搞破坏，毕业直播不来一下吗
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 78#       发表于 2020-2-26 18:20
+
+
+
+
+来晚了，有无新乐子<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 79#       发表于 2020-2-26 18:20
+
+
+
+
+你楼云宫崎骏的也太多了，活该滚出漫区
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 80#       发表于 2020-2-26 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534847&amp;ptid=1915863" target="_blank">⑨个饼干 发表于 2020-2-26 18:19</a>
+再简单点，
+
+垃圾转卖７７４，放鸽口嗨惠方卷。
+
+拜金恨宅骂金主，粉丝自嗨变饭圈。</blockquote>
+md一边拜金一边骂金主是不是有点精神分裂
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 81#       发表于 2020-2-26 18:22
+
+
+
+
+宫老爷的俺就看过千与千寻<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 82#       发表于 2020-2-26 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534880&amp;ptid=1915863" target="_blank">weiweiEX 发表于 2020-2-26 18:22</a>
+
+md一边拜金一边骂金主是不是有点精神分裂</blockquote>
+她不就是这么干的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 83#       发表于 2020-2-26 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534844&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 18:19</a>
+
+天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天狗怎么了？天 ...</blockquote>
+异议，神乐小姐是日本人，这个天狗应该是指的鼻子贼长那种，不是指的哮天犬
+
+
+
+
+
+
+
+-----
+
+####  jesperliu  
+##### 84#       发表于 2020-2-26 18:26
+
+
+
+
+有一说一，mea有一万个不对，都只是简单的人品问题。
+真正对不起天下人的大奸大恶是其早期对湊阿库娅的崛起和危害性缺乏认识，纵容甚至帮助了阿库娅的崛起，导致hololive超越2434，2434为了顶住压力只能在这个时候硬开live，使得日本，东亚三国甚至全世界陷入更大的公共卫生危机。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 85#       发表于 2020-2-26 18:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/26/182635nzicc27i74r76jbu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20190807110825.png</strong> (414.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-26 18:26 上传
+
+
+
+
+
+看世界观的，可以是人形的。
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 86#       发表于 2020-2-26 18:29
+
+
+
+
+说得好像天狗是什么不好听的词汇似的，这可是日本三大妖怪之一哎，有什么好不好意思的。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 87#       发表于 2020-2-26 18:31
+
+
+
+
+tc突击，来搜集黑料
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 88#       发表于 2020-2-26 18:32
+
+
+
+
+@全体Anti，TC突
+[https://twitcasting.tv/kaguramea_vov](https://twitcasting.tv/kaguramea_vov)
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 89#       发表于 2020-2-26 18:32
+
+
+
+
+有无类暗带佐实时翻译，搞点黑料
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 90#       发表于 2020-2-26 18:33
+
+
+
+
+拜金和骂金主不矛盾啊，喜欢的是钱，没说喜欢有钱的人，这才是最纯粹的拜金主义和资本主义啊
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 91#       发表于 2020-2-26 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535009&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 18:32</a>
+
+有无类暗带佐实时翻译，搞点黑料</blockquote>
+可惜V版全员N114514，懂日语的都转进S3了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 92#       发表于 2020-2-26 18:34
+
+
+
+
+看这楼也能不错过突击，可以常驻了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 93#       发表于 2020-2-26 18:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">太好了，每天都能学到新的anti姿势
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 94#       发表于 2020-2-26 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534823&amp;ptid=1915863" target="_blank">deadpoem 发表于 2020-2-26 18:17</a>
+
+有一说一，纯好奇，三字母的粉丝自称天狗不觉得恶心吗</blockquote>
+旁人看了会恶心，粉丝一般都自得其乐，现在留下来的都是铁粉了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 95#       发表于 2020-2-26 18:39
+
+
+
+
+有一说一，我也觉得恶心。
+
+
+
+
+
+
+
+-----
+
+####  猫狐  
+##### 96#       发表于 2020-2-26 18:40
+
+
+
+
+主播是复读机吗，为什么只会说一句话？
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 97#       发表于 2020-2-26 18:41
+
+
+
+
+有一说一，圈外人看到天狗，第一反应应该是天狗食月，懂点热本的人还可能知道是热本的妖怪，谁管你引申义<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 98#       发表于 2020-2-26 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不是姬海棠吗？
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 99#       发表于 2020-2-26 18:42
+
+
+
+
+在我上网课的时候突击，anti了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 100#       发表于 2020-2-26 18:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你不想要gachi就不要这样养gachi好吗
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 101#       发表于 2020-2-26 18:45
+
+
+
+
+黑点就是
+
+本来TC混不下去的底边小主播硬是让一堆吃饱了撑的的人二次加工以后在睿站变成爆款
+
+被迫变成风口上的猪
+
+然而本身水平还是TC小主播，所以德不配位弄出很多事让粉丝或路人反响比较大
+
+所以建议一转黑屁字幕组
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 102#       发表于 2020-2-26 18:46
+
+
+
+
+主播直播憋💩好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 103#       发表于 2020-2-26 18:46
+
+
+
+ 本帖最后由 3353764798 于 2020-2-26 18:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534924&amp;ptid=1915863" target="_blank">jesperliu 发表于 2020-02-26 18:26:23</a>
+
+有一说一，mea有一万个不对，都只是简单的人品问题。
+
+真正对不起天下人的大奸大恶是其早期对湊阿库娅的崛起 ...</blockquote>
+这就是蝴蝶效应吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 104#       发表于 2020-2-26 18:46
+
+
+
+
+  你这隐晦攻击夸皇，小心一年嗷
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 105#       发表于 2020-2-26 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534880&amp;ptid=1915863" target="_blank">weiweiEX 发表于 2020-2-26 18:22</a>
+
+md一边拜金一边骂金主是不是有点精神分裂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个说法 又当又立不就没违和了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 106#       发表于 2020-2-26 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535150&amp;ptid=1915863" target="_blank">诶呦我去这是哪 发表于 2020-2-26 18:45</a>
+
+黑点就是
+
+本来TC混不下去的底边小主播硬是让一堆吃饱了撑的的人二次加工以后在睿站变成爆款
+
+被迫变成风口上 ...</blockquote>
+在，为什么黑屁所有企业势
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 107#       发表于 2020-2-26 18:48
+
+
+
+
+哦对，忘记黑屁字幕组了，最近更流行这个。
+
+有一天，某个彩虹人看完了舞元联动，禁不住痛斥字幕组把一个整活带师包装成了一个只会养gachi的five，他的言语激昂中带着悲愤，让我都忍不住共情了。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 108#       发表于 2020-2-26 18:51
+
+
+
+
+气冷抖<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">洗屁股为什么不带着手机去
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 109#       发表于 2020-2-26 18:54
+
+
+
+
+梦回2018
+
+“把东京奥运会搞没的人找到了@带带卡古拉”
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 110#       发表于 2020-2-26 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">过气主播也配开个粉黑楼吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 111#       发表于 2020-2-26 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535193&amp;ptid=1915863" target="_blank">⑨个饼干 发表于 2020-2-26 18:48</a>
+哦对，忘记黑屁字幕组了，最近更流行这个。
+
+有一天，某个彩虹人看完了舞元联动，禁不住痛斥字幕组把一个整 ...</blockquote>
+草，怎么感觉咱看的同一个
+
+
+
+
+
+
+
+-----
+
+####  献给亲爱的世界  
+##### 112#       发表于 2020-2-26 18:56
+
+
+
+
+楼里有没有anti帮忙做下翻译啊，听都听不懂我怎么找黑料啊？
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 113#       发表于 2020-2-26 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535284&amp;ptid=1915863" target="_blank">献给亲爱的世界 发表于 2020-02-26 18:56:16</a>
+楼里有没有anti帮忙做下翻译啊，听都听不懂我怎么找黑料啊？</blockquote>不是有工具人字幕组吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等熟肉
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  诶呦我去这是哪  
+##### 114#       发表于 2020-2-26 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535186&amp;ptid=1915863" target="_blank">素人不相识 发表于 2020-2-26 18:48</a>
+
+在，为什么黑屁所有企业势</blockquote>
+企业势也是被企业吹上去的
+
+然而企业势有经纪人帮着掌控路线
+
+字幕组吹上去了，还敢掌控就是云P
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 115#       发表于 2020-2-26 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46534516&amp;ptid=1915863" target="_blank">好德我基 发表于 2020-2-26 17:50</a>
+
+平时喊别人debu喊得欢，被观众喊debu就气得受不了
+
+垃圾这个翻译一点问题都没有的，别拿天空之城挡刀了 ...</blockquote>
+有一说一，当时太君们的弹幕好多还是“不要叫垃圾（gomi）哦 好过分”，结果让舔狗们完美洗成了天空之城。
+
+怀念舔狗还有那么强控评力的时代。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 116#       发表于 2020-2-26 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535368&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 19:04</a>
+
+有一说一，当时太君们的弹幕好多还是“不要叫垃圾（gomi）哦 好过分”，结果让舔狗们完美洗成了天空之城 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 舔狗废垃不堪 都掉到26名了 救救v版
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 117#       发表于 2020-2-26 19:10
+
+
+
+
+天狗费拉不堪，meaanti也是，暗大佐之后还有没有火龙型anti啦
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 118#       发表于 2020-2-26 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535368&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 19:04</a>
+有一说一，当时太君们的弹幕好多还是“不要叫垃圾（gomi）哦 好过分”，结果让舔狗们完美洗成了天空之城 ...</blockquote>
+草，那大福打麻将时还有好多太君喊中国人激怒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 119#       发表于 2020-2-26 19:15
+
+
+
+
+来点大福黑料？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 120#       发表于 2020-2-26 19:18
+
+
+
+
+带福的就先别说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 121#       发表于 2020-2-26 19:18
+
+
+
+
+你一旦攻击三酱，天狗就要把大福拖下水，夸或赢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 122#       发表于 2020-2-26 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要你的黑料成了爱讨论，你在S1就是无敌的
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 123#       发表于 2020-2-26 19:23
+
+
+
+
+太难看了 动不动就拉其他V下水  你们是天狗还是鱿鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 整个V圈只有三酱有黑料  别要其他人的了 三酱就是此世之恶 打倒三酱就能换来百年和平
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 124#       发表于 2020-2-26 19:24
+
+
+
+
+所以说没有黑料更不会有黑料的夸皇是立于不败之地的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 125#       发表于 2020-2-26 19:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我不是我没有啊，我只是说观众的反应而已
+
+
+
+
+
+
+
+-----
+
+####  献给亲爱的世界  
+##### 126#       发表于 2020-2-26 19:31
+
+
+
+
+刚来s1不久，看各位的反应爱讨论是指政治相关的话题吗？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 127#       发表于 2020-2-26 19:32
+
+
+
+
+天狗这么喜欢当鱿鱼，建议你楼改名阿夸前女友们anti楼，保证流量翻番
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 128#       发表于 2020-2-26 19:45
+
+
+
+
+你们这群人是干什么吃的？v版的繁荣娼盛就指望着你们了，倒是给点力啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+谨防和平演变成第二栋m楼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 129#       发表于 2020-2-26 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535617&amp;ptid=1915863" target="_blank">献给亲爱的世界 发表于 2020-2-26 19:31</a>
+
+刚来s1不久，看各位的反应爱讨论是指政治相关的话题吗？</blockquote>
+差不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 130#       发表于 2020-2-26 19:50
+
+
+
+
+实质M11
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 131#       发表于 2020-2-26 19:59
+
+
+
+
+不是M-1？
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 132#       发表于 2020-2-26 20:02
+
+
+
+
+anti楼都被天狗占领了，还能有点好戏吗？
+
+
+
+
+
+                                             
