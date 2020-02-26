@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-27 00:54** 
+> ## **本文件最后更新于2020-02-27 02:07** 
 
 
 
@@ -6570,10 +6570,11 @@ V版被天狗一手掌控的黑暗时代就此拉开序幕！ ...</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| skgaminger1988| + 1|欢乐多|
 | zilch_ren| + 1|好评加鹅|
 
 
@@ -6816,10 +6817,32 @@ syl这楼是不是该改名叫vtuber凑阿库娅和及其crew的anti楼<img src=
 
 
 
+ 本帖最后由 Igarashi 于 2020-2-27 01:09 编辑 
 
 难得爬一次5ch居然看到了三字母的新料，你们听听这里面那个女的是不是三酱？
-[https://www.youtube.com/watch?v=DErcTtpZP44&amp;t=95s](https://www.youtube.com/watch?v=DErcTtpZP44&amp;t=95s)
+[https://www.youtube.com/watch?v=soNEHf_USDU](https://www.youtube.com/watch?v=soNEHf_USDU)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Oshino57| + 1|md猎奇视频|
+| 笋狐|-1|假传情报，按律当塞（|
+| noaki|-1|smjb，tm大半夜的吓到我了|
+
+
+
+查看全部评分
 
 
 
@@ -6950,4 +6973,685 @@ crew，crew无处不在
 
 
 
-                                     
+
+
+-----
+
+####  qigeer  
+##### 388#       发表于 2020-2-27 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538814&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-27 00:50</a>
+难得爬一次5ch居然看到了三字母的新料，你们听听这里面那个女的是不是三酱？
+
+https://www.youtube.com/watc ...</blockquote>
+草，什么玩意好恶心
+哪有女人
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 389#       发表于 2020-2-27 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538797&amp;ptid=1915863" target="_blank">笋狐 发表于 2020-2-27 00:47</a>
+
+右边那个有过啥问题发言来着（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐一b博删了吗,没删的话可以翻回去慢慢看吧.
+
+印象深的,没穿胖次吸引了地铁乘客的目光感觉好爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mea硬不起来,凑阿夸的话倒是可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还有最乐的是:点赞到多少来着就出道,还有人zqsg写b博推荐,小姑娘不容易
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遛狗大师
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 390#       发表于 2020-2-27 00:55
+
+
+
+
+大半夜打开Ig那链接吓我一跳……
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 391#       发表于 2020-2-27 00:55
+
+
+
+
+为什么所有的黑屁最后都逃不过516774的轮回，谁来打破这个一成不变的世界。
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 392#       发表于 2020-2-27 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538871&amp;ptid=1915863" target="_blank">59268416 发表于 2020-2-27 00:55</a>
+
+为什么所有的黑屁最后都逃不过516774的轮回，谁来打破这个一成不变的世界。 ...</blockquote>
+天空之城天空之城天空之城天空之城口嗨口嗨口嗨口嗨迟到迟到迟到迟到
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 393#       发表于 2020-2-27 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538862&amp;ptid=1915863" target="_blank">zilch_ren 发表于 2020-2-27 00:54</a>
+
+乐一b博删了吗,没删的话可以翻回去慢慢看吧.
+
+印象深的,没穿胖次吸引了地铁乘客的目光感觉好爽[f:0 ...</blockquote>
+774真是乐死我了，巨魔程度比泥板所有巨魔加起来都高
+
+也就萌萌天狗像傻逼一样一边上供一边被狗男女钓鱼玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 394#       发表于 2020-2-27 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538814&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-27 00:50</a>
+
+难得爬一次5ch居然看到了三字母的新料，你们听听这里面那个女的是不是三酱？
+
+https://www.youtube.com/watc ...</blockquote>
+笑声有七分相似，不会真是吧？
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 395#       发表于 2020-2-27 00:58
+
+
+
+
+Chinese像垃 圾一样涌过来Chinese像垃 圾一样涌过来Chinese像垃 圾一样涌过来Chinese像垃 圾一样涌过来
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 396#       发表于 2020-2-27 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">手机上不了油管，是什么链接
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 397#       发表于 2020-2-27 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538898&amp;ptid=1915863" target="_blank">JY要塞 发表于 2020-2-27 00:59</a>
+手机上不了油管，是什么链接
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我点开是个谜之虫子的视频
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 398#       发表于 2020-2-27 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538800&amp;ptid=1915863" target="_blank">weiweiEX 发表于 2020-2-27 00:48</a>
+
+crew差点抢走nga最初的mea楼，还要抢走s1的meaanti楼？</blockquote>
+所以大家一起复读，守护住mea楼，不要让历史重演<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 感动
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 399#       发表于 2020-2-27 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538898&amp;ptid=1915863" target="_blank">JY要塞 发表于 2020-2-27 00:59</a>
+手机上不了油管，是什么链接
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+一串和脑虫一样恶心玩意的套娃
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 400#       发表于 2020-2-27 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538911&amp;ptid=1915863" target="_blank">Sutegoro 发表于 2020-2-27 01:01</a>
+所以大家一起复读，守护住mea楼，不要让历史重演 感动</blockquote>
+现在不就御敌于国门之外了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyren  
+##### 401#       发表于 2020-2-27 01:04
+
+
+
+
+以后要再细分几个楼了：
+
+踩三吹夸楼
+
+踩夸吹三楼
+
+踩三踩夸楼
+
+吹三吹夸楼
+
+纯踩三楼
+
+纯踩夸楼
+
+纯吹三楼
+
+纯吹夸楼
+
+（应该差不多了吧）
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 402#       发表于 2020-2-27 01:04
+
+
+
+
+呜呜呜明明我们crew的主还在向我们传达天堂之音，你们却在这里说p话，小心我们的主把你们的复活甲都给扬了嗷
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 403#       发表于 2020-2-27 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538918&amp;ptid=1915863" target="_blank">qigeer 发表于 2020-02-27 01:02:26</a>
+一串和脑虫一样恶心玩意的套娃</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">发恶心视频能算被塞的理由吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 404#       发表于 2020-2-27 01:10
+
+
+
+
+草，复制错链接了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的我的，第一遍没粘上
+
+
+
+
+
+
+
+-----
+
+####  Motoi  
+##### 405#       发表于 2020-2-27 01:12
+
+
+
+
+这是新的贴贴楼吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 406#       发表于 2020-2-27 01:13
+
+
+
+
+其实还有吹三（夸）踩整个业界楼
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 407#       发表于 2020-2-27 01:15
+
+
+
+
+原来你平时都看这些视频
+精神强韧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 408#       发表于 2020-2-27 01:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果大火实在没活，又想要流量，可以把meaqua楼那个774的发言搬过来，再演一遍
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 409#       发表于 2020-2-27 01:16
+
+
+
+ 本帖最后由 笋狐 于 2020-2-27 01:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538986&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-27 01:10</a>
+
+草，复制错链接了我的我的，第一遍没粘上</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兄啊，你平时都在看什么啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">smjb，这不就是那个傻之逼露大腿叫妈的那个？锤子的新料
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 410#       发表于 2020-2-27 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539039&amp;ptid=1915863" target="_blank">笋狐 发表于 2020-2-27 01:16</a>
+
+兄啊，你平时都在看什么啊
+
+
+smjb，这不就是那个傻之逼露大腿叫妈的那个？锤子的新料 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看 这就上钩了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 411#       发表于 2020-2-27 01:20
+
+
+
+
+没啥，巨魔化之后的一点小爱好而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 412#       发表于 2020-2-27 01:21
+
+
+
+
+车轱辘都滚不动了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yyren  
+##### 413#       发表于 2020-2-27 01:21
+
+
+
+
+其实我还蛮想看774详细历史的，有没有传送门。。。
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 414#       发表于 2020-2-27 01:22
+
+
+
+
+自己翻乐一5.16前的b博，他的推基本都翻译了的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 415#       发表于 2020-2-27 01:23
+
+
+
+
+乐一的动态应该有，虽然不是现在进行时完全体会不到当初那种氛围就是了（
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 416#       发表于 2020-2-27 01:24
+
+
+
+ 本帖最后由 Cuppco 于 2020-2-27 01:29 编辑 
+
+草，合着就是露腿的前面部分啊神他妈
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 417#       发表于 2020-2-27 01:24
+
+
+
+
+回不到当年和774欢乐扯皮的时间了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 418#       发表于 2020-2-27 01:25
+
+
+
+
+“往前翻翻”
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 419#       发表于 2020-2-27 01:29
+
+
+
+
+没点链接，是小爱的那段妈妈叫？这段b站不是都烂大街了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 420#       发表于 2020-2-27 01:31
+
+
+
+
+ig你行不行啊
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 421#       发表于 2020-2-27 01:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ig的目的达到了，一下多了这么多楼
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 422#       发表于 2020-2-27 01:35
+
+
+
+ 本帖最后由 skgaminger1988 于 2020-2-27 01:36 编辑 
+
+好久没新活了 mea也好 aqua也好 holo也好 2434也好 能不能每半个月整点隐退级的新活 这样下去 vtuber还有什么意义 推s1还有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 423#       发表于 2020-2-27 01:38
+
+
+
+
+其实我是想用这段视频吓唬人来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">：
+<strong>慎入</strong>：[https://www.youtube.com/watch?v=DErcTtpZP44](https://www.youtube.com/watch?v=DErcTtpZP44)
+
+只是想增加点流量而已，其实我觉得这视频看久了还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  花泽冒菜  
+##### 424#       发表于 2020-2-27 01:38
+
+
+
+
+拿516774黑屁mea就nm离谱，拿这事只能黑屁现在还在舔的天狗，根本没法黑屁mea吧
+
+黑屁mea终究还是得拿人品和情商说事
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 425#       发表于 2020-2-27 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539165&amp;ptid=1915863" target="_blank">skgaminger1988 发表于 2020-2-27 01:35</a>
+
+好久没新活了 mea也好 aqua也好 holo也好 2434也好 能不能每半个月整点隐退级的新活 这样下去 vtuber还有什 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
