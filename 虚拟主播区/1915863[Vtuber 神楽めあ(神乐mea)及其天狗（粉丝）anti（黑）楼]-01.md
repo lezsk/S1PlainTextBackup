@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-26 22:08** 
+> ## **本文件最后更新于2020-02-27 00:07** 
 
 
 
@@ -1531,6 +1531,27 @@ md一边拜金一边骂金主是不是有点精神分裂</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 德里达幽灵| + 1|思路广|
+| ❃✽✾✶✻✼| + 1|是这个理|
+| plazum| + 1|思路广|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1607,6 +1628,25 @@ tc突击，来搜集黑料
 @全体Anti，TC突
 [https://twitcasting.tv/kaguramea_vov](https://twitcasting.tv/kaguramea_vov)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plazum| + 1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -1830,6 +1870,25 @@ tc突击，来搜集黑料
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plazum| + 1|拨乱反正|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1901,6 +1960,25 @@ tc突击，来搜集黑料
 md一边拜金一边骂金主是不是有点精神分裂</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个说法 又当又立不就没违和了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plazum| + 1|没毛病|
+
+
+
+查看全部评分
 
 
 
@@ -3208,4 +3286,2872 @@ emmmm，这个我认真回答一下，所有在bilibili直播的Vtuber的直播�
 
 
 
-                                            
+
+
+-----
+
+####  harry3  
+##### 179#       发表于 2020-2-26 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536866&amp;ptid=1915863" target="_blank">献给亲爱的世界 发表于 2020-2-26 21:37</a>
+
+emmmm，这个我认真回答一下，所有在bilibili直播的Vtuber的直播申请全都是字幕组的人去办的，所以不管哪 ...</blockquote>
+申请人成年就不存在未成年直播了？
+
+建议举报<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 180#       发表于 2020-2-26 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537177&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-02-26 22:08:33</a>
+这三字母怎么听起来这么病娇啊</blockquote>不是为了贴贴而贴贴 是为了吸大亏的血而贴贴  何来病娇一说<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  献给亲爱的世界  
+##### 181#       发表于 2020-2-26 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537185&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 22:09</a>
+
+申请人成年就不存在未成年直播了？
+
+建议举报</blockquote>
+虽然不知道你是不是认真的....但事实是确实不违法，举报了也不会管，各个直播平台都是这样的，只要成年人上传过**，未成年人使用这个这个频道直播是不违法的
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 182#       发表于 2020-2-26 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535095&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 18:41</a>
+
+有一说一，圈外人看到天狗，第一反应应该是天狗食月，懂点热本的人还可能知道是热本的妖怪，谁管你引申义[f ...</blockquote>
+正解
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 183#       发表于 2020-2-26 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46535095&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 18:41</a>
+
+有一说一，圈外人看到天狗，第一反应应该是天狗食月，懂点热本的人还可能知道是热本的妖怪，谁管你引申义[f ...</blockquote>
+舔狗自称热本的妖怪，建议都打成精日
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 184#       发表于 2020-2-26 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537243&amp;ptid=1915863" target="_blank">献给亲爱的世界 发表于 2020-2-26 22:15</a>
+
+虽然不知道你是不是认真的....但事实是确实不违法，举报了也不会管，各个直播平台都是这样的，只要成年人 ...</blockquote>
+...不用太认真对待， 会被钓鱼的
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 185#       发表于 2020-2-26 22:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">天天车轱辘发霉的黑料怎么能打倒三字母。应该时刻观摩直播找出新的黑点才行啊。
+
+
+
+
+
+
+
+-----
+
+####  绿茶与猫  
+##### 186#       发表于 2020-2-26 22:22
+
+
+
+
+都是没几个anti，小心版主给你合并到m楼去，我来补充一个，经常半夜突击，打乱国人生物钟。作为受害者之一，我现在经常失眠
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 187#       发表于 2020-2-26 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">多久没半夜突击了，我怀疑你是crew，被夸熬伤了来mea这里碰瓷
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 188#       发表于 2020-2-26 22:25
+
+
+
+ 本帖最后由 stageKK 于 2020-2-26 22:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537281&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 22:18</a>
+
+舔狗自称热本的妖怪，建议都打成精日</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  可防可控  
+##### 189#       发表于 2020-2-26 22:26
+
+
+
+
+好看
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 190#       发表于 2020-2-26 22:27
+
+
+
+
+IG什么时候基过德了？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 191#       发表于 2020-2-26 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536413&amp;ptid=1915863" target="_blank">rubinliu 发表于 2020-2-26 20:52</a>
+
+跟TD分子DWU有过联动
+
+三字母一定也是TD分子</blockquote>
+DWU是TD吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 192#       发表于 2020-2-26 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537281&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 22:18</a>
+舔狗自称热本的妖怪，建议都打成精日</blockquote>
+天狗中国没有么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 193#       发表于 2020-2-26 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536413&amp;ptid=1915863" target="_blank">rubinliu 发表于 2020-2-26 20:52</a>
+
+跟TD分子DWU有过联动
+
+三字母一定也是TD分子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">DWU虽然屁股不对，但是不对的方向不是TD是哥潭，她新年第二条推就把中国台湾省明确说出来了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 194#       发表于 2020-2-26 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537383&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:28</a>
+DWU是TD吗</blockquote>
+不知道，成分不明，具体就不说了，有能力的可以去看看一条关于哥谭的推，还有一个要去4v省旅游的推
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 195#       发表于 2020-2-26 22:30
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-2-26 22:39 编辑 
+
+补充一下黑点： 
+
+
+1. 不喜欢洗澡
+
+2. 不喜欢刷牙， 有口臭， 蛀牙
+
+3. 喜欢no bra， 连出门也是no bra， 显然是有特殊性癖， 是碧池
+
+4. 拉稀， 浪费纸
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 196#       发表于 2020-2-26 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537402&amp;ptid=1915863" target="_blank">魔法使い2019 发表于 2020-2-26 22:30</a>
+补充一下黑点： 
+
+
+1. 不喜欢洗澡</blockquote>
+再加一点，喜欢拉稀<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 197#       发表于 2020-2-26 22:31
+
+
+
+
+这一开暴露了不少云anti和云看播的，好活！好活！
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 198#       发表于 2020-2-26 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536523&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 21:04</a>
+
+三酱关于自己对别人的暴言只道过一次歉，那家现在已经炸了</blockquote>
+草，那什么时候给彩虹就恵方巻道个歉呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 199#       发表于 2020-2-26 22:32
+
+
+
+
+还有一点，出门有时候不戴bra，有辱风俗罪大恶极。
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 200#       发表于 2020-2-26 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46536562&amp;ptid=1915863" target="_blank">Nichtig 发表于 2020-2-26 21:07</a>
+
+本退坑回踩人欢喜
+
+三字母三字母三字母三字母三字母三字母
+
+舒服了先留一楼，有点新想法再来 ...</blockquote>
+萌到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 201#       发表于 2020-2-26 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537399&amp;ptid=1915863" target="_blank">JY要塞 发表于 2020-2-26 22:30</a>
+
+DWU虽然屁股不对，但是不对的方向不是TD是哥潭，她新年第二条推就把中国台湾省明确说出来了 ...</blockquote>
+随便辣，反正先扣了帽子再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 202#       发表于 2020-2-26 22:33
+
+
+
+
+惠方卷来个号呗，想再看一遍了，属实好活<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 203#       发表于 2020-2-26 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537414&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:31</a>
+
+草，那什么时候给彩虹就恵方巻道个歉呗</blockquote>
+然后菜姨和柴卡就分了？菜姨都ビリビリ了，饶了菜姨吧
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 204#       发表于 2020-2-26 22:33
+
+
+
+
+惠方卷道个几把谦虚，小红帽吃的津津有味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 205#       发表于 2020-2-26 22:34
+
+
+
+
+井皇最后的人血馒头直播叫三酱发来了录像  三酱笑得特别开心   太无情了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 206#       发表于 2020-2-26 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537386&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:28</a>
+
+天狗中国没有么？我说了中国人第一反应是天狗食月啊，你上来直接忽略了我说的国人的第一反应，眼 ...</blockquote>
+舔狗设定是天狗山的舔狗啊，不是拆腻子的
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 207#       发表于 2020-2-26 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537452&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-26 22:34</a>
+舔狗设定是天狗山的舔狗啊，不是拆腻子的</blockquote>
+我也说了前提:“圈外人一听天狗的反应”，你问你爸妈，天狗是啥，你爸妈还能给你回答舔狗山上的舔狗不成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 208#       发表于 2020-2-26 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537446&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 22:34</a>
+
+井皇最后的人血馒头直播叫三酱发来了录像  三酱笑得特别开心   太无情了 两个后辈怎么说也是吃你的 ...</blockquote>
+所以看到天狗骂阿夸就觉得好笑，明明自己的主子也是个生性凉薄的家伙
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 209#       发表于 2020-2-26 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537153&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-26 22:05</a>
+
+我仔细分析 今晚杏的ark服务器崩坏可能是三酱一手操办的
+
+我们已知三酱早已对亏皇不满 两人渐行渐远 带天使 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">是时候学点黑客技术了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 210#       发表于 2020-2-26 22:38
+
+
+
+
+是无情人<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">幻灭了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 211#       发表于 2020-2-26 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537479&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 22:36</a>
+
+所以看到天狗骂阿夸就觉得好笑，明明自己的主子也是个生性凉薄的家伙</blockquote>
+饵太咸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 212#       发表于 2020-2-26 22:41
+
+
+
+<blockquote>rubinliu 发表于 2020-2-26 22:40
+饵太咸</blockquote>
+IG惯例
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 213#       发表于 2020-2-26 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537479&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 22:36</a>
+
+所以看到天狗骂阿夸就觉得好笑，明明自己的主子也是个生性凉薄的家伙</blockquote>
+都是无情人，所以才贴贴啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 214#       发表于 2020-2-26 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537472&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:36</a>
+
+我也说了前提:“圈外人一听天狗的反应”，你问你爸妈，天狗是啥，你爸妈还能给你回答舔狗山上的舔狗不成 ...</blockquote>
+没有舔狗山，是天狗山
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 215#       发表于 2020-2-26 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这已经不是天性凉薄了，这是幸灾乐祸，搞的两个人在引退回陪笑，看不下去
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 216#       发表于 2020-2-26 22:43
+
+
+
+
+看了下，贴数超过漫区了，大家再加油一下，kpi就达成了
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 217#       发表于 2020-2-26 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537400&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:30</a>
+
+不知道，成分不明，具体就不说了，有能力的可以去看看一条关于哥谭的推，还有一个要去4v省旅游的推 ...</blockquote>
+哦……
+
+话说顺便问一句，佐久間眠相关讨论里的“哥谭人”是什么意思啊
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 218#       发表于 2020-2-26 22:44
+
+
+
+
+天狗山这叫法算是传歪了的，实际上叫妖怪之山，neta自车万
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 219#       发表于 2020-2-26 22:45
+
+
+
+ 本帖最后由 肚子疼了 于 2020-2-26 22:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537549&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:43</a>
+
+哦……
+
+话说顺便问一句，佐久間眠相关讨论里的“哥谭人”是什么意思啊</blockquote>
+知道就好
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 220#       发表于 2020-2-26 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537437&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 22:33</a>
+
+然后菜姨和柴卡就分了？菜姨都ビリビリ了，饶了菜姨吧</blockquote>
+我的意思是让彩虹也炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 221#       发表于 2020-2-26 22:45
+
+
+
+
+……
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 222#       发表于 2020-2-26 22:46
+
+
+
+ 本帖最后由 plazum 于 2020-2-26 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537563&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-2-26 22:45</a>
+
+编辑</blockquote>
+哦……
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 223#       发表于 2020-2-26 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537402&amp;ptid=1915863" target="_blank">魔法使い2019 发表于 2020-2-26 22:30</a>
+
+补充一下黑点： 
+
+
+1. 不喜欢洗澡</blockquote>
+yysy，就我个人经验而言，拉稀用的纸比正常时少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 224#       发表于 2020-2-26 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537572&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:46</a>
+
+哦……</blockquote>
+回复建议编辑，爱讨论警告
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 225#       发表于 2020-2-26 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537549&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:43</a>
+
+哦……
+
+话说顺便问一句，佐久間眠相关讨论里的“哥谭人”是什么意思啊</blockquote>
+知道了就行了
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 226#       发表于 2020-2-26 22:49
+
+
+
+
+爬完楼了
+
+身为一名伪anti，我也没啥诉求，只希望阿麻能快点去给蓝莓透<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 227#       发表于 2020-2-26 22:50
+
+
+
+
+草，蓝莓是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">又出来一个野男人
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 228#       发表于 2020-2-26 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537583&amp;ptid=1915863" target="_blank">素人不相识 发表于 2020-2-26 22:47</a>
+
+yysy，就我个人经验而言，拉稀用的纸比正常时少</blockquote>
+那长时间占用厕所也是罪大恶极， 特别是在公厕
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 229#       发表于 2020-2-26 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537602&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:50</a>
+草，蓝莓是谁啊又出来一个野男人</blockquote>
+蓝莓是星乃mea，不是男人啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 230#       发表于 2020-2-26 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537602&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:50</a>
+
+草，蓝莓是谁啊又出来一个野男人</blockquote>
+蓝mea
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 231#       发表于 2020-2-26 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537566&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-26 22:45</a>
+
+我的意思是让彩虹也炸啊</blockquote>
+彩虹炸了两级格局就没了，难道要大火一起讨论木口带家庭吗，那样你区争四必败了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 232#       发表于 2020-2-26 22:52
+
+
+
+
+是野女人啊喂
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 233#       发表于 2020-2-26 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537623&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-26 22:51</a>
+
+彩虹炸了两级格局就没了，难道要大火一起讨论木口带家庭吗，那样你区争四必败了 ...</blockquote>
+不不不我对木口也没什么兴趣，本来想一起炸的，只不过想不到mea有什么好给木口道歉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 234#       发表于 2020-2-26 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537602&amp;ptid=1915863" target="_blank">SNOWIMEA 发表于 2020-2-26 22:50</a>
+
+草，蓝莓是谁啊又出来一个野男人</blockquote>
+是[https://bbs.saraba1st.com/2b/thread-1914434-1-1.html](https://bbs.saraba1st.com/2b/thread-1914434-1-1.html)<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 235#       发表于 2020-2-26 23:00
+
+
+
+
+麻烦你们舔狗被黑少带上夸，真的恶心，anti楼都要带上夸真的恶心，三字母黑点数的清吗
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 236#       发表于 2020-2-26 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 237#       发表于 2020-2-26 23:03
+
+
+
+
+不围夸救咩怎么办啊  那么多黑料<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">连官组的人都被气走了好几个
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 238#       发表于 2020-2-26 23:03
+
+
+
+
+是真的crew🐴
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 239#       发表于 2020-2-26 23:04
+
+
+
+
+问题：求mea黑点的势？
+
+A.等势于自然数n
+
+B.等势于正整数集
+
+C.等势于实数集
+
+D.不可达基数
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 240#       发表于 2020-2-26 23:07
+
+
+
+
+神经病，没人知道该怎么黑的anti楼不黑别人难道用前面的打油诗车轱辘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 241#       发表于 2020-2-26 23:08
+
+
+
+
+第一次看这论坛，有些舔狗言论也是搞笑，516帮三字母解围也能叫蹭热度就nm离谱，跟野男人同居不够丢人？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞|-1|吃人血馒头的确不是蹭热度哦？.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 242#       发表于 2020-2-26 23:08
+
+
+
+
+夸楼都nm舔狗发的rz玩意
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 243#       发表于 2020-2-26 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">你版救星来了，还有一个小时，能不能超越游戏区成为第二，让我们拭目以待
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 244#       发表于 2020-2-26 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ig别送5块钱了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 245#       发表于 2020-2-26 23:09
+
+
+
+
+那叫蹭热度吗，那叫吃人血馒头
+建议带哥了解一下饭圈文化在过来，不然就是丢人。
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 246#       发表于 2020-2-26 23:10
+
+
+
+
+现在想想也是好笑，三字母刚在B站火的时候外号“带带小师妹“，靠着一系列和孙笑川虚空联动的视频火的不行，开通微博时孙笑川还关注了她，导致我一直把她当性转孙笑川来看。后来贴贴民兴起，带带小师妹一下子成了法兰西女皇，一帮舔狗天天自称“财布“以打钱为荣，我要是樱花妹也肯定会觉得这帮舔狗真恶心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 247#       发表于 2020-2-26 23:10
+
+
+
+
+你怕不是版主派来带流量的，我不能上你的当<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 248#       发表于 2020-2-26 23:11
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 249#       发表于 2020-2-26 23:11
+
+
+
+
+这不会真又有人信是纯良人8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl      猜猜是谁的小号呢       <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 250#       发表于 2020-2-26 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当你发出不能上当的时候，版主的目的已经达到了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 251#       发表于 2020-2-26 23:11
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-2-26 23:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537802&amp;ptid=1915863" target="_blank">deadpoem 发表于 2020-2-26 23:10</a>
+现在想想也是好笑，三字母刚在B站火的时候外号“带带小师妹“，靠着一系列和孙笑川虚空联动的视频火的不行 ...</blockquote>
+那是当然的比不上大亏碰瓷秦皇，整天rua来rua去，肯定是石桑在床头教的吧。
+syl，就带带小师妹这名声，就你家带天使也恬不知耻地往上凑，看来也不是啥好人哦
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 252#       发表于 2020-2-26 23:14
+
+
+
+
+三字母蹭孙笑川热度才是真的，简直侮辱孙笑川
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 253#       发表于 2020-2-26 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537782&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:08</a>
+
+夸楼都nm舔狗发的rz玩意</blockquote>
+为什么骂我们夸楼crew是rz舔狗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 254#       发表于 2020-2-26 23:15
+
+
+
+
+看来日本确实是川桑的故乡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被一个樱花妹隔空蹭热度
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 255#       发表于 2020-2-26 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">哈哈，crew舔狗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 256#       发表于 2020-2-26 23:17
+
+
+
+
+夸楼ig反串电鱼之后我把所有疑似流量号全默认为ig小号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 257#       发表于 2020-2-26 23:18
+
+
+
+ 本帖最后由 Rem-清曲 于 2020-2-26 23:19 编辑 
+
+ig那么久没在v版发言，而这时候来了一个纯良人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">syl  激情自演为那么点流量值得么
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 258#       发表于 2020-2-26 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">是ig内心的善
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 259#       发表于 2020-2-26 23:21
+
+
+
+
+此时，一个正义感爆棚的纯良crew经过...
+
+
+
+
+
+
+
+-----
+
+####  五十岚萤  
+##### 260#       发表于 2020-2-26 23:21
+
+
+
+
+ig给VTB一共才打过6块钱，而S1不知道有多少个号，实属S1单推壬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 261#       发表于 2020-2-26 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v版定制周边：写着ig vs漫区的T恤可以安排上了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 262#       发表于 2020-2-26 23:22
+
+
+
+
+劳资15年注册居然有人说是小号，头一次来v板而已，我就怀疑了这论坛舔狗怎么也这么多？
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 263#       发表于 2020-2-26 23:24
+
+
+
+
+可能舔狗都有喜欢聚在一起互相给对方喂屎吃的本性 吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 264#       发表于 2020-2-26 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">15年很老？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 265#       发表于 2020-2-26 23:25
+
+
+
+
+还nm拿夸做文章，就不说你三字母单方面蹭了多少次夸的热度，三字母黑点比夸多一百倍舔狗真不知道？
+
+
+
+
+
+
+
+-----
+
+####  deadpoem  
+##### 266#       发表于 2020-2-26 23:26
+
+
+
+
+这楼明明写着anti楼，别不允许anit啊，我只是作为纯路人对一些对三字母女士粉丝的转变感到好奇，尤其最火的时候隔壁天狗，天天扭曲发情，财布财布的自称，人家樱花妹不会觉得不安吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 267#       发表于 2020-2-26 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537930&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:22</a>
+
+劳资15年注册居然有人说是小号，头一次来v板而已，我就怀疑了这论坛舔狗怎么也这么多？ ...</blockquote>
+来多了就好，常做客
+
+人总是要离开自己的认知舒适区去听听别的观点嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 268#       发表于 2020-2-26 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46537971&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:25</a>
+还nm拿夸做文章，就不说你三字母单方面蹭了多少次夸的热度，三字母黑点比夸多一百倍舔狗真不知道？ ...</blockquote>
+长达5年的童贞就这么一下子被打破了吗
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 269#       发表于 2020-2-26 23:27
+
+
+
+<blockquote>素人不相识 发表于 2020-2-26 23:26
+来多了就好，常做客
+
+人总是要离开自己的认知舒适区去听听别的观点嘛 ...</blockquote>
+哪里有别的观点，哪个论坛不是一群舔狗
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 270#       发表于 2020-2-26 23:28
+
+
+
+
+舔狗想舔还管主人是什么心情吗？满足自己的欲望不是第一位的吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 271#       发表于 2020-2-26 23:28
+
+
+
+
+mea今天死了吗
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 272#       发表于 2020-2-26 23:28
+
+
+
+ 本帖最后由 豆芽123 于 2020-2-26 23:33 编辑 
+
+电鱼是犯法的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">crew这么好用 我都想自称了
+
+我们其中有一个人是crew<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 273#       发表于 2020-2-26 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么都自称crew，这不对啊
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 274#       发表于 2020-2-26 23:30
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 275#       发表于 2020-2-26 23:31
+
+
+
+
+ 我猜至少有一个是真crew
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 276#       发表于 2020-2-26 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大天使0黑点，那三字母比大天使黑点多一百倍岂不就
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 277#       发表于 2020-2-26 23:31
+
+
+
+
+《最后的crew》
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 278#       发表于 2020-2-26 23:32
+
+
+
+
+我可没这么多闲钱给泥潭嗷，不过刚注册的号和注册了好几年回复个位数的不是小号就怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 279#       发表于 2020-2-26 23:34
+
+
+
+
+你就不能先加1再乘100吗？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 280#       发表于 2020-2-26 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538070&amp;ptid=1915863" target="_blank">神圣天使书记官 发表于 2020-2-26 23:34</a>
+
+你就不能先加1再乘100吗？</blockquote>
+阿夸是没有黑点的，看你这个巨魔ID，我怀疑你在反串
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 281#       发表于 2020-2-26 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">傻逼crew就不知道装好萌萌二次元？非要出来蹦哒？夸皇的复活甲都要被你们消耗没了。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 282#       发表于 2020-2-26 23:37
+
+
+
+<blockquote>Igarashi 发表于 2020-2-26 22:36
+所以看到天狗骂阿夸就觉得好笑，明明自己的主子也是个生性凉薄的家伙</blockquote>
+516之后还能理三字母也叫薄凉？现在夸好不容易能和箱里人玩在一起，就这舔狗也要bb，简直有病
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 283#       发表于 2020-2-26 23:37
+
+
+
+
+语文不及格吗？是多一百倍舔狗，每个舔狗算一个黑点
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 284#       发表于 2020-2-26 23:37
+
+
+
+
+果然没有这栋楼总觉得少点味道<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 285#       发表于 2020-2-26 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538103&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-02-26 23:37:01</a>
+516之后还能理三字母也叫薄凉？现在夸好不容易能和箱里人玩在一起，就这舔狗也要bb，简直有病 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">住口，不许黑屁木口箱内关系，什么叫好不容易才一起玩，明明一开始就亲如一家
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 286#       发表于 2020-2-26 23:39
+
+
+
+
+一边疯狂说别人是舔狗，一边疯狂护住自己舔的天使，到底谁是舔狗我蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 287#       发表于 2020-2-26 23:39
+
+
+
+
+草，这是从微博圣亏皇超话请来的阴兵吗？用个成语装饰一下自己的B格好不好呀，除了倒垃圾话和瞎骂一无是处
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 288#       发表于 2020-2-26 23:40
+
+
+
+
+阿夸没有舔狗，我们都是正常人，只有三字母的粉丝才叫舔狗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 289#       发表于 2020-2-26 23:40
+
+
+
+
+带天使回箱那是在那参与团建吗，那是在那吸血，大亏独肥hololive瘦，叫我是yagoo肯定要敲打一番大天使。那股子骄傲和嚣张跋扈的味道都要溢出屏幕来了。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 290#       发表于 2020-2-26 23:40
+
+
+
+
+就你们舔狗对别人的态度，蹭你三字母热度有一点利益？阿夸有现在的成绩不都是靠勤奋和才华？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 291#       发表于 2020-2-26 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538103&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:37</a>
+
+516之后还能理三字母也叫薄凉？现在夸好不容易能和箱里人玩在一起，就这舔狗也要bb，简直有病 ...</blockquote>
+我又不是这么想的，是天狗这么想的，我的意思是即使以天狗的逻辑那三字母也不是啥好玩意，不知道哪儿来的脸整天叭叭阿夸
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 292#       发表于 2020-2-26 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 293#       发表于 2020-2-26 23:41
+
+
+
+
+确定不是反串哦，没吸到血搞什么b限贴贴啊。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 294#       发表于 2020-2-26 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你这么说这戏就演不下去了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 295#       发表于 2020-2-26 23:42
+
+
+
+
+草，真是微博饭圈人大家快跑！！！！！11111
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 296#       发表于 2020-2-26 23:42
+
+
+
+<blockquote>Igarashi 发表于 2020-2-26 23:40
+我又不是这么想的，是天狗这么想的，我的意思是即使以天狗的逻辑那三字母也不是啥好玩意，不知道哪儿来的 ...</blockquote>
+我也想知道哪来的脸，都丢人多少次了
+
+
+
+
+
+
+
+-----
+
+####  神圣天使书记官  
+##### 297#       发表于 2020-2-26 23:42
+
+
+
+
+这帮每天只会捧臭脚的舔狗到死也不会明白什么叫天道酬勤
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ⑨个饼干|-1|少侠请继续修炼|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 298#       发表于 2020-2-26 23:42
+
+
+
+
+ 勤奋和才华，确定了，是谁的小号，坦白吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 299#       发表于 2020-2-26 23:42
+
+
+
+
+我觉得是萨尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 300#       发表于 2020-2-26 23:42
+
+
+
+
+草笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 301#       发表于 2020-2-26 23:42
+
+
+
+
+怎么感觉是反串的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 302#       发表于 2020-2-26 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538175&amp;ptid=1915863" target="_blank">神圣天使书记官 发表于 2020-2-26 23:42</a>
+这帮每天只会捧臭脚的舔狗到死也不会明白什么叫天道酬勤</blockquote>
+你是最菜的那个，退坛吧
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 303#       发表于 2020-2-26 23:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 304#       发表于 2020-2-26 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538010&amp;ptid=1915863" target="_blank">colodes 发表于 2020-2-26 23:28</a>
+mea今天死了吗</blockquote>
+没死没死，最近蹭着holo彩虹anmr的热度，过的比之前还强一点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 305#       发表于 2020-2-26 23:43
+
+
+
+
+越看越像小号
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 306#       发表于 2020-2-26 23:43
+
+
+
+
+休战20分钟好吗，今天的流量够了，留给明天吧
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 307#       发表于 2020-2-26 23:44
+
+
+
+
+还是运起八鹅法吧，这几个脑瘫我看不过眼了。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 308#       发表于 2020-2-26 23:44
+
+
+
+
+不是小号就怪了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">能不能演的像一点啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 309#       发表于 2020-2-26 23:44
+
+
+
+
+不到20分钟了，肯定不是反串，加油啊！
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 310#       发表于 2020-2-26 23:44
+
+
+
+
+散了吧散了吧，纯小号，别演了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 311#       发表于 2020-2-26 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">八鹅法这里适用吗
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 312#       发表于 2020-2-26 23:45
+
+
+
+
+版主！你把一切都给毁了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 313#       发表于 2020-2-26 23:45
+
+
+
+
+还没到1500呢
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 314#       发表于 2020-2-26 23:45
+
+
+
+
+谁的流量业务需求啊，太急了啊，只能给一点了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 315#       发表于 2020-2-26 23:46
+
+
+
+
+各位冷静，游戏区打不过的，漫区已经无力回天了，季军已经入手，水力留到0点之后吧
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 316#       发表于 2020-2-26 23:46
+
+
+
+
+勤奋（有目共睹，比三字母勤奋百倍），才华（游戏力，一些小企划），哪点和三字母有关？真四处蹭热度就不会叫孤独传说，本箱的热度长时间不蹭去蹭个污点人士？搞笑
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 317#       发表于 2020-2-26 23:48
+
+
+
+
+这都不是内心阴暗的级别，也许只有这种人能当三字母舔狗吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 318#       发表于 2020-2-26 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538246&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:46</a>
+勤奋（有目共睹，比三字母勤奋百倍），才华（游戏力，一些小企划），哪点和三字母有关？真四处蹭热度就不会 ...</blockquote>
+#天道酬勤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 319#       发表于 2020-2-26 23:49
+
+
+
+
+扯啥都行，扯啥勤奋啊，你看，鱼跑了吧
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 320#       发表于 2020-2-26 23:49
+
+
+
+
+给个群号呗，有钱大家一起赚
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 321#       发表于 2020-2-26 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538246&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-26 23:46</a>
+勤奋（有目共睹，比三字母勤奋百倍），才华（游戏力，一些小企划），哪点和三字母有关？真四处蹭热度就不会 ...</blockquote>
+勤奋也就算了，抄企划抄一半硬尬演也算是才能吗，别惹人发笑了。
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 322#       发表于 2020-2-26 23:50
+
+
+
+
+crew踩花，船锚sama？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 323#       发表于 2020-2-26 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不能忍十分钟吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 324#       发表于 2020-2-26 23:52
+
+
+
+
+三个小号加起来也不如新磕娘一人
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 325#       发表于 2020-2-26 23:53
+
+
+
+
+在经历了海王楼以后，我竟然觉得纯anti可爱了起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 326#       发表于 2020-2-26 23:53
+
+
+
+
+确实新磕娘一战属实封神
+
+IG老师还得多教他们些功夫才是
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 327#       发表于 2020-2-26 23:53
+
+
+
+
+这俩人太欢乐了，一溜看下来…
+
+要不是隔着两个屏幕你们都能看到我笑成了什么傻逼样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+加油啊，两位v区的拯救者们！
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 328#       发表于 2020-2-26 23:54
+
+
+
+
+随便一个论坛都是舔狗在黑夸，反倒三字母本人一直在蹭夸的热度，舔狗真爱打主子的脸
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 329#       发表于 2020-2-26 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">你们能不能别这样，万一真是纯良人怎么办？以后V区又少了一位正常人
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 330#       发表于 2020-2-26 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538317&amp;ptid=1915863" target="_blank">Reimu853 发表于 2020-02-26 23:54:28</a>
+你们能不能别这样，万一真是纯良人怎么办？以后V区又少了一位正常人</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对正常人的定义蛮怪的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 331#       发表于 2020-2-26 23:55
+
+
+
+
+还有五分钟，干吧咧
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 332#       发表于 2020-2-26 23:55
+
+
+
+
+
+细数三酱的罪恶：
+
+0，天空之城
+
+1，和男性同居
+
+2，卖粉丝礼物
+
+3，言语猥亵其他管人
+
+4，鸽直播，鸽联动直播，鸽健身环直播
+
+5，赤裸的氪金暗示
+
+6，粉丝氛围乌烟瘴气
+
+7，身在日本却赚中国的钱，是为不忠
+
+8，和挖井人形同陌路，是为不孝
+
+9，对粉丝金主恶语相向，是为不仁
+
+10，和凑阿库娅始乱终弃，是为不义
+
+作为v圈劣币驱散良币的典型案例，对十恶不赦的三字母及其组员粉丝的批判是否到位，是区分管人高手和小鬼的重要依据。
+
+
+ps：如果以上方法都没用，多掺点钓crew的饵进去即可
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 333#       发表于 2020-2-26 23:58
+
+
+
+
+听说这里就是新的贴贴楼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 334#       发表于 2020-2-26 23:59
+
+
+
+
+钩这么直，我甚至怀疑他是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 335#       发表于 2020-2-27 00:00
+
+
+
+
+气抖冷，三酱连自己anti楼的流量都不能保证了，只能靠大天使救救了😭
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 336#       发表于 2020-2-27 00:02
+
+
+
+
+😭气冷抖，三酱的anti楼也被crew霸占了，三字母anti何时能够站起来
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 337#       发表于 2020-2-27 00:03
+
+
+
+
+所以哪个舔狗来告诉我一下夸怎么蹭你三字母热度了？舔狗在anti楼抱团yygq不觉得恶心？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 338#       发表于 2020-2-27 00:03
+
+
+
+
+钓鱼.jpg
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 339#       发表于 2020-2-27 00:03
+
+
+
+
+🐟
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 340#       发表于 2020-2-27 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538405&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 00:03</a>
+所以哪个舔狗来告诉我一下夸怎么蹭你三字母热度了？舔狗在anti楼抱团yygq不觉得恶心？ ...</blockquote>
+没，没有，都是傻逼舔狗在yygq的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 341#       发表于 2020-2-27 00:05
+
+
+
+
+鱼不上钩那渔夫待会就得跑，好不容易来这么一位还放跑了我看V区今天又是要第四
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 342#       发表于 2020-2-27 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46538405&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 00:03</a>
+
+所以哪个舔狗来告诉我一下夸怎么蹭你三字母热度了？舔狗在anti楼抱团yygq不觉得恶心？ ...</blockquote>
+我有一些话想告诉你，但是这里的空太小，我写不下
+
+
+
+
+
+                                      
