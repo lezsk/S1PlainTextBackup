@@ -144,8 +144,8 @@ if __name__ == '__main__':
         thdata=json.load(f)
     savethdata = thdata[:]
     for i in range(len(thdata)):
-        ThreadID = thdata[i]['id']
-        lastpage = int(thdata[i]['totalpage'])
+        ThreadID = thdata['content'][i]['id']
+        lastpage = int(thdata['content'][i]['totalpage'])
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
         s1 = requests.get(RURL, headers=headers,  cookies=cookies)
         # s1 = requests.get(RURL, headers=headers)
@@ -154,10 +154,10 @@ if __name__ == '__main__':
         namelist, replylist,totalpage,titles= parse_html(data)
         if(totalpage > lastpage):
             if(totalpage > 50):
-                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
+                filedir = rootdir+thdata['content'][i]['category']+'/'+str(ThreadID)+titles+'/'
                 mkdir(filedir)
             else:
-                filedir = rootdir+thdata[i]['category']+'/'
+                filedir = rootdir+thdata['content'][i]['category']+'/'
             #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
             startpage = (lastpage-1)//50*50+1
             ThreadContent = [' ']*50
@@ -181,10 +181,10 @@ if __name__ == '__main__':
                         f.writelines(ThreadContent)
                     ThreadContent = [' ']*50
                     PageCount = 0                                        
-            savethdata[i]['totalpage'] = totalpage
-            savethdata[i]['lastedit'] = str(int(time.time()))
-            savethdata[i]['title'] = titles
-        if((int(time.time()) - int(savethdata[i]['lastedit'])) > 518400 or totalpage == 1):
+            savethdata['content'][i]['totalpage'] = totalpage
+            savethdata['content'][i]['lastedit'] = str(int(time.time()))
+            savethdata['content'][i]['title'] = titles
+        if((int(time.time()) - int(savethdata['content'][i]['lastedit'])) > 518400 or totalpage == 1):
             savethdata.pop(i)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(savethdata,indent=2,ensure_ascii=False))
