@@ -182,9 +182,9 @@ if __name__ == '__main__':
                     ThreadContent = [' ']*50
                     PageCount = 0                                        
             savethdata['content'][i]['totalpage'] = totalpage
-            savethdata['content'][i]['lastedit'] = str(int(time.time()))
+            savethdata['content'][i]['lastedit'] = int(time.time())
             savethdata['content'][i]['title'] = titles
-        if((int(time.time()) - int(savethdata['content'][i]['lastedit'])) > 518400 or totalpage == 1):
+        if((int(time.time()) - savethdata['content'][i]['lastedit']) > 518400 or totalpage == 1):
             savethdata['content'].pop(i)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(savethdata,indent=2,ensure_ascii=False))
