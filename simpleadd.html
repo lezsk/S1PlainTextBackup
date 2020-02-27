@@ -1,0 +1,54 @@
+<!-- 开发环境版本，包含了有帮助的命令行警告 -->
+<html>
+<meta http-equiv="Content-Type" content="text/html; charset=utf-8" />
+
+
+<script src="https://cdn.jsdelivr.net/npm/vue/dist/vue.js"></script>
+<script src="https://cdn.jsdelivr.net/npm/vue-resource@1.5.1"></script>
+<!-- 指定vue管理内容区域，需要通过vue展示的内容都要放到找个元素中  通常我们也把它叫做边界 数据只在边界内部解析-->
+<div id="app">
+<p>很简陋的表单但反正也就我一个人在用</p>
+<p>
+<input v-model="newthreadid" placeholder="S1帖子ID">
+</p>
+<p>
+<select v-model="thread">
+    <option disabled value="">选择版面分区</option>
+    <option>外野</option>
+    <option>漫区</option>
+    <option>游戏区</option>
+    <option>虚拟主播区</option>
+  </select>
+</p>
+<p><button v-on:click="sendone">添加</button></p>
+</div>
+
+<!-- 使用 vue -->
+<script>
+
+  new Vue({
+    el: '#app',
+    data: {
+      msg: '这是一个测试',
+      newthreadid : '',
+      thread : ''
+    },
+    methods: {
+    sendone: function (event) {
+        alert('Hello ' + this.name + '!')
+      // `this` 在方法里指向当前 Vue 实例
+      this.$http.get('http://localhost:3000/content').then(response => {
+
+    // get body data
+    this.someData = response.body;
+
+    }, response => {
+    // error callback
+    });
+      // `event` 是原生 DOM 事件
+      
+    }
+  }
+})
+</script>
+</html>
