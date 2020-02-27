@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-27 14:09** 
+> ## **本文件最后更新于2020-02-27 18:08** 
 
 
 
@@ -1641,10 +1641,11 @@ tc突击，来搜集黑料
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 追风小星星| + 1|我醒了|
 | plazum| + 1|欢乐多|
 
 
@@ -8336,10 +8337,11 @@ coco就是天狗对线军事演习基地吗
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| xsl1099| + 1|好评加鹅|
 | deadpoem| + 1|好评加鹅|
 | 灼眼艾莉亚| + 1|好评加鹅|
 
@@ -8738,10 +8740,11 @@ mea在b的收入是完税的，夸就算从yagoo那里分到b的收入估计还�
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 2战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| xsl1099|-1|好评加鹅|
 | yuandi0120|-2|不行这个真的受不了大家把mk2口了吧.|
 
 
@@ -9773,9 +9776,9 @@ V版开了那么久就只有复活甲真的让我笑了<img src="https://static.
 
 
 
- 本帖最后由 笋狐 于 2020-2-27 14:09 编辑 
+ 本帖最后由 笋狐 于 2020-2-27 14:21 编辑 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这鱼只会复读同居，其他言论简直云出天际省，打字要么是IG小号，要么是萎勃精致萌萌纯anti一枚，真相只有一个（
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这鱼只会复读同居，其他言论简直云出天际省，和他打字都嫌浪费键盘耐久度的那种。要么是IG小号，要么是萎勃精致萌萌纯anti一枚，真相只有一个（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">证据就是鱼冒出来ig就不见了（名推理）
 
@@ -9856,4 +9859,1030 @@ ig曾经是crew
 
 
 
-                               
+
+
+-----
+
+####  noaki  
+##### 543#       发表于 2020-2-27 14:11
+
+
+
+
+犹记得一位当时被罪恶的mk2从v综钓到m楼的纯良crew。
+
+尽管他被十几个巨魔送进去了，但他深邃的思想和高深的言论给那一天的m楼带来了不少的快乐。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这位的rp颇有那位的遗风，让我回忆起了曾经那些欢乐的时光。
+
+一想到现已物是人非，不禁潸然泪下<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 544#       发表于 2020-2-27 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么菜还遗风，如此风评被害入土那位仁兄若是泉下有知定是死不瞑目
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 545#       发表于 2020-2-27 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我提议，让ig证明一下清白，不然我们塞了ig吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 546#       发表于 2020-2-27 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543931&amp;ptid=1915863" target="_blank">noaki 发表于 2020-2-27 14:03</a>
+
+认真的回答
+
+1.一年起步
+
+2.#天道酬勤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 547#       发表于 2020-2-27 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543963&amp;ptid=1915863" target="_blank">儒门正御应无骞 发表于 2020-2-27 14:05</a>
+
+因为我给夸打钱让她和小麻磨豆腐她不干。我anti她有错吗</blockquote>
+没有<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 548#       发表于 2020-2-27 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543465&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 13:28</a>
+
+舔狗绿帽奴说石锤，以前我还想到底什么人能喜欢三字母，原因找到了。</blockquote>
+别骂了别骂了，我们舔狗从🦄到双飞厨到绿帽奴到舔774鸡儿都有。
+
+774线上扮女人线下激情sex难道不V吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 549#       发表于 2020-2-27 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们就不能假戏真演？
+指标还要不要完成了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 550#       发表于 2020-2-27 14:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不 打死我也不相信这鱼是IG IG 水平不会这么低的
+
+G 水 又是个什么奇怪的和谐词
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 551#       发表于 2020-2-27 14:32
+
+
+
+
+能躺着把鱼钓了，为什么要认真rp
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 552#       发表于 2020-2-27 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46544206&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 14:24</a>
+
+别骂了别骂了，我们舔狗从🦄到双飞厨到绿帽奴到舔774鸡儿都有。
+
+774线上扮女人线下激情sex难道不V吗[f:037 ...</blockquote>
+恶心到我了，他们父母看到这言论会怎么想
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 553#       发表于 2020-2-27 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46544270&amp;ptid=1915863" target="_blank">physi1202 发表于 2020-2-27 14:29</a>
+
+不 打死我也不相信这鱼是IG IG 水平不会这么低的
+
+G 水 又是个什么奇怪的和谐词 ...</blockquote>
+**(γ-**丁酸)全名Gamma-Hydroxybutyrate又称“液体**”或“G”毒，在香港又叫做“**”、“迷 奸水”、“G 水”，是一种无色、无味、无臭的液体。
+
+
+原来IG这么水是在制造G 水，建议击毙@平安上海
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 554#       发表于 2020-2-27 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543931&amp;ptid=1915863" target="_blank">noaki 发表于 2020-2-27 14:03</a>
+认真的回答
+
+1.一年起步
+
+2.#天道酬勤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 555#       发表于 2020-2-27 14:36
+
+
+
+ 本帖最后由 harry3 于 2020-2-27 14:44 编辑 
+
+IG怎么还不出来，太拉跨了，说好的每日在线时间及时段：13:00-23:00呢，建议和aisakahammer学学怎么熟练切换多个马甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 556#       发表于 2020-2-27 14:45
+
+
+
+
+怎么又冒出来这么个傻逼楼
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 557#       发表于 2020-2-27 14:52
+
+
+
+
+怎么又蹦出个傻逼人
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 558#       发表于 2020-2-27 15:40
+
+
+
+
+还差个ICC出来吹捧一下怀旧区油腻撕逼，lga舔狗壬就齐了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 559#       发表于 2020-2-27 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46544346&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 14:36</a>
+
+IG怎么还不出来，太拉跨了，说好的每日在线时间及时段：13:00-23:00呢，</blockquote>
+
+
+-----
+
+####  若风之景  
+##### 560#       发表于 2020-2-27 15:53
+
+
+
+<blockquote>harry3 发表于 2020-2-27 15:40
+还差个ICC出来吹捧一下怀旧区油腻撕逼，lga舔狗壬就齐了</blockquote>
+那位不是著名谜语人吗？
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 561#       发表于 2020-2-27 15:54
+
+
+
+
+ICC已经弃坑了，由于苦苦等不到7月底的后续剧情，不想继续看了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 562#       发表于 2020-2-27 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545216&amp;ptid=1915863" target="_blank">雪代suzuno 发表于 2020-2-27 15:54</a>
+
+ICC已经弃坑了，由于苦苦等不到7月底的后续剧情，不想继续看了。
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户 ...</blockquote>
+难怪连体婴近来这么拉胯，原来是政委离职了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 563#       发表于 2020-2-27 15:59
+
+
+
+
+贴贴人是最可恨的，在我们蒙古人眼里纯种天狗和贴贴民就像汉人和南人一样
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 564#       发表于 2020-2-27 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545235&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-02-27 15:56:05</a>
+难怪连体婴近来这么拉胯，原来是政委离职了</blockquote>贴贴人都被饿死了，7月底之后没有实质进展，基本再想看剧情起码等麻酱20，所以没耐心了。
+这电视剧追的太累，更新太慢，还可能腰斩，走了正常。
+不过他至少是讲道理，一切论据靠挖掘出来的信息，比某些只会无逻辑黑屁的单推人和anti强一个次元。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 565#       发表于 2020-2-27 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545295&amp;ptid=1915863" target="_blank">雪代suzuno 发表于 2020-2-27 16:00</a>
+
+贴贴人都被饿死了，7月底之后没有实质进展，基本再想看剧情起码等麻酱20，所以没耐心了。
+
+这电视剧追的太累 ...</blockquote>
+yysy，像mk2这种小学生吵架级的黑屁人和普通吃瓜群众本质没啥区别。真的anti都是平时默默收集黑料，关键时刻来一刀，平时不出手，出手就要你命。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 566#       发表于 2020-2-27 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545601&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-2-27 16:28</a>
+yysy，像mk2这种小学生吵架级的黑屁人和普通吃瓜群众本质没啥区别。真的anti都是平时默默收集黑料，关键 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曾经我也这么觉得，但后来又感觉mk2的耐力就没几个人比得上的
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 567#       发表于 2020-2-27 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545601&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-02-27 16:28:28</a>
+yysy，像mk2这种小学生吵架级的黑屁人和普通吃瓜群众本质没啥区别。真的anti都是平时默默收集黑料，关键 ...</blockquote>mea anti没战斗力的最大原因不还是。这人除了516没有实质黑料，516还被她的直觉攻关处理了，没啥有什么可以黑的点，只能靠yy和妄想来黑就显得和傻逼一样，只会帮mea拉粉。meaanti现在这些黑点加一起，黑走的人怕还没自己家事业厨，肯定民，理智gachi和贴贴人内战损失的多，倒是吵了热度，帮mea吃到了好几个石油佬和新粉，成为b站v中最能吃石油佬的人之一。
+挖到最后不知道该怎么黑，总不能黑拔芒毛，不洗澡吧。笑。
+其实大天使同理，但是毕竟大天使看起来过的太顺了，严重缺乏夸anti的免费宣传。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 568#       发表于 2020-2-27 16:49
+
+
+
+
+這樣三小姐都沒有藉口說anti害自己粉絲變少了
+
+因為走的粉絲大部分都是自己殺的...
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 569#       发表于 2020-2-27 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545801&amp;ptid=1915863" target="_blank">雪代suzuno 发表于 2020-2-27 16:45</a>
+
+mea anti没战斗力的最大原因不还是。这人除了516没有实质黑料，516还被她的直觉攻关处理了，没啥有什么可以 ...</blockquote>
+所以我一直说，mk2如果真的讨厌大天使，那么最好的手段就是闭嘴不提，不然就是给大天使做宣传，帮大天使虐粉，帮crew团建。所以mk2要不是傻逼就是crew，不然难以解释他的行为。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 570#       发表于 2020-2-27 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545801&amp;ptid=1915863" target="_blank">雪代suzuno 发表于 2020-2-27 16:45</a>
+mea anti没战斗力的最大原因不还是。这人除了516没有实质黑料，516还被她的直觉攻关处理了，没啥有什么可以 ...</blockquote>
+看到隔壁夸楼说夸哥身内不幸时事业民第一反应是涨粉要变慢了，感觉有点感谢当年meaanti到处宣传1000同接小主播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 571#       发表于 2020-2-27 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545854&amp;ptid=1915863" target="_blank">weiweiEX 发表于 2020-2-27 16:50</a>
+看到隔壁夸楼说夸哥身内不幸时事业民第一反应是涨粉要变慢了，感觉有点感谢当年meaanti到处宣传1000同接 ...</blockquote>
+所以那帮事业民是什么鬼d(ŐдŐ๑)
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 572#       发表于 2020-2-27 16:54
+
+
+
+
+你们可以自己去看啊，楼就在那里
+为啥要在这里听人说
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 573#       发表于 2020-2-27 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545873&amp;ptid=1915863" target="_blank">若风之景 发表于 2020-2-27 16:51</a>
+
+所以那帮事业民是什么鬼d(ŐдŐ๑)
+
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+事业民就是看你事业红火来当精神股东的人啊，类似于b小将。哪天b站真出了啥事，踩得最凶的也会是这波人。这几天贴吧甚至还有yagoo gachi出来给yagoo立牌匾呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 574#       发表于 2020-2-27 16:57
+
+
+
+
+不就是冠军粉吗
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 575#       发表于 2020-2-27 17:00
+
+
+
+
+虹信才是最伟大的！
+原初mea组是虹信建的，部分有效宣传是虹信在微博帮忙弄的（甚至还有一个自称东大还是哪里的高材生烤视频），然而我们还说七色太监，yyr，实在太过分了，哎。你们的良心何在，这里应该成s1最好的彩虹楼
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 576#       发表于 2020-2-27 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545905&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-2-27 16:55</a>
+事业民就是看你事业红火来当精神股东的人啊，类似于b小将。哪天b站真出了啥事，踩得最凶的也会是这波人。 ...</blockquote>
+丢人至极，建议开除粉丝籍
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 577#       发表于 2020-2-27 17:02
+
+
+
+
+夸哥事業心這麼重還不允許粉絲變事業粉囉
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 578#       发表于 2020-2-27 17:03
+
+
+
+
+还有这种事 我想问一下 咖喱人死了 然后停播 回来收一笔欢迎归来的钱 算不算吃自己咖喱人的人血馒头
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 579#       发表于 2020-2-27 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46546003&amp;ptid=1915863" target="_blank">ddsdse 发表于 2020-2-27 17:03</a>
+
+还有这种事 我想问一下 咖喱人死了 然后停播 回来收一笔欢迎归来的钱 算不算吃自己咖喱人的人血馒头
+
+
+——  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不算。没人认识的咖喱人观众是不会在意的，正如爱小姐父母死了我会庆幸她不用再给咖喱人交钱了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我单推副会长|-1|基德|
+| b1992062120|-1|底线|
+| Rem-清曲|-1||
+| aisakahammer|-2|口德|
+| 愛繋璃まつり|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 580#       发表于 2020-2-27 17:14
+
+
+
+
+喷了，不是收益化成功之后就不打钱给父母了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 581#       发表于 2020-2-27 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46546102&amp;ptid=1915863" target="_blank">Sutegoro 发表于 2020-2-27 17:11</a>
+不算。没人认识的咖喱人观众是不会在意的，正如爱小姐父母死了我会庆幸她不用再给咖喱人交钱了 ...</blockquote>
+你挺恶心人的 在怎么说都是父母<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+不认识的咖喱人就可以随便消费呗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 582#       发表于 2020-2-27 17:16
+
+
+
+
+怎么车轱辘越转越回去了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 583#       发表于 2020-2-27 17:22
+
+
+
+
+都不当人了
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 584#       发表于 2020-2-27 17:34
+
+
+
+
+草 原来这个话题车轱辘过了 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+当时知道这事就想问的 不过碍于事情发生没多久没敢问 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+没想到现在问还火星了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 585#       发表于 2020-2-27 17:36
+
+
+
+
+我記得大天使的錢是全上供的 那這樣如果大天使的...
+
+沒事 我不想被殺頭
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 586#       发表于 2020-2-27 17:37
+
+
+
+
+基德，基德，发之体肤受之父母
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 587#       发表于 2020-2-27 17:39
+
+
+
+
+虚拟人aqua是因为中之人的咖喱人原因消失了一阵子，不是因为虚拟人的咖喱人死了才消失的。。。完全不提我觉得蛮正常的，开SC不奇怪，关了反而比较奇怪。混在一起原因是很多人搞不清楚什么是rp什么是真实？
+
+
+怎么有些人就这么喜欢口嗨消费别人咖喱人<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 588#       发表于 2020-2-27 17:41
+
+
+
+
+这不是三小姐anti楼吗，怎么都在车轱辘阿亏哥，阿亏哥连anti楼都不留给三小姐吗呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 589#       发表于 2020-2-27 17:41
+
+
+
+
+基德，基德
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 590#       发表于 2020-2-27 17:44
+
+
+
+
+yysy最近一段时间除了犬山和动物园，mea还是蹭彩虹蹭的比较多
+
+
+当然这不妨碍部分粉丝傻逼的一如既往
+
+
+《试论纯良萌萌人和暗黑虹信哪个杀伤力更大》
+
+又，当初口嗨爆炸的原因本质不还是萌萌人思想的问题
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 591#       发表于 2020-2-27 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46545905&amp;ptid=1915863" target="_blank">肚子疼了 发表于 2020-2-27 16:55</a>
+
+事业民就是看你事业红火来当精神股东的人啊，类似于b小将。哪天b站真出了啥事，踩得最凶的也会是这波人。 ...</blockquote>
+等一波爆料，不过这也是因为企业势终于有个还看的过去的领导，所以才被这么喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 592#       发表于 2020-2-27 17:56
+
+
+
+
+基德 基德啊  <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 593#       发表于 2020-2-27 18:00
+
+
+
+
+为什么不在夸楼问? 因为夸楼夸anti太多了 这楼里我感觉看夸的人应该蛮多的才想着问一问<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 594#       发表于 2020-2-27 18:04
+
+
+
+
+你不管在哪樓問夸anti都會跟垃圾一樣湧來的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 595#       发表于 2020-2-27 18:05
+
+
+
+
+反正网上口嗨无下限的nt人肯定无罪
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 596#       发表于 2020-2-27 18:07
+
+
+
+
+……
+
+
+
+
+
+                              
