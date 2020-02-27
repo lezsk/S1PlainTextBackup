@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-27 12:07** 
+> ## **本文件最后更新于2020-02-27 14:09** 
 
 
 
@@ -917,10 +917,11 @@ mea一时不死我就一时看不到mtr 赶紧死
 
 
 
- 参与人数 8战斗力 +8
+ 参与人数 9战斗力 +9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Nichtig| + 1|思路广|
 | azccc52| + 1|好评加鹅|
 | Orrenji| + 1|女子！|
 | 言艮| + 1|在背了在背了|
@@ -6571,10 +6572,11 @@ V版被天狗一手掌控的黑暗时代就此拉开序幕！ ...</blockquote>
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Nichtig| + 1|欢乐多|
 | skgaminger1988| + 1|欢乐多|
 | zilch_ren| + 1|好评加鹅|
 
@@ -8326,6 +8328,26 @@ coco就是天狗对线军事演习基地吗
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| deadpoem| + 1|好评加鹅|
+| 灼眼艾莉亚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -8381,4 +8403,1457 @@ v圈收入top不是我家大天使吗，天狗别给你家主子脸上贴金了
 
 
 
-                                  
+
+
+-----
+
+####  Igarashi  
+##### 462#       发表于 2020-2-27 12:07
+
+
+
+
+三字母到2020年居然还没引退甚至过得很滋润，每一个给她增加过热度的人都有责任
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 463#       发表于 2020-2-27 12:13
+
+
+
+
+点进来看了半天发现走错了，原来这里不是M楼
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 464#       发表于 2020-2-27 12:14
+
+
+
+
+V圈收入TOP是大天使？别想peach了，大天使不仅得给**纳税还得给yagoo保护费，反观咩删档无法计数的SC一大堆而且还能开饭盒
+
+咩说 想赚钱做个人势，想出名当企业势，用脑干想下是在说谁
+
+按照实际到手的钱说咩确实是收入NO1
+
+不要再用铜臭味玷污我们家大天使了，大天使永远目指东蛋
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 465#       发表于 2020-2-27 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46542429&amp;ptid=1915863" target="_blank">Igarashi 发表于 2020-2-27 12:07</a>
+
+三字母到2020年居然还没引退甚至过得很滋润，每一个给她增加过热度的人都有责任 ...</blockquote>
+孙狗正在挨粉丝赵弹，舔狗什么时候也来一下
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 466#       发表于 2020-2-27 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46542572&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 12:18</a>
+
+孙狗正在挨粉丝赵弹，舔狗什么时候也来一下</blockquote>
+因为三字母的黑粉费拉不堪，不禁打不出走弹，还帮忙炒了热度虐粉，简直就是一群铁憨憨
+
+要么就有点本事一次橄榄，做不到就不要给别人加一点热度，现在搞得我都怀疑是三字母花钱雇的人了
+
+
+
+
+
+
+
+-----
+
+####  czhhws  
+##### 467#       发表于 2020-2-27 12:23
+
+
+
+
+呜呜呜开贴一日而亡
+大抵mea是真的过气了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 468#       发表于 2020-2-27 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">大天使拯救V版流量的功绩也要都被三字母抢走了，这个世界还能不能好了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 469#       发表于 2020-2-27 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是能找来一堆愿意陪你车轱辘的复读机，流量和话语权自然蹭蹭往上涨，归根结底还是没有新的anti姿势水平废拉不堪，菜（
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 470#       发表于 2020-2-27 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46542004&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-27 11:36</a>
+
+什么叫蚕食  三酱作为环mea⭕️统领  开大吸周围单位的血有问题吗
+
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+草，虚拟高坚果？
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 471#       发表于 2020-2-27 12:29
+
+
+
+
+异议！ 三字母根本过不去面试  自己也车轱辘面试被刷 打工被开 可见其面容丑陋 性格恶劣  工作态度不端正 私生活糜烂  这种烂女人也就只能给自己套层皮在网上让天狗当绿帽奴 被卖了自己送的礼物不敢吭声  乳化还给帮着洗地  这种人还想在企业出名 开什么玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 472#       发表于 2020-2-27 12:37
+
+
+
+
+这v版才开多久,眼看这一个个经验包全被你们用完了.
+
+以后要拯救流量反超漫区时,还有的手牌打嘛<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 473#       发表于 2020-2-27 12:41
+
+
+
+
+草，怎么还有造谣三酱去面试木口啊
+
+三酱出道一个月了木口才开始招二期，7月份的时候苹果小姐才屁颠屁颠去面接YAGOO
+
+三酱属实费啦不堪，欺负我家井皇老实好骗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 474#       发表于 2020-2-27 12:42
+
+
+
+ 本帖最后由 proxima 于 2020-2-27 12:43 编辑 
+
+收入这个问题车轱辘太多了，上次我也给算过了，按yagoo抽一半算的话大亏youtube的sc跟mea是五五开的，多那么一丁点。
+
+两边的周边跟工商都可以忽略不计
+
+所以要论证的是mea的bili收入+饭盒跟大亏的bili收入+音声哪边比较多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+望有志者提供数据
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 475#       发表于 2020-2-27 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46542906&amp;ptid=1915863" target="_blank">proxima 发表于 2020-2-27 12:42</a>
+
+收入这个问题车轱辘太多了，上次我也给算过了，按yagoo抽一半算的话大亏youtube的sc跟mea是五五开的，多那 ...</blockquote>
+还有删档啊，三酱十播九删，最后统计SC又统计不了，V界吉良吉影的可能性微存
+
+
+
+
+
+
+
+-----
+
+####  新的瑞拉  
+##### 476#       发表于 2020-2-27 12:53
+
+
+
+
+加油啊，今天能不能倍杀漫区就看角斗场的了！<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 477#       发表于 2020-2-27 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46542906&amp;ptid=1915863" target="_blank">proxima 发表于 2020-02-27 12:42:38</a>
+望有志者提供数据</blockquote>视频激励倒是没啥钱，但是充电收入完全没法统计。
+mea还有特殊合同，b站实际抽成和可能存在的底薪完全没法统计。
+mea在b的收入是完税的，夸就算从yagoo那里分到b的收入估计还要交税，税务问题差距也会很大。毕竟这两人都要到最高档。
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">但是为啥要比，日本又不斗收入
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 478#       发表于 2020-2-27 13:00
+
+
+
+
+三酱每天晚上吃的这么油腻拉肚子，她拉出来的稀每个打过钱的舔狗都要负责
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 479#       发表于 2020-2-27 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543137&amp;ptid=1915863" target="_blank">jhouo8989 发表于 2020-2-27 13:00</a>
+三酱每天晚上吃的这么油腻拉肚子，她拉出来的稀每个打过钱的舔狗都要负责 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuandi0120|-2|不行这个真的受不了大家把mk2口了吧.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 480#       发表于 2020-2-27 13:07
+
+
+
+
+就不能是去面试木口一期的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 481#       发表于 2020-2-27 13:08
+
+
+
+
+那是木毛不是木口
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 482#       发表于 2020-2-27 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木口一期什么时候招的啊
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 483#       发表于 2020-2-27 13:10
+
+
+
+
+俺寻思这个谣言也是说的苹果和麻一起去面试啊
+
+怎么还能捏出小麻单刀赴会的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 484#       发表于 2020-2-27 13:12
+
+
+
+
+俺脑补的是aqua和yagoo在面试室里翻云覆雨，阿咩听了墙角被yagoo吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 485#       发表于 2020-2-27 13:14
+
+
+
+
+mk2还是正统贴贴人，什么楼里都要一转meaqua<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 486#       发表于 2020-2-27 13:15
+
+
+
+
+能不能不要yagoo?能不能不要yagoo?
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 487#       发表于 2020-2-27 13:16
+
+
+
+
+MK2太可怕了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 488#       发表于 2020-2-27 13:16
+
+
+
+
+这楼舔狗在夸楼脱o的比例够高的啊，占领所有讨论区能改变您三字母被774透的现状？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 489#       发表于 2020-2-27 13:17
+
+
+
+
+没事，我觉得被透也没啥不好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 490#       发表于 2020-2-27 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我们好歹还知道阿咩有可能被哪个人透。
+至于您家大天使，还不知道现在正在跟谁透呢。说不定已经是三通蓝批了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 491#       发表于 2020-2-27 13:19
+
+
+
+
+tc
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 492#       发表于 2020-2-27 13:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">认真的说，三小姐这么重女，不适合当女友，适合当炮友，透才是正常的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">搜集黑料的时间到了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 493#       发表于 2020-2-27 13:20
+
+
+
+
+讲个笑话，苹果是DT
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 494#       发表于 2020-2-27 13:20
+
+
+
+
+再交五块钱吧，这号在你说出酬勤的那一瞬间就失效了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 495#       发表于 2020-2-27 13:21
+
+
+
+
+可是nns还说aqua更好冲一点，那aqua有没有被透啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 496#       发表于 2020-2-27 13:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可能是被yagoo透。才能成为holo的皇
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 497#       发表于 2020-2-27 13:22
+
+
+
+
+yagoo不是在办公室摸白姨的腿吗  那亏皇称皇无望啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 498#       发表于 2020-2-27 13:22
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-27 13:18
+我们好歹还知道阿咩有可能被哪个人透。
+
+至于您家大天使，还不知道现在正在跟谁透呢。说不定已经是三 ...</blockquote>
+快别哪个人了，516谢罪会提起774那个开心，这都不敢承认的只有舔狗了。
+
+指出三字母碧池本质就脑补夸也一样，舔狗特有的心理安慰法
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 499#       发表于 2020-2-27 13:23
+
+
+
+
+宁苹果小姐都和kohi桑透了10个月了，客别再这白莲花了好吗
+
+不如做冒菜民，大家都有光明的未来
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 500#       发表于 2020-2-27 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543404&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 13:22</a>
+快别哪个人了，516谢罪会提起774那个开心，这都不敢承认的只有舔狗了。
+
+指出三字母碧池本质就脑补夸也一 ...</blockquote>
+谁说的我不愿意承认啊。我还比你更近一步呢，meaqua774。二女争一夫，紫色相簿都给你安排好了。你这不行啊。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 501#       发表于 2020-2-27 13:28
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-27 13:24
+谁说的我不愿意承认啊。我还比你更近一步呢，meaqua774。二女争一夫，紫色相簿都给你安排好了。你这不行 ...</blockquote>
+舔狗绿帽奴说石锤，以前我还想到底什么人能喜欢三字母，原因找到了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 502#       发表于 2020-2-27 13:28
+
+
+
+
+你们老在这纠结个透不透的，本质还是🦄，能不能体面一点。
+
+人妻不好吗，有男朋友说明经验丰富不是更好吗。我还巴不得有fc2杏爱直播看呢。
+
+看黄本的时候一个个不是真香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么真有男朋友就受不了了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 503#       发表于 2020-2-27 13:29
+
+
+
+
+草，宁大天使可是和别人十锤交往了
+
+774还只停留在意淫领域，实属费啦不堪
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 504#       发表于 2020-2-27 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543475&amp;ptid=1915863" target="_blank">proxima 发表于 2020-2-27 13:28</a>
+你们老在这纠结个透不透的，本质还是🦄，能不能体面一点。
+
+人妻不好吗，有男朋友说明经验丰富不是更好吗。 ...</blockquote>
+是这个道理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 505#       发表于 2020-2-27 13:29
+
+
+
+
+anti过于费拉，选个对自己最不利的战场
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 506#       发表于 2020-2-27 13:30
+
+
+
+
+别钓了别钓了，男友粉都快被她自己杀光了。774这饵没意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 507#       发表于 2020-2-27 13:30
+
+
+
+
+合着你的偶像一辈子不结婚？
+你就为了你扭曲的欲望而让她单身一辈子。这想法有够无耻的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 508#       发表于 2020-2-27 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">橡胶鱼lei了，好起来（？）了，这么锲而不舍姑且就信你是深潜五年吸满了萎勃之精华跑来冒泡的纯良anti人罢，信五分钟左右（
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 509#       发表于 2020-2-27 13:33
+
+
+
+
+等我以后和麻酱结婚了，我就带着她去拜访老朋友774
+
+然后我就坐在椅子上看他们做
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 510#       发表于 2020-2-27 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543536&amp;ptid=1915863" target="_blank">素人不相识 发表于 2020-2-27 13:33</a>
+等我以后和麻酱结婚了，我就带着她去拜访老朋友774
+
+然后我就坐在椅子上看他们做 ...</blockquote>
+我可以去参观吗？
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 511#       发表于 2020-2-27 13:34
+
+
+
+
+草，怎么休息一晚上还换了个更low的套路来对线
+
+🦄在这是鄙视链最底端，您拿这个出来说事那不顶用的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 512#       发表于 2020-2-27 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543536&amp;ptid=1915863" target="_blank">素人不相识 发表于 2020-2-27 13:33</a>
+
+等我以后和麻酱结婚了，我就带着她去拜访老朋友774
+
+然后我就坐在椅子上看他们做 ...</blockquote>
+你可以让麻酱坐在椅子上看你们做，岂不是更刺激<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 513#       发表于 2020-2-27 13:35
+
+
+
+
+靠  交往和同居不是同居更过分吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 514#       发表于 2020-2-27 13:37
+
+
+
+<blockquote>作为v圈劣币驱散良币的典型案例，对十恶不赦的三字母及其组员粉丝的批判是否到位，是区分管人高手和小鬼的重要依据。</blockquote>
+
+昨天这句话我琢磨了很久。到最后我悟到了，这栋楼原来就是管人高手培训班啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 515#       发表于 2020-2-27 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543563&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-27 13:35</a>
+靠  交往和同居不是同居更过分吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+是同居而不交往更过分。阿咩这是钓凯子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nichtig  
+##### 516#       发表于 2020-2-27 13:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊闻三字母昨晚妨碍帕里收白事礼金，遂去回顾了录像。三字母录的视频全程打哈哈，生怕自己的喜悦没法表达
+
+心里估计是在想：“当初mana你在b站和我打得‘有来有回（该说法引自贴吧v民）’，还操纵粉丝攻击我；然后你俩哭着喊着要拆帕里普罗，结果现在沦落到这番田地，真是贻笑大方”
+
+
+真没想到啊，2020年了三字母还是改不掉她的KY毛病。我估计舔狗们还觉得她是个想着调节气氛的好孩子呢。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 517#       发表于 2020-2-27 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得了吧，这人给别人发的所谓祝贺视频什么时候有过zqsg了，要我说角龙ena要顾及气氛压根就不该请她来
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 518#       发表于 2020-2-27 13:47
+
+
+
+
+彩虹在中国势头不错就转进彩虹，彩虹在中国式微就转进holo，最近竟然转进到三字母最喜欢舔的夸头上，舔狗为了给三小姐洗地真的无所不用其极，可惜三小姐一边被774透一边蹭两大箱热度，毫不领情。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 519#       发表于 2020-2-27 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543712&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 13:47</a>
+彩虹在中国势头不错就转进彩虹，彩虹在中国式微就转进holo，最近竟然转进到三字母最喜欢舔的夸头上，舔狗为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">你把noripro和anmr放哪去了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 520#       发表于 2020-2-27 13:49
+
+
+
+
+求求她用力蹭啊，节目效果都是好看的
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 521#       发表于 2020-2-27 13:50
+
+
+
+<blockquote>weiweiEX 发表于 2020-2-27 13:49
+你把noripro和anmr放哪去了</blockquote>
+这俩在天朝没热度，舔狗看不上并不会咬，虽然偶尔也咬犬山。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 522#       发表于 2020-2-27 13:50
+
+
+
+
+彩虹在中国势头不错这结论你从哪看出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 523#       发表于 2020-2-27 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">彩虹在国内什么时候势头不错过，云，就硬云
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 524#       发表于 2020-2-27 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543673&amp;ptid=1915863" target="_blank">Nichtig 发表于 2020-02-27 13:43:44</a>
+惊闻三字母昨晚妨碍帕里收白事礼金，遂去回顾了录像。三字母录的视频全程打哈哈，生怕自己的喜悦没法表达
+
+ ...</blockquote>白天在贴吧看见一条名言  “用笑声掩盖悲伤”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 525#       发表于 2020-2-27 13:51
+
+
+
+<blockquote>无限舰制 发表于 2020-2-27 13:50
+彩虹在中国势头不错这结论你从哪看出来的</blockquote>
+好好学语文，2434刚入住舔狗咬的少了？
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 526#       发表于 2020-2-27 13:53
+
+
+
+
+这跟语文又有什么关系……
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 527#       发表于 2020-2-27 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543777&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 13:51</a>
+
+好好学语文，2434刚入住舔狗咬的少了？</blockquote>
+球一个咬痕，看看有没有感染<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 528#       发表于 2020-2-27 13:54
+
+
+
+<blockquote>noaki 发表于 2020-2-27 13:54
+球一个咬痕，看看有没有感染</blockquote>
+舔狗在虹粉这风评还用说吗
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 529#       发表于 2020-2-27 13:57
+
+
+
+
+1.不是，既然你们这么喜欢黑夸，那为什么没有夸anti楼呢
+
+2.阿夸整天开游戏直播，说勤奋有什么问题吗
+
+3.我每天都在心里默念mmeeaa可是她却完全不去跟蓝莓接触，一点也不宠粉
+
+什么这是因为我没打钱？那没事了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 530#       发表于 2020-2-27 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543816&amp;ptid=1915863" target="_blank">a772803314 发表于 2020-2-27 13:54</a>
+舔狗在虹粉这风评还用说吗</blockquote>
+倒因为果好牛逼哦，难道不是因为七色太监酸？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+七色太监现在大部分连个转播都没有，也就只能酸一酸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 531#       发表于 2020-2-27 14:00
+
+
+
+
+这不是夸anti楼？那我走错了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 532#       发表于 2020-2-27 14:00
+
+
+
+
+虹杏还在round two呢，别乱拉救兵
+
+
+还有麻烦言之有物，快不知道怎么接话了……
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 533#       发表于 2020-2-27 14:00
+
+
+
+<blockquote>儒门正御应无骞 发表于 2020-2-27 13:58
+倒因为果好牛逼哦，难道不是因为七色太监酸？
+
+七色太监现在大部分连个转播都没有，也就只能酸一酸 ...</blockquote>
+嗯现在夸势头比你三字母好了就开始yy夸了，又是蹭热度又是心机，搞笑的是这几个理由都能完美套回三字母。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 534#       发表于 2020-2-27 14:01
+
+
+
+
+咩咩快去学学夸夸怎么蹭吧，呜呜呜，现在还在和底边vtb玩。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 535#       发表于 2020-2-27 14:03
+
+
+
+
+又是虚无车轱辘的一天，没有狠活吗？
+
+V版开了那么久就只有复活甲真的让我笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 536#       发表于 2020-2-27 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543843&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-27 13:57</a>
+
+1.不是，既然你们这么喜欢黑夸，那为什么没有夸anti楼呢
+
+2.阿夸整天开游戏直播，说勤奋有什么问题吗
+
+3.我每 ...</blockquote>
+认真的回答<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+1.一年起步
+
+2.#天道酬勤
+
+3.我打了一年的钱了我也没看到天天盼望的麻凛磨豆腐呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 537#       发表于 2020-2-27 14:04
+
+
+
+
+都说管人粉丝比管人有趣，我看也不尽然（）
+
+
+产出新内容的能力比人家靠这个吃饭的差远了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 538#       发表于 2020-2-27 14:04
+
+
+
+ 本帖最后由 笋狐 于 2020-2-27 14:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这鱼只会复读同居，其他言论简直云出天际省，打字要么是IG小号，要么是萎勃精致萌萌纯anti一枚，真相只有一个（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">证据就是鱼冒出来ig就不见了（名推理）
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 539#       发表于 2020-2-27 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543843&amp;ptid=1915863" target="_blank">plazum 发表于 2020-2-27 13:57</a>
+1.不是，既然你们这么喜欢黑夸，那为什么没有夸anti楼呢
+
+2.阿夸整天开游戏直播，说勤奋有什么问题吗
+
+3.我每 ...</blockquote>
+因为我给夸打钱让她和小麻磨豆腐她不干。我anti她有错吗<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 540#       发表于 2020-2-27 14:05
+
+
+
+
+IG能菜成这样俺不信
+
+
+这要真是还是众筹把他几个号一起塞了吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 541#       发表于 2020-2-27 14:07
+
+
+
+
+就不能是和5岁一样RP成彩比让你们信以为真吗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 542#       发表于 2020-2-27 14:08
+
+
+
+
+ig曾经是crew
+所以我信了。
+
+
+
+
+
+                               
