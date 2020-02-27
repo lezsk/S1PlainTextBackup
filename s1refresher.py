@@ -139,10 +139,11 @@ if __name__ == '__main__':
     '''
     下面的page为帖子号，默认从第一页开始下载
     '''
+    savethdata={'content':' '}
     rootdir="/home/ubuntu/S1PlainTextBackup/"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
-    savethdata = thdata['content'][:]
+    savethdata['content'] = thdata['content'][:]
     for i in range(len(thdata['content'])):
         ThreadID = thdata['content'][i]['id']
         lastpage = int(thdata['content'][i]['totalpage'])

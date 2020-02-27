@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-22 22:04** 
+> ## **本文件最后更新于2020-02-27 15:08** 
 
 
 
@@ -17631,11 +17631,12 @@ FC06A030-3D54-4AD5-8903-798F3AC01403.png
 
 
 
+ 本帖最后由 C男人 于 2020-2-23 08:57 编辑 
 
-OP里有名字的角色，从来没有被木仓打死过的吧？
+OP里的战斗人员，从来没有哪个被木仓打死过的吧？
 
 
-直到和之国篇，连续打死康家和御田。
+直到和之国篇，一发干掉皇副御田。
 
 
 真的是 “海楼石弹头” 不成？
@@ -17666,4 +17667,584 @@ OP里有名字的角色，从来没有被木仓打死过的吧？
 
 
 
-                    
+
+
+-----
+
+####  C男人  
+##### 51872#       发表于 2020-2-22 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46493782&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-2-22 21:22</a>
+
+贝尔梅尔、乙姬王妃、迪亚斯、斯卡莱特、霍名古圣、柯拉松：？</blockquote>
+迪亚斯还没死。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51873#       发表于 2020-2-22 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494420&amp;ptid=98922" target="_blank">C男人 发表于 2020-2-22 22:31</a>
+
+迪亚斯还没死。</blockquote>
+剩下的都挂了
+
+
+
+
+
+
+
+-----
+
+####  黄金蔷薇  
+##### 51874#       发表于 2020-2-22 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46483208&amp;ptid=98922" target="_blank">uponutopia 发表于 2020-2-21 18:58</a>
+
+不光是老鸟,我看富奸对幽白怕是也差不多 井上也是时隔多年后才能重新面对SD
+
+搞创作的人都有类似的 ...</blockquote>
+说到井上，报道说他在学校黑板上画了SD真结尾，保留了几天擦掉了，成为幻之结局。当时就没人拍照保存吗，或者有没有内容剧透。
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 51875#       发表于 2020-2-22 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494818&amp;ptid=98922" target="_blank">黄金蔷薇 发表于 2020-2-22 23:13</a>
+
+说到井上，报道说他在学校黑板上画了SD真结尾，保留了几天擦掉了，成为幻之结局。当时就没人拍照保存吗， ...</blockquote>
+这就不清楚了,不过SD这种青春运动漫画还能有什么真结局...我觉得漫画已经完结得很好了
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 51876#       发表于 2020-2-22 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494818&amp;ptid=98922" target="_blank">黄金蔷薇 发表于 2020-2-22 23:13</a>
+
+说到井上，报道说他在学校黑板上画了SD真结尾，保留了几天擦掉了，成为幻之结局。当时就没人拍照保存吗， ...</blockquote>
+有过视频记录啊
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 51877#       发表于 2020-2-22 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46493032&amp;ptid=98922" target="_blank"> C男人 发表于 2020-2-22 20:04</a> OP里有名字的角色，从来没有被木仓打死过的吧？  直到和之国篇，连续打死康家和御田。  真的是 “海楼石弹头” 不成？   </blockquote>
+白胡子就是被乱**打死的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  JC_AR  
+##### 51878#       发表于 2020-2-22 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46493032&amp;ptid=98922" target="_blank">C男人 发表于 2020-2-22 20:04</a>
+OP里有名字的角色，从来没有被木仓打死过的吧？
+
+
+直到和之国篇，连续打死康家和御田。</blockquote>
+别骂了别骂了，艾尼路搞几个纲钉不是无敌，打遍天下无敌手，天下武功唯快不破，可能只有黄猿可以打一打
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 51879#       发表于 2020-2-22 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46495024&amp;ptid=98922" target="_blank">JC_AR 发表于 2020-2-22 23:34</a>
+
+别骂了别骂了，艾尼路搞几个纲钉不是无敌，打遍天下无敌手，天下武功唯快不破，可能只有黄猿可以打一打
+
+
+ ...</blockquote>
+用海喽石造钢钉，稳赢了，艾尼路海贼王。
+
+
+
+
+
+
+
+-----
+
+####  迪奧  
+##### 51880#       发表于 2020-2-22 23:46
+
+
+
+
+鼠绘完蛋以后 哪里看连载
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 51881#       发表于 2020-2-22 23:47
+
+
+
+
+疯神可惜了,要不是打了个霸气补丁简单粗暴的废掉了自然系艾尼路吹还能活跃很久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  csd  
+##### 51882#       发表于 2020-2-23 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494818&amp;ptid=98922" target="_blank">黄金蔷薇 发表于 2020-2-22 23:13</a>
+
+说到井上，报道说他在学校黑板上画了SD真结尾，保留了几天擦掉了，成为幻之结局。当时就没人拍照保存吗， ...</blockquote>
+不就是十日后吗，也就是个后日谈而已，网上随便搜一下都能找到。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51883#       发表于 2020-2-23 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492278&amp;ptid=98922" target="_blank">发财就手 发表于 2020-2-22 18:43</a>
+
+那凯多怎么跟大妈扯上关系就很难安排了，凯多（青）与大妈（红）还有和之国更有可能是在neta桃太郎讨伐赤 ...</blockquote>
+你这么说我想起来了，赤鬼青鬼两个巨人目前还在小花园摸鱼呢
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51884#       发表于 2020-2-23 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46490896&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-2-22 16:05</a>
+
+修女那段显然留着在之后展开的，现在正好大妈也在和之国，又有双重人格表现，会展示的。 ...</blockquote>
+假如大妈在这里退场的话，老奸巨猾的一面很难展现的，那可能是凯多被打败以后大妈眼珠一转和黑胡子联手么
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 51885#       发表于 2020-2-23 08:17
+
+
+
+
+两年后最好看的剧情就是五黄大战库里了，被压垮的中年男子最后的倔强
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51886#       发表于 2020-2-23 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46495814&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-23 01:35</a>
+假如大妈在这里退场的话，老奸巨猾的一面很难展现的，那可能是凯多被打败以后大妈眼珠一转和黑胡子联手么 ...</blockquote>
+那更拖了，还不如现在叫上大船团来一并解决，黑胡子留着决战。
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 51887#       发表于 2020-2-23 09:47
+
+
+
+<blockquote>迪奧 发表于 2020-2-22 23:46
+鼠绘完蛋以后 哪里看连载</blockquote>
+B站漫画app免费看
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 51888#       发表于 2020-2-23 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46496562&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2020-2-23 08:17</a>
+
+两年后最好看的剧情就是五黄大战库里了，被压垮的中年男子最后的倔强</blockquote>
+你不说还真意识不到——卡塔库栗，48岁。
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 51889#       发表于 2020-2-23 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46494818&amp;ptid=98922" target="_blank">黄金蔷薇 发表于 2020-2-22 23:13</a>
+说到井上，报道说他在学校黑板上画了SD真结尾，保留了几天擦掉了，成为幻之结局。当时就没人拍照保存吗， ...</blockquote>
+有照片啊
+
+
+
+
+
+
+
+-----
+
+####  黄金蔷薇  
+##### 51890#       发表于 2020-2-23 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46495404&amp;ptid=98922" target="_blank">csd 发表于 2020-2-23 00:25</a>
+
+不就是十日后吗，也就是个后日谈而已，网上随便搜一下都能找到。</blockquote>
+谢，有标题就搜到了，还是全彩版，全彩版莫非是19年才有的（发帖时间）？
+
+其中还加了挂历的秋季国体选拔大赛的神奈川全明星阵容，光是看各县的全明星对阵就很有看头了，井上明明可以靠它吃半辈子，却顶住压力全国大赛16强就收尾，大概就是艺术家的坚持吧。
+
+
+
+
+
+
+
+-----
+
+####  csd  
+##### 51891#       发表于 2020-2-23 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46499865&amp;ptid=98922" target="_blank">黄金蔷薇 发表于 2020-2-23 16:15</a>
+
+谢，有标题就搜到了，还是全彩版，全彩版莫非是19年才有的（发帖时间）？
+
+其中还加了挂历的秋季国体选拔 ...</blockquote>
+原先只有线稿图片在网上流传，后来正式出了彩色版。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51892#       发表于 2020-2-26 13:54
+
+
+
+
+本周临时休刊，原因不明（但明确不是尾田急病住院之类的可怕的事情）可以肯定的是，973话的官方刊登日发售日临时从下周一推迟到下下周一，大概率本周看不到偷跑版。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51893#       发表于 2020-2-26 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46532005&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-2-26 13:54</a>
+
+本周临时休刊，原因不明（但明确不是尾田急病住院之类的可怕的事情）可以肯定的是，973话的官方刊登日发售 ...</blockquote>
+你忘记加另一句了
+
+
+尾田是很希望自己的剧情不被预测到，读者期待啥他很可能不会画啥。
+
+
+原来尾田你个浓眉大眼的也是巨魔
+
+
+
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 51894#       发表于 2020-2-26 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46533896&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-26 16:52</a>
+
+你忘记加另一句了
+
+
+尾田是很希望自己的剧情不被预测到，读者期待啥他很可能不会画啥。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这话其实不是第一次说了，只是当年觉得这是能想到好点子的余裕。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51895#       发表于 2020-2-26 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46533896&amp;ptid=98922" target="_blank">灰狼 发表于 2020-2-26 16:52</a>
+你忘记加另一句了
+
+
+尾田是很希望自己的剧情不被预测到，读者期待啥他很可能不会画啥。</blockquote>
+没忘，就是觉得没那么重要就没放，而且确实说了好几次了。
+
+
+
+
+
+
+
+-----
+
+####  韶华白首  
+##### 51896#       发表于 2020-2-27 00:59
+
+
+
+
+谁是二五仔？
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 51897#       发表于 2020-2-27 10:05
+
+
+
+
+既然尾田喜欢出人意料，那大胆猜测一下二五仔是锦卫门
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 51898#       发表于 2020-2-27 12:35
+
+
+
+
+猜测二五仔是桃之助
+
+
+
+
+
+
+
+-----
+
+####  小黑鱼  
+##### 51899#       发表于 2020-2-27 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46532005&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-02-26 13:54:45</a>
+本周临时休刊，原因不明（但明确不是尾田急病住院之类的可怕的事情）可以肯定的是，973话的官方刊登日发售 ...</blockquote>看贴吧图是急病住院啊，有点担心
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 51900#       发表于 2020-2-27 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46543577&amp;ptid=98922" target="_blank">小黑鱼 发表于 2020-2-27 13:36</a>
+看贴吧图是急病住院啊，有点担心
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+是的，之前消息有误。
+
+
+
+
+
+
+
+-----
+
+####  剑士  
+##### 51901#       发表于 2020-2-27 14:56
+
+
+
+
+把太多设定塞给御田了，虽然有点感动，但还是觉得太蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 51902#       发表于 2020-2-27 15:05
+
+
+
+
+卧槽尾田老师可要没事啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虽然最近的剧情一言难尽，我还想看op完结啊
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  mashav  
+##### 51903#       发表于 2020-2-27 15:08
+
+
+
+
+下周的预告有op，不要慌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
