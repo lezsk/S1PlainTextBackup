@@ -32,3 +32,4 @@
     - Gitee不会帮你缓存图片，会和本地markdown客户端一样直连图片源。
 - 如需要本地图文备份，请采用这个备份工具：[[https://github.com/shuangluoxss/Stage1st-downloader][S1Downloader]]
 - 代码写得很烂，还请多多包涵！如果有需要我保存的专楼，可以给我提issue或者在S1私信我。
+- 部分疫情专楼的备份来自于https://gitlab.com/memory-s1/virus ，借用了部分补充未能收录到的专楼。
