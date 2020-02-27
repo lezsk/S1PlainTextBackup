@@ -142,8 +142,8 @@ if __name__ == '__main__':
     rootdir="/home/ubuntu/S1PlainTextBackup/"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
-    savethdata = thdata[:]
-    for i in range(len(thdata)):
+    savethdata = thdata['content'][:]
+    for i in range(len(thdata['content'])):
         ThreadID = thdata['content'][i]['id']
         lastpage = int(thdata['content'][i]['totalpage'])
         RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
