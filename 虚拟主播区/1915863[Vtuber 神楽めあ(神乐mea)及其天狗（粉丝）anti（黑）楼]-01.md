@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-02-27 02:07** 
+> ## **本文件最后更新于2020-02-27 12:07** 
 
 
 
@@ -917,10 +917,11 @@ mea一时不死我就一时看不到mtr 赶紧死
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| azccc52| + 1|好评加鹅|
 | Orrenji| + 1|女子！|
 | 言艮| + 1|在背了在背了|
 | ColdAir| + 1|鸽健身环罪大恶极|
@@ -6832,10 +6833,11 @@ syl这楼是不是该改名叫vtuber凑阿库娅和及其crew的anti楼<img src=
 
 
 
- 参与人数 3战斗力 -1
+ 参与人数 4战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zybdnf|-1||
 | Oshino57| + 1|md猎奇视频|
 | 笋狐|-1|假传情报，按律当塞（|
 | noaki|-1|smjb，tm大半夜的吓到我了|
@@ -7616,6 +7618,25 @@ ig你行不行啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Oshino57|-1|上一条扣错了打成了加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7652,6 +7673,712 @@ ig你行不行啊
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                   
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| skgaminger1988| + 1|她俩没整活啊 单纯的隐退罢了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 426#       发表于 2020-2-27 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46539181&amp;ptid=1915863" target="_blank">花泽冒菜 发表于 2020-2-27 01:38</a>
+
+拿516774黑屁mea就nm离谱，拿这事只能黑屁现在还在舔的天狗，根本没法黑屁mea吧
+
+黑屁mea终究还是得拿人品和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿茶与猫  
+##### 427#       发表于 2020-2-27 02:20
+
+
+
+
+一天下来终于这鱼塘连渔夫都没有了，全是鱼/雷，太草了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 428#       发表于 2020-2-27 03:52
+
+
+
+
+半夜忽然看到的，深有同感，天狗的罪行:
+创造出七色太监这种黑称来阴阳怪气<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+骑脸骂别的vtb的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202002/27/035104g8nttmbibb888bb3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200227_033456.jpg</strong> (503.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-2-27 03:51 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 429#       发表于 2020-2-27 05:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光环观众可还行，现在都不敢直呼木口大名了么，这么《卑微》？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 430#       发表于 2020-2-27 06:44
+
+
+
+
+虹信什么时候才能站起来
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 431#       发表于 2020-2-27 06:50
+
+
+
+
+等等这个版到底有几个只看虹的虹信
+
+
+
+
+
+
+
+-----
+
+####  仙岳病患  
+##### 432#       发表于 2020-2-27 07:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">孙女士最大的问题还是德不配位，赚的钱高出其能力范围
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 433#       发表于 2020-2-27 08:19
+
+
+
+
+mea酱又宠粉又努力  在外面是团宠   处理事情和人际交往能力也极强  怎么从人品和情商方面黑屁啊  要黑屁不是黑屁不回推特的大天使吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">  mea酱是个感情细腻的小女生  欺负刚成年的樱花妹有意思吗  不喜欢别伤害好吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 434#       发表于 2020-2-27 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540072&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-27 08:19</a>
+mea酱又宠粉又努力  在外面是团宠   处理事情和人际交往能力也极强  怎么从人品和情商方面黑屁啊  要黑屁不 ...</blockquote>
+说的太对了，就有一点不对，就是她肯定不算努力<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 435#       发表于 2020-2-27 08:39
+
+
+
+
+建议学微博挂人，把三酱的单纯小粉丝全吊死在这楼里，给v区贡献流量
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 436#       发表于 2020-2-27 08:40
+
+
+
+ 本帖最后由 时雨rain 于 2020-2-27 08:41 编辑 
+
+麻酱可是一天需要睡12个小时以上的睡美人，我不许你们说她努力，说她努力就像骂她一样😉
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 437#       发表于 2020-2-27 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540072&amp;ptid=1915863" target="_blank">3353764798 发表于 2020-2-27 08:19</a>
+
+mea酱又宠粉又努力  在外面是团宠   处理事情和人际交往能力也极强  怎么从人品和情商方面黑屁啊  要黑屁不 ...</blockquote>
+ 纠正下，刚成年的是夸皇。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 438#       发表于 2020-2-27 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540366&amp;ptid=1915863" target="_blank">aisakahammer 发表于 2020-2-27 09:00</a>
+纠正下，刚成年的是夸皇。</blockquote>
+夸皇不是18年就有说20岁了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 439#       发表于 2020-2-27 09:49
+
+
+
+めあめあ说：chinese像垃圾一样涌过来。
+第一遍看めあめあ肯定是看不懂她为什么要在直播中这么说的。
+第二次回头看才能明白，めあめあ是神待少女，生活飘零到要卖粉丝礼物的现实情况，这才能懂她说这段话表面上是对中国观众的嘲讽，实则是对生活对未来的不安、和网络与现实的格差带来的愧疚——而之所以会有不安和愧疚，是因为她对中国观众感受的重视。
+
+这样，你才能明白她为什么会这么说，能说出这样的话正是因为她对中国观众有爱，大爱。
+
+
+这就是VTB的醍醐味了，通过直播中透露的一羽半爪，你可以去思考Liver到底是怎样的人；
+而只停留在直播表面的人，你们肤浅。
+你们感受不到めあめあ的爱，是因为你们不配。
+
+
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 440#       发表于 2020-2-27 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540810&amp;ptid=1915863" target="_blank">矢吹奈子 发表于 2020-2-27 09:49</a>
+めあめあ说：chinese像垃圾一样涌过来。
+
+第一遍看めあめあ肯定是看不懂她为什么要在直播中这么说的。[/back ...</blockquote>
+多谢版主教诲，我更爱咩咩了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 441#       发表于 2020-2-27 09:59
+
+
+
+
+相当不错的ZQSG
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 442#       发表于 2020-2-27 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">追着anti的人一定是语文水平不好、理解能力差和共感能力不好，所以没感受到めあめあ的爱。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 443#       发表于 2020-2-27 10:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">柰子你变了，ZQSG文就这么点字
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 444#       发表于 2020-2-27 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540810&amp;ptid=1915863" target="_blank">矢吹奈子 发表于 2020-2-27 09:49</a>
+
+めあめあ说：chinese像垃圾一样涌过来。
+
+第一遍看めあめあ肯定是看不懂她为什么要在直播中这么说的。[/back ...</blockquote>
+可是现在为什么不六字母百合营业让拆腻子垃圾涌过来了呢？
+
+先排除一个不想恰钱，
+
+再排除一个夸圣小人，
+
+那究竟是为什么呢
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 445#       发表于 2020-2-27 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46541282&amp;ptid=1915863" target="_blank">harry3 发表于 2020-2-27 10:30</a>
+可是现在为什么不六字母百合营业让拆腻子垃圾涌过来了呢？
+
+先排除一个不想恰钱，
+
+再排除一个夸圣小人，</blockquote>
+都是因为我，我的错，因为我既爱凛子又爱咩咩，她们两个吃醋了啦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 446#       发表于 2020-2-27 10:47
+
+
+
+
+小心gachi和平演变anti楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 447#       发表于 2020-2-27 10:52
+
+
+
+
+惊了，竟然刷了15页。看来三小姐的热度还有一点点，还能在业界赚段时间。
+
+
+
+
+
+
+
+-----
+
+####  剑崎真琴  
+##### 448#       发表于 2020-2-27 10:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当三字母anti没前途的啊
+
+
+到最后只会发现你们推的管人都喜欢三字母
+
+
+可以不爱，但别伤害
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 449#       发表于 2020-2-27 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46540810&amp;ptid=1915863" target="_blank">矢吹奈子 发表于 2020-2-27 09:49</a>
+
+めあめあ说：chinese像垃圾一样涌过来。
+
+第一遍看めあめあ肯定是看不懂她为什么要在直播中这么说的。[/back ...</blockquote>
+懂了，chinese=垃圾，冲了三字母
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 450#       发表于 2020-2-27 11:19
+
+
+
+
+“三字母正在一步步蚕食我的推，要吐了”
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 451#       发表于 2020-2-27 11:36
+
+
+
+
+什么叫蚕食  三酱作为环mea⭕️统领  开大吸周围单位的血有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 452#       发表于 2020-2-27 11:38
+
+
+
+
+有一说一，你的推喜欢什么跟你有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拒当全肯定民从我做起
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 453#       发表于 2020-2-27 11:39
+
+
+
+
+為什麼大天使要被黑吸血<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 三小姐就不用
+
+連沒交談過幾次韓國VTuber的人血饅頭都敢洽了
+
+整天當個三家姓奴都不羞恥了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 454#       发表于 2020-2-27 11:40
+
+
+
+
+今天泥板又被漫区和游戏区按地上打了，再来三个小号加把劲骑士啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 455#       发表于 2020-2-27 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46541798&amp;ptid=1915863" target="_blank">暴走的包子 发表于 2020-2-27 11:19</a>
+
+“三字母正在一步步蚕食我的推，要吐了”
+
+
+—— 來自 samsung SM-N9750, Android 10上的 S1Next-鵝版 v2.2. ...</blockquote>
+起初，凑阿库娅搞meaqua的时候，
+
+我沉默了，因为我不是crew。
+
+
+当犬山抓mea搞homolive的时候，
+
+我沉默了，因为我讨厌功利人。
+
+
+当白上吹雪和mea联动的时候，
+
+我沉默了，因为我是杏anti。
+
+
+当爱丽丝和mea一起玩的时候，
+
+我沉默了，因为我厌恶vliver。
+
+
+最后当樱桃乐园邀请mea参加时，
+
+再也没有人站起来和我一起反对了。
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 456#       发表于 2020-2-27 11:43
+
+
+
+
+coco就是天狗对线军事演习基地吗
+
+
+
+
+
+
+
+-----
+
+####  剑崎真琴  
+##### 457#       发表于 2020-2-27 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">全肯定bot什么时候才能站起来，气抖冷
+
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 458#       发表于 2020-2-27 11:51
+
+
+
+
+你们mea粉真jb噁心，看不惯黑屁不能老老实实滚回你们自己楼里去吗？这里清清楚楚写着是你三字母及她的傻逼饭圈肥肥舔狗们的anti楼都能腆着幅b脸进来乱咬打滚
+
+怪不得哪都容不下mea粉，为什么哪里的vtb综合楼都得特别标明mea的讨论得滚出克，你们天狗心里没点逼数吗？ 任由天狗随地拉屎的后果就是s1 v版。
+我提议新增一条版规把天狗们全围起来所有mea相关不得跨出m楼一步，make s1 great again! 
+￼￼
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 459#       发表于 2020-2-27 11:51
+
+
+
+
+这里就是mea真爱黑屁楼吗
+三小姐德不配位又不是第一天了，明明有这么大的体量，但是这人又没啥自信，做的事情又那么憨，还老是让人觉得自己只是一个同接不到2000的小小底边。也不玩游戏不蹭热度，直播还是天天突击，完全对不起v圈收入top的位置。简直让人气抖冷
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 460#       发表于 2020-2-27 11:59
+
+
+
+
+用不到2000同接这种话不是给咩咩虚空贴金吗  咩咩只有1100的同接<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">啥时候掉回三位数啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 461#       发表于 2020-2-27 12:06
+
+
+
+
+v圈收入top不是我家大天使吗，天狗别给你家主子脸上贴金了
+
+
+
+
+
+                                  
